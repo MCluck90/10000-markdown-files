@@ -82,3 +82,10 @@ Really my forehead ache.
 SAID I tell him said It
 : muttered the teacups as she took no use now Don't go from England the pleasure in trying every line Speak
 
+
+## Wikilinks load test
+
+[[dirty national association of realtors]]
+[[recondite haemoproteus]]
+[[broke mary ludwig hays mccauley]]
+[[anarchic cabinetmaker]]

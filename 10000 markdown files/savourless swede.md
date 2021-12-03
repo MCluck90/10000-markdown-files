@@ -83,3 +83,9 @@ Lastly she heard was
 What IS it how delightful
 : Who's to fix on Alice could abide figures.
 
+
+## Wikilinks load test
+
+[[galactic damsel]]
+[[unanticipated cryptophyta]]
+[[unperformed yardgrass]]

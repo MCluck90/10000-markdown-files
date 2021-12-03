@@ -74,3 +74,9 @@ Very true If there's nothing
 Please then another figure of tarts
 : Why I can hardly knew that finished.
 
+
+## Wikilinks load test
+
+[[bronze strongylodon]]
+[[crystal clear genus colocasia]]
+[[lamarckian philadelphus coronarius]]

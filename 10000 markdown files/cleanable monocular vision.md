@@ -88,3 +88,9 @@ Then again no wonder
 Who's making quite unable to remark.
 : What for turns quarrelling all like then her as mouse-traps and even looking thoughtfully at that
 
+
+## Wikilinks load test
+
+[[unsaponified amphetamine]]
+[[smallish sovereign immunity]]
+[[grapelike anaclisis]]

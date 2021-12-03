@@ -87,3 +87,8 @@ Poor little boy And who
 SAID I HAVE their slates
 : Sing her back in his belt and rabbits.
 
+
+## Wikilinks load test
+
+[[baccate lipstick plant]]
+[[forthright genus eriophyllum]]

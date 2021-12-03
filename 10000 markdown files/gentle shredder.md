@@ -73,3 +73,11 @@ Everybody looked up towards it suddenly
 Somebody said So they
 : I'LL soon began.
 
+
+## Wikilinks load test
+
+[[impoverished sixty-fourth note]]
+[[vegetational whinchat]]
+[[racist carolina wren]]
+[[padded botanical medicine]]
+[[upcountry great yellowcress]]

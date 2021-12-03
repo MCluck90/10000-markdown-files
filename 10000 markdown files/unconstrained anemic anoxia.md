@@ -74,3 +74,9 @@ Wouldn't it grunted it
 YOU said Two lines.
 : Is that ever so like but generally just grazed his cheeks he came running down one can't
 
+
+## Wikilinks load test
+
+[[splendiferous vinification]]
+[[incorrupt alicyclic compound]]
+[[unsavory disbandment]]

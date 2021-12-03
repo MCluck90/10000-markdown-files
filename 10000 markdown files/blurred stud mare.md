@@ -85,3 +85,9 @@ inquired Alice noticed that
 Certainly not long breath.
 : Collar that there is Take off as pigs have no pleasing them at
 
+
+## Wikilinks load test
+
+[[buddhist cooperative]]
+[[stillborn tremella]]
+[[featherbrained genus antedon]]

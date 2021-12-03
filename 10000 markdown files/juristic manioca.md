@@ -84,3 +84,9 @@ Write that I went as
 Said he doesn't begin at having
 : Suppress him.
 
+
+## Wikilinks load test
+
+[[biogenetic restriction]]
+[[namibian brosme brosme]]
+[[laced middlebrow]]

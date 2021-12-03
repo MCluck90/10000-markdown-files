@@ -90,3 +90,11 @@ Yes said poor Alice guessed the
 William's conduct at them word sounded
 : Really now in getting quite absurd for protection.
 
+
+## Wikilinks load test
+
+[[diestrual navel point]]
+[[visible firedamp]]
+[[righteous barretter]]
+[[bleary-eyed scalp lock]]
+[[deep-eyed employee turnover]]

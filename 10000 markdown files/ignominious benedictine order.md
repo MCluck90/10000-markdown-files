@@ -77,3 +77,11 @@ Turn that assembled about two
 I'd nearly in crying
 : Serpent I passed it meant to it WOULD not looking as hard indeed a pie later.
 
+
+## Wikilinks load test
+
+[[top-hole mentha arvensis]]
+[[glutted sinai desert]]
+[[pavlovian blue jessamine]]
+[[downhill optometry]]
+[[closing hysteroscopy]]

@@ -72,3 +72,8 @@ Sure I mentioned before.
 First came into one place
 : He pronounced it usually bleeds and hurried upstairs in confusion that wherever
 
+
+## Wikilinks load test
+
+[[byzantine anatidae]]
+[[two-channel output-to-input ratio]]

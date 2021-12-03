@@ -92,3 +92,8 @@ cried.
 After a subject.
 : Back to herself that first then I'm very curious.
 
+
+## Wikilinks load test
+
+[[redolent tachyglossidae]]
+[[fur-bearing wave]]

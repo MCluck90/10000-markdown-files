@@ -81,3 +81,8 @@ Stuff and gave him
 Visit either question but
 : Prizes.
 
+
+## Wikilinks load test
+
+[[coppery fuddy-duddy]]
+[[awake velvet ant]]

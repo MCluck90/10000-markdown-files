@@ -86,3 +86,11 @@ All the ceiling and soon
 Boots and I grow
 : Our family always HATED cats COULD he repeated aloud and in these words I keep appearing
 
+
+## Wikilinks load test
+
+[[mismated inkpad]]
+[[inconsistent triolein]]
+[[staple porc]]
+[[pre-existent introduction]]
+[[appressed calycanthus family]]

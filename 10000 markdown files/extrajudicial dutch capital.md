@@ -80,3 +80,8 @@ Fifteenth said these cakes as
 Where did the voice she listened
 : Hadn't time.
 
+
+## Wikilinks load test
+
+[[minoan amphioxus]]
+[[tied up waste-yard]]

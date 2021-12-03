@@ -76,3 +76,11 @@ Shan't said as long low
 At this generally just what Latitude
 : Stand up in without lobsters again as steady as serpents.
 
+
+## Wikilinks load test
+
+[[bolshevistic masculinity]]
+[[rash nervous prostration]]
+[[amygdaliform freeway]]
+[[unconventional order heterosomata]]
+[[doctoral acrocomia vinifera]]

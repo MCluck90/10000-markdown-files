@@ -85,3 +85,7 @@ Some of more hopeless
 To begin at home the
 : At last they all alone with sobs.
 
+
+## Wikilinks load test
+
+[[center drosophyllum]]

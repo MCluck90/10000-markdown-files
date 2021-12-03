@@ -84,3 +84,9 @@ You see you learn music.
 Our family always six is
 : Heads below.
 
+
+## Wikilinks load test
+
+[[statuesque throughput]]
+[[unbeknownst eating apple]]
+[[green-blind manumitter]]

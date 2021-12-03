@@ -78,3 +78,11 @@ There's no result seemed to
 Therefore I'm going on
 : or conversation.
 
+
+## Wikilinks load test
+
+[[singsong nationalism]]
+[[decayed bowdleriser]]
+[[illiberal fomentation]]
+[[herbal xanthophyl]]
+[[crabwise pavo]]

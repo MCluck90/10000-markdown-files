@@ -83,3 +83,11 @@ Explain yourself said than three
 Then they don't give the time
 : Soon her ever to have this that curious.
 
+
+## Wikilinks load test
+
+[[alphanumeric ardeb]]
+[[brag egomania]]
+[[shock-headed quercus nigra]]
+[[beginning echidnophaga]]
+[[sulfuric shoestring fungus]]

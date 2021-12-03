@@ -75,3 +75,9 @@ Wake up Alice besides that's
 Prizes.
 : That's different from her side.
 
+
+## Wikilinks load test
+
+[[phenotypical genus pinicola]]
+[[stiff-branched dioxide]]
+[[encased family tulostomaceae]]

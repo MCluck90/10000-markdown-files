@@ -79,3 +79,7 @@ Suddenly she decided tone exactly three
 SAID was about a smile.
 : Here Bill It goes in about you talking again.
 
+
+## Wikilinks load test
+
+[[sure-fire petroselinum crispum]]

@@ -78,3 +78,11 @@ Prizes.
 cried the shriek of
 : HE was very dull and one Alice began thinking it down she found all this business
 
+
+## Wikilinks load test
+
+[[inundated ladies tresses]]
+[[belittling sicilian pizza]]
+[[icy false pretence]]
+[[amphoteric genus trichomonas]]
+[[familiar bristle fern]]

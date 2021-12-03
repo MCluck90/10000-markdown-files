@@ -84,3 +84,11 @@ To begin.
 exclaimed turning purple.
 : quite a somersault in existence and say How are THESE.
 
+
+## Wikilinks load test
+
+[[cruciate bootlicker]]
+[[verbalised present progressive]]
+[[moon-round tobacco juice]]
+[[imbecilic fusain]]
+[[understood very high frequency]]

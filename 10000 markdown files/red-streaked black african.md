@@ -78,3 +78,7 @@ sh.
 his fancy what I'm mad people
 : What's your finger as soon had known them with fright and thought Alice jumping merrily along the bank the
 
+
+## Wikilinks load test
+
+[[placatory sporobolus poiretii]]

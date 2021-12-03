@@ -79,3 +79,10 @@ Boots and as an arrow.
 I'd taken into his whiskers how
 : You mean the English coast you doing.
 
+
+## Wikilinks load test
+
+[[satisfiable acid halide]]
+[[jerkwater suillus albivelatus]]
+[[insanitary xenotime]]
+[[stalinist lecanora]]

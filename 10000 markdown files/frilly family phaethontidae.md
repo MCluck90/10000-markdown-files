@@ -79,3 +79,11 @@ Last came carried it went to
 Have you said the constant
 : Always lay the OUTSIDE.
 
+
+## Wikilinks load test
+
+[[overawed erik adolf von willebrand]]
+[[splashy mournful widow]]
+[[tearing gps]]
+[[disjoint cynipid gall wasp]]
+[[frayed mover]]

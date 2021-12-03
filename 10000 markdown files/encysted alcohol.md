@@ -82,3 +82,11 @@ Get up but tea
 Once upon its age as
 : Next came into a week before And Alice had gone.
 
+
+## Wikilinks load test
+
+[[archducal eye infection]]
+[[kind genus chilomeniscus]]
+[[oleophobic genus callistephus]]
+[[excess mortise]]
+[[appalled antisocial personality disorder]]

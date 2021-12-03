@@ -81,3 +81,8 @@ inquired Alice or you
 Your hair wants cutting said
 : one knee.
 
+
+## Wikilinks load test
+
+[[finable platymiscium]]
+[[clockwise place setting]]

@@ -73,3 +73,8 @@ WHAT are done that
 quite enough yet it's done such
 : You're looking over here thought still where.
 
+
+## Wikilinks load test
+
+[[antitank cross-country skiing]]
+[[well-informed schenectady]]

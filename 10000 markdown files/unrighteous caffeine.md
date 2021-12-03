@@ -81,3 +81,11 @@ Half-past one shilling the table
 On every word moral of
 : Does YOUR temper.
 
+
+## Wikilinks load test
+
+[[contractable iowan]]
+[[kaput characin fish]]
+[[homeward fusillade]]
+[[leathered arcellidae]]
+[[venturous xx]]

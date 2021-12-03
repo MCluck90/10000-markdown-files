@@ -79,3 +79,10 @@ Their heads downward.
 Behead that did.
 : Somebody said.
 
+
+## Wikilinks load test
+
+[[depicted genus priacanthus]]
+[[empty burrill bernard crohn]]
+[[tight-fitting mendelianism]]
+[[morbilliform zinzendorf]]

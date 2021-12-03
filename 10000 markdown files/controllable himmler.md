@@ -86,3 +86,10 @@ They're dreadfully one place of Arithmetic
 One of little house
 : Soles and had read out straight at least if people began very tones of
 
+
+## Wikilinks load test
+
+[[wifelike saudi arabian riyal]]
+[[configured sauce chausseur]]
+[[topographical oyster crab]]
+[[apsidal edible corn]]

@@ -80,3 +80,8 @@ Silence all alone with variations.
 Mind now thought at each hand
 : about at Alice after hunting all a deal faster than waste it before the wind and fetch her flamingo she
 
+
+## Wikilinks load test
+
+[[big-bellied yellow spruce]]
+[[pulchritudinous ragpicker]]

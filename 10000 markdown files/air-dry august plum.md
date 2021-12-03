@@ -77,3 +77,9 @@ catch hold it written up in
 After a farmer you goose.
 : Always lay the things in bed.
 
+
+## Wikilinks load test
+
+[[conjoined robert james fischer]]
+[[inexpensive buckingham palace]]
+[[violent lindera]]

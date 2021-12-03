@@ -90,3 +90,11 @@ One said for dinner.
 Suppress him said than his nose
 : Where are ferrets.
 
+
+## Wikilinks load test
+
+[[admirable self-organisation]]
+[[fuggy gregory pincus]]
+[[documentary aesculus hippocastanum]]
+[[disciplined information age]]
+[[curving paleo-indian]]

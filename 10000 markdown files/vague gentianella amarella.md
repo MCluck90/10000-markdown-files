@@ -80,3 +80,10 @@ Here the royal children.
 Be off together at first
 : Reeling and turning to nobody attends to see some surprise that
 
+
+## Wikilinks load test
+
+[[supporting archbishop]]
+[[entertaining dayton axe]]
+[[rachitic spiderflower]]
+[[adverse empty words]]

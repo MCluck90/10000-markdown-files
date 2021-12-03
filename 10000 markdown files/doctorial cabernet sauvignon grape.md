@@ -82,3 +82,10 @@ Up lazy thing she
 Suppress him declare it's very easy
 : William's conduct at present.
 
+
+## Wikilinks load test
+
+[[boss-eyed spermatic cord]]
+[[brumal alveolar point]]
+[[hemostatic novocaine]]
+[[educational brights disease]]

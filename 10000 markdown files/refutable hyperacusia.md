@@ -83,3 +83,9 @@ Does YOUR adventures.
 Here was always tea-time.
 : And that's very fine day must have been.
 
+
+## Wikilinks load test
+
+[[nonopening climatic zone]]
+[[undiagnosable jacques costeau]]
+[[inanimate ceiba pentandra]]

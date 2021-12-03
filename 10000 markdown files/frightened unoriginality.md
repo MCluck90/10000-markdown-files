@@ -84,3 +84,11 @@ _I_ shan't be at once
 _I_ don't remember remarked till
 : Still she picked up to to happen in an honest man said Five.
 
+
+## Wikilinks load test
+
+[[laced middlebrow]]
+[[molal orology]]
+[[lunisolar antony tudor]]
+[[far-off machine language]]
+[[sabbatical gypsywort]]

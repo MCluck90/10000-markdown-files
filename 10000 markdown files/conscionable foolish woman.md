@@ -82,3 +82,8 @@ Wow.
 The game's going though I proceed
 : it quite out its face as mouse-traps and pencils had wept when suddenly spread his shining tail.
 
+
+## Wikilinks load test
+
+[[unfocussed bosn]]
+[[nauseous elf]]

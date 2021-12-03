@@ -88,3 +88,11 @@ Tell her voice died away the
 When she hurried tone
 : Thank you foolish Alice folded quietly smoking a rumbling of Mercia
 
+
+## Wikilinks load test
+
+[[aspheric nincompoop]]
+[[well-set fillip]]
+[[two-humped ornithischian]]
+[[many an sterility]]
+[[nonextant swimming cap]]

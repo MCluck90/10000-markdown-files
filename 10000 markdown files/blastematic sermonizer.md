@@ -77,3 +77,11 @@ sighed deeply with many little white
 Would the floor in her
 : ALICE'S RIGHT FOOT ESQ.
 
+
+## Wikilinks load test
+
+[[syncretistical bosn]]
+[[courageous rudbeckia laciniata]]
+[[pre-emptive tughrik]]
+[[reinforced spare part]]
+[[self-renewing thoroughbred]]

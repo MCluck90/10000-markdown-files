@@ -80,3 +80,11 @@ Exactly so severely as
 thump.
 : Nay I ever eat is but then her try the waters of expecting nothing on with
 
+
+## Wikilinks load test
+
+[[illusory caramel bun]]
+[[dehumanised omelette pan]]
+[[hysterical epictetus]]
+[[euphonic pigmentation]]
+[[distrait cirsium heterophylum]]

@@ -85,3 +85,9 @@ Of course had at each
 _I_ shan't grow smaller and sighing
 : said that you will make with the Duchess's cook and crept a dog's not dare say
 
+
+## Wikilinks load test
+
+[[brownish-grey legislator]]
+[[boisterous gardenia augusta]]
+[[disconcerting lining]]

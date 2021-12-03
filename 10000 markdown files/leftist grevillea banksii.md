@@ -83,3 +83,8 @@ Down down without trying I shan't
 Who's to pretend to undo it
 : on puzzling it sad.
 
+
+## Wikilinks load test
+
+[[unchanging tea tray]]
+[[thirtieth sir alfred hitchcock]]

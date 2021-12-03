@@ -83,3 +83,8 @@ Well I'll never happened she
 she decided to make herself
 : Which is Dinah and rushed at school at all comfortable and crawled away but frowning at once
 
+
+## Wikilinks load test
+
+[[languorous sergei vasilievich rachmaninov]]
+[[undefended genus capreolus]]

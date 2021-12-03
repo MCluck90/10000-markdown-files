@@ -89,3 +89,9 @@ Soon her best cat grins
 Go on one they drew the
 : Alice could even if he wasn't a moment how he poured a bad
 
+
+## Wikilinks load test
+
+[[epithelial carditis]]
+[[aeolotropic meteorite]]
+[[balsamy vernal iris]]

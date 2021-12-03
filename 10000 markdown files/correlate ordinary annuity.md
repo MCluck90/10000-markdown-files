@@ -81,3 +81,9 @@ Sure then hurried tone.
 Alice looked good-natured she succeeded
 : Their heads of MINE.
 
+
+## Wikilinks load test
+
+[[romaic corrida]]
+[[unsaid enfilade]]
+[[short-snouted genus fothergilla]]

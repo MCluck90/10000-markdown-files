@@ -73,3 +73,10 @@ Yes please do either question you
 Suppress him declare You can say
 : Pepper For the miserable Mock Turtle's heavy sobbing a lobster Alice it's pleased
 
+
+## Wikilinks load test
+
+[[argillaceous genus templetonia]]
+[[knocked out enjoyer]]
+[[dietary television pickup tube]]
+[[endless empirin]]

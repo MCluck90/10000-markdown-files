@@ -85,3 +85,10 @@ Soon her sharp bark
 You'll see some wine
 : No accounting for shutting people that make you old said Get to hold it directed to sit
 
+
+## Wikilinks load test
+
+[[rheumy litter basket]]
+[[consenting reassertion]]
+[[lxxvii engine]]
+[[circumferent onset]]

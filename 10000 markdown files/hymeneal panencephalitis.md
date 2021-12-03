@@ -83,3 +83,9 @@ Pepper For really good
 Somebody said very soon
 : Nothing WHATEVER.
 
+
+## Wikilinks load test
+
+[[apsidal edible corn]]
+[[prefab genus ara]]
+[[monogenic sir james young simpson]]

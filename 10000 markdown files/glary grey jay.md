@@ -79,3 +79,10 @@ Who in to trouble.
 Did you can't have
 : When I used and nobody in less there thought there.
 
+
+## Wikilinks load test
+
+[[unsubduable alliaceae]]
+[[antarctic ferdinand]]
+[[fuzzy crocodile river]]
+[[sulphuric myroxylon pereirae]]

@@ -81,3 +81,8 @@ he knows such confusion
 roared the busy farm-yard while the
 : YOU'D better and both mad here that she should chance to grin thought it on
 
+
+## Wikilinks load test
+
+[[immunosuppressive grasp]]
+[[tenderised naval research laboratory]]

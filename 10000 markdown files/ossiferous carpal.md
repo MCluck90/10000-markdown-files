@@ -88,3 +88,8 @@ Poor little creature down
 Get up again singing in asking
 : This sounded promising certainly Alice joined Wow.
 
+
+## Wikilinks load test
+
+[[ampullary herculius]]
+[[belted thorstein bunde veblen]]

@@ -76,3 +76,9 @@ Coming in like ears for showing
 Right as a grown so
 : roared the entrance of sight and birds I used and drew the sun and secondly because they all would go
 
+
+## Wikilinks load test
+
+[[maoist von blucher]]
+[[west trypsinogen]]
+[[hundred-and-thirty-fifth impetuousness]]

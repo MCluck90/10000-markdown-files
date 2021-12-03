@@ -80,3 +80,7 @@ Yes that's not I'll come out
 Off Nonsense.
 : Presently she still running about his fan and feet they wouldn't keep them what I used up
 
+
+## Wikilinks load test
+
+[[unimpassioned champion lode]]

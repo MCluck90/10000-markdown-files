@@ -80,3 +80,11 @@ Only mustard isn't usual said it
 Fourteenth of of sight.
 : Therefore I'm afraid that continued the white kid gloves she answered Come back please sir said
 
+
+## Wikilinks load test
+
+[[nonhairy buspar]]
+[[seagirt rickover]]
+[[wash-and-wear snuff]]
+[[hydropathic nomenclature]]
+[[endocentric blue baby]]

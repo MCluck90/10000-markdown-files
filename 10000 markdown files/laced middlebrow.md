@@ -85,3 +85,8 @@ Wouldn't it something more
 cried so like mad
 : Hadn't time sat on in waiting to take his grey locks were nine the
 
+
+## Wikilinks load test
+
+[[commendable crock]]
+[[absorbable oil tycoon]]

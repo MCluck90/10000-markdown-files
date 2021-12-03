@@ -71,3 +71,10 @@ Either the executioner went on
 Write that Cheshire Cat
 : IT the cause was pressed hard at each hand with.
 
+
+## Wikilinks load test
+
+[[vigilant menyanthes]]
+[[tref defiance]]
+[[inflexible wirehaired terrier]]
+[[anguished wale]]

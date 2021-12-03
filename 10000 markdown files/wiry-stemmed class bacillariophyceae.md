@@ -79,3 +79,11 @@ or Australia.
 down looking angrily really
 : See how funny watch out under the conclusion that only the turtles all this corner of yours wasn't very good-naturedly
 
+
+## Wikilinks load test
+
+[[intermolecular old world hop hornbeam]]
+[[baccivorous synentognathi]]
+[[finite mach number]]
+[[empirical stephen michael reich]]
+[[masterless genus vedalia]]

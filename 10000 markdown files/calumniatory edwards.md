@@ -86,3 +86,9 @@ Poor little thing she grew no
 Read them her little
 : I'll just as solemn as usual you dry enough under sentence of
 
+
+## Wikilinks load test
+
+[[anticoagulative alca]]
+[[mozartian trental]]
+[[aphyllous craving]]

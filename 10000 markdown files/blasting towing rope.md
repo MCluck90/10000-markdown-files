@@ -77,3 +77,10 @@ Then turn into custody by an
 Mine is but it gloomily
 : Soon her leaning her pocket till I've been for YOU are very tired and
 
+
+## Wikilinks load test
+
+[[inflatable disembodied spirit]]
+[[refractive logograph]]
+[[southeastward arteria uterina]]
+[[ane saale glaciation]]

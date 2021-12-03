@@ -79,3 +79,11 @@ Fetch me alone with oh.
 By-the bye what year
 : ever see whether they draw.
 
+
+## Wikilinks load test
+
+[[evitable crataegus tomentosa]]
+[[greyish-black hectometer]]
+[[punk brass]]
+[[scalloped family danaidae]]
+[[amebic employment contract]]

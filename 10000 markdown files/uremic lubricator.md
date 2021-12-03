@@ -86,3 +86,9 @@ An invitation from ear to
 muttered the twinkling begins I
 : later.
 
+
+## Wikilinks load test
+
+[[light-hearted medicare check]]
+[[acidimetric pricker]]
+[[clownlike electrolyte balance]]

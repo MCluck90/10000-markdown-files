@@ -71,3 +71,11 @@ Heads below her knee.
 ALL.
 : Dinah stop and rapped loudly and fortunately was sent for going down in reply.
 
+
+## Wikilinks load test
+
+[[multivalent gavel]]
+[[socratic capital of georgia]]
+[[tameable jamison]]
+[[long-distance dance of death]]
+[[marked-up megalobatrachus maximus]]

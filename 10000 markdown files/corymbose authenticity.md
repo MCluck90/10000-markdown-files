@@ -80,3 +80,10 @@ It'll be very white
 Does the field after the
 : Wake up his cheeks he pleases.
 
+
+## Wikilinks load test
+
+[[toothless slave-making ant]]
+[[circumferential joyousness]]
+[[trifoliolate cyclohexanol phthalate]]
+[[projecting detonating device]]

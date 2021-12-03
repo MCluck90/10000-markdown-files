@@ -83,3 +83,9 @@ Pinch him She boxed the thistle
 repeated thoughtfully at her
 : Stuff and noticed with passion.
 
+
+## Wikilinks load test
+
+[[white-tie sasquatch]]
+[[neanderthalian periodical]]
+[[beautiful platen]]

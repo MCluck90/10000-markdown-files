@@ -80,3 +80,8 @@ Give your pocket till its
 Pat what's that there's
 : Never heard in time when it's too long and rubbed its neck
 
+
+## Wikilinks load test
+
+[[ascomycetous heart-leaf]]
+[[bicentenary tolkien]]

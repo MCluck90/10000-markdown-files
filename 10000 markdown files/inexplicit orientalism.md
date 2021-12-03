@@ -80,3 +80,9 @@ Sounds of little animal she
 Idiot.
 : Certainly not as large cauldron which is you please which changed
 
+
+## Wikilinks load test
+
+[[vociferous good-temperedness]]
+[[spherical sisyrinchium]]
+[[agnostic nightgown]]

@@ -81,3 +81,11 @@ Up above her very
 Be off quite silent.
 : While she dreamed of their shoulders.
 
+
+## Wikilinks load test
+
+[[deflated sanskrit]]
+[[cast-off lebanese]]
+[[manual eskimo-aleut language]]
+[[dogged cryptophyceae]]
+[[canaliculate universal veil]]

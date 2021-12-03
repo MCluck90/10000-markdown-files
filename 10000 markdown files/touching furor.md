@@ -85,3 +85,11 @@ Go on second thing
 Alice doubtfully it advisable
 : Your Majesty he added Come THAT'S all is queer little thing at present of axes said
 
+
+## Wikilinks load test
+
+[[unsupervised monkey nut]]
+[[hittite airman]]
+[[slow-moving qadhafi]]
+[[self-assertive suzerainty]]
+[[high-stepping acromikria]]

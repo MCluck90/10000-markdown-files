@@ -78,3 +78,7 @@ Get up again in
 Two in bed.
 : A knot.
 
+
+## Wikilinks load test
+
+[[running seychelles islands]]

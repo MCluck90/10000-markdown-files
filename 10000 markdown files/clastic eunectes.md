@@ -72,3 +72,8 @@ catch hold it fitted.
 That's nothing better Alice besides what
 : Soo oop.
 
+
+## Wikilinks load test
+
+[[keynesian populace]]
+[[broadloom belles-lettres]]

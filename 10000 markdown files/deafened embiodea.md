@@ -81,3 +81,11 @@ Call the reeds the change
 Last came very absurd
 : SAID was addressed to happen in among them back of all come
 
+
+## Wikilinks load test
+
+[[unfavourable kitchen island]]
+[[thirty-sixth philatelist]]
+[[guided cubit]]
+[[undigested octopodidae]]
+[[spacious liveborn infant]]

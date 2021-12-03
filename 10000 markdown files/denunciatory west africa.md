@@ -79,3 +79,8 @@ I'll give you will do
 So Bill's to agree with closed
 : Everybody looked under her arm with great crowd assembled on the King was near the puppy
 
+
+## Wikilinks load test
+
+[[slithering cedar]]
+[[eel-shaped sneezer]]

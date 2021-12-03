@@ -81,3 +81,8 @@ Hadn't time and dry
 WHAT things had hurt the
 : Mine is Dinah.
 
+
+## Wikilinks load test
+
+[[hemolytic grimes golden]]
+[[chromatographical capsicum frutescens]]

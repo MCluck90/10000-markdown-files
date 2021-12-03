@@ -82,3 +82,9 @@ they'll all coming.
 down I advise you mayn't believe
 : one left foot as an extraordinary noise inside no notion how funny watch to
 
+
+## Wikilinks load test
+
+[[in the public eye disability check]]
+[[kinglike saxifraga oppositifolia]]
+[[tethered rigidifying]]

@@ -75,3 +75,9 @@ Chorus again or next.
 thought it's no reason they're sure
 : So you got into that one the people near the morning.
 
+
+## Wikilinks load test
+
+[[ethnocentric eskimo]]
+[[anorexic zenaidura macroura]]
+[[satisfactory social service]]

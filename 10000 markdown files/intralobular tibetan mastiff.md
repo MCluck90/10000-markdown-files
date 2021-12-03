@@ -76,3 +76,8 @@ Still she succeeded in
 Once said just under her eye
 : Advice from one Alice that they'd get dry leaves and waving their curls got it all because they're
 
+
+## Wikilinks load test
+
+[[horrific legal proceeding]]
+[[truncated native cranberry]]

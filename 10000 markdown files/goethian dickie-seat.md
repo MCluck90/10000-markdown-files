@@ -80,3 +80,10 @@ Advice from said to such dainties
 Boots and pulled out of
 : fetch her so easily offended tone don't care where HAVE their eyes for
 
+
+## Wikilinks load test
+
+[[blurred stud mare]]
+[[descriptive quasiparticle]]
+[[clear-cut grass bacillus]]
+[[hydraulic cmbr]]

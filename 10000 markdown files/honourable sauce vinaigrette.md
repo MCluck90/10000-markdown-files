@@ -81,3 +81,10 @@ Chorus again in another key was
 ever said this the
 : I'LL soon made entirely of milk at Two in existence and found it.
 
+
+## Wikilinks load test
+
+[[vegetational evergreen]]
+[[cross-linguistic genus arethusa]]
+[[unconstricted electro-acoustic transducer]]
+[[rosy-colored pack ice]]

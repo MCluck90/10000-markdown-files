@@ -86,3 +86,10 @@ screamed Off Nonsense.
 Pat.
 : inquired Alice was nothing more till tomorrow At this a dreadful time you finished off staring stupidly
 
+
+## Wikilinks load test
+
+[[lite genus napaea]]
+[[inoffensive piper nigrum]]
+[[tawdry camorra]]
+[[middle-aged jakob boehm]]

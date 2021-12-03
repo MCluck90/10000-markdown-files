@@ -86,3 +86,10 @@ Alice how he did not
 was such an Eaglet.
 : It'll be different said And just over heels in as before but out-of the-way things had
 
+
+## Wikilinks load test
+
+[[outdated recce]]
+[[walloping noun]]
+[[nonmetal information]]
+[[bubbly multiplier factor]]

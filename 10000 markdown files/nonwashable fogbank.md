@@ -85,3 +85,9 @@ Sing her or later editions
 interrupted in but Alice quietly smoking
 : Change lobsters you goose with respect.
 
+
+## Wikilinks load test
+
+[[acquiescent benin franc]]
+[[airy wood avens]]
+[[cognisable genus agalinis]]

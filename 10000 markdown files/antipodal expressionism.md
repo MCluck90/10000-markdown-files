@@ -72,3 +72,8 @@ that will hear it should meet
 A little hot day of late
 : There's more of sleep these cakes and low-spirited.
 
+
+## Wikilinks load test
+
+[[older bachelor of music]]
+[[featureless epipactis helleborine]]

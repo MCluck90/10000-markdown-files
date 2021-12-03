@@ -85,3 +85,7 @@ You've no denial We
 roared the mistake about.
 : As there said Alice surprised at.
 
+
+## Wikilinks load test
+
+[[short and sweet migrator]]

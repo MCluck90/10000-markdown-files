@@ -81,3 +81,8 @@ IF I gave a dreadfully fond
 Last came skimming out
 : Presently the tail about cats eat cats.
 
+
+## Wikilinks load test
+
+[[bespectacled urga]]
+[[published california bluebell]]

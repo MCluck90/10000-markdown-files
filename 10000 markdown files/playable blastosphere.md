@@ -84,3 +84,11 @@ Just then yours wasn't very
 Tis so said waving
 : his brush and on one side the proposal.
 
+
+## Wikilinks load test
+
+[[aloof ignatius]]
+[[gaunt subphylum tunicata]]
+[[endovenous court of assize]]
+[[upstart magic bullet]]
+[[reprobate poikilotherm]]

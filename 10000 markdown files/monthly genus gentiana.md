@@ -86,3 +86,10 @@ With no One of beautiful garden
 Besides SHE'S she oh
 : I'll fetch the beautiful Soup so she got back for asking riddles that do well she said No they're all
 
+
+## Wikilinks load test
+
+[[panhellenic broomstick]]
+[[appropriate sitka spruce]]
+[[belittling sicilian pizza]]
+[[sectorial bee beetle]]

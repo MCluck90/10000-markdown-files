@@ -79,3 +79,11 @@ They're done I keep moving
 Ugh Serpent.
 : Ah my hair that squeaked.
 
+
+## Wikilinks load test
+
+[[pinnate-leafed blue cheese]]
+[[impromptu jamestown]]
+[[discriminatory diatonic scale]]
+[[pantheist baby-boom generation]]
+[[pessimistic velvetleaf]]

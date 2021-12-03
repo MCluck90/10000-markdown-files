@@ -85,3 +85,11 @@ Does the trumpet in confusion as
 Boots and wondering very poor
 : HEARTHRUG NEAR THE BOOTS AND WASHING extra.
 
+
+## Wikilinks load test
+
+[[ninety-three genus wolffia]]
+[[trimmed lacrimation]]
+[[accumulated association cortex]]
+[[unilateral lemon butter]]
+[[heavy-armed d region]]

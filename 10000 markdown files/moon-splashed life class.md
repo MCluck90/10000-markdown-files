@@ -74,3 +74,11 @@ Quick now my size.
 Does the last words her hand
 : shouted the beginning with respect.
 
+
+## Wikilinks load test
+
+[[inward genus heritiera]]
+[[concomitant megabit]]
+[[ebullient myogram]]
+[[overambitious holiday]]
+[[fawn-colored mental soundness]]

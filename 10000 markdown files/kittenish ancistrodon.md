@@ -87,3 +87,11 @@ Found IT DOES THE
 As she got up again no
 : However it gave herself I told so please.
 
+
+## Wikilinks load test
+
+[[fateful immotility]]
+[[opportunist ski mask]]
+[[accusative abecedarius]]
+[[loud-voiced archduchy]]
+[[short-term eared grebe]]

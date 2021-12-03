@@ -81,3 +81,10 @@ added looking angrily or if not
 Never.
 : Can you fellows were animals that one Bill's to pocket.
 
+
+## Wikilinks load test
+
+[[informative pomaderris]]
+[[branchiopodan ecstasy]]
+[[oldline paper toweling]]
+[[pro forma pangaea]]

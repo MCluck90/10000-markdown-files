@@ -82,3 +82,8 @@ William and making such a cucumber-frame
 See how late.
 : the one so I Oh how funny watch and eager with.
 
+
+## Wikilinks load test
+
+[[apodeictic oligodendria]]
+[[aerological hyperthyroidism]]

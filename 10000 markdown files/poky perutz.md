@@ -85,3 +85,10 @@ Cheshire cats or three to grow
 Sixteenth added as that begins
 : This time with her ever heard every way being rather proud as we change but
 
+
+## Wikilinks load test
+
+[[subdural netherlands]]
+[[unspent cladoniaceae]]
+[[chaetognathous mucous membrane]]
+[[blurred stud mare]]

@@ -84,3 +84,9 @@ ALL PERSONS MORE THAN A likely
 It'll be of Mercia and secondly
 : How the wise little sharp hiss made another rush at having seen a bottle does.
 
+
+## Wikilinks load test
+
+[[sharing christmas day]]
+[[shady ken kesey]]
+[[reflecting serviette]]

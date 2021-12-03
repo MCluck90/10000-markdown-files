@@ -85,3 +85,10 @@ persisted.
 They told you find her
 : Your Majesty said.
 
+
+## Wikilinks load test
+
+[[deadening diuretic drug]]
+[[unconvincing flaxseed]]
+[[exogenous quoter]]
+[[sheepish neurosurgeon]]

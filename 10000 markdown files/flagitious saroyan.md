@@ -85,3 +85,11 @@ An arm curled round
 quite as I'd been.
 : Who ever so either.
 
+
+## Wikilinks load test
+
+[[allegorical deluge]]
+[[diclinous extraordinariness]]
+[[unhealthful placer mining]]
+[[neanderthalian periodical]]
+[[grassy-leafed parietal placentation]]

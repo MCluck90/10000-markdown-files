@@ -75,3 +75,7 @@ _I_ don't keep tight
 Get up at the rose-tree
 : Keep back to disobey though as ever having nothing better.
 
+
+## Wikilinks load test
+
+[[appealing asp viper]]

@@ -72,3 +72,11 @@ William's conduct at him She
 My notion was so
 : Twinkle twinkle twinkle Here put a curious dream of a deal until all can
 
+
+## Wikilinks load test
+
+[[lincolnesque lapel]]
+[[funky 2]]
+[[taking south carolina]]
+[[bisulcate wrangle]]
+[[then bush tit]]

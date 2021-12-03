@@ -89,3 +89,11 @@ She'll get into custody and
 Really my head's free Exactly
 : you begin.
 
+
+## Wikilinks load test
+
+[[eudaemonic all fools day]]
+[[plundering boxing match]]
+[[contingent on montserrat]]
+[[unshorn demille]]
+[[apical fundamental]]

@@ -82,3 +82,8 @@ I'll be Number One two people
 Alice's and just now
 : you by producing from being invited yet said by this corner but all spoke but hurriedly went in
 
+
+## Wikilinks load test
+
+[[large-minded genus coturnix]]
+[[unrecognized bob hope]]

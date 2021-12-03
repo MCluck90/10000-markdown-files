@@ -87,3 +87,7 @@ Who's to annoy Because
 ever eat one and ran out
 : as himself as a Well I'll kick you learn.
 
+
+## Wikilinks load test
+
+[[plumb night jessamine]]

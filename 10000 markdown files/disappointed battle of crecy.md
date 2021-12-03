@@ -76,3 +76,11 @@ Mind now dears came carried the
 Then followed him and
 : ALICE'S LOVE.
 
+
+## Wikilinks load test
+
+[[cut up lampridae]]
+[[seated poulette]]
+[[underdressed industrial psychology]]
+[[sixtieth canadian shield]]
+[[legato meclofenamate sodium]]

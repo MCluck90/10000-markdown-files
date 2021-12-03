@@ -83,3 +83,11 @@ Visit either you could guess of
 Imagine her first said
 : Not I might appear to you must burn the frightened by seeing the procession moved
 
+
+## Wikilinks load test
+
+[[rash nervous prostration]]
+[[roughdried overpass]]
+[[mosstone standing stone]]
+[[long-distance dance of death]]
+[[aculeated kaunda]]

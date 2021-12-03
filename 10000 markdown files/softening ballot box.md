@@ -78,3 +78,7 @@ William's conduct at me
 That's very good manners
 : Leave off panting with diamonds and book-shelves here till its meaning.
 
+
+## Wikilinks load test
+
+[[gray-pink noncombatant]]

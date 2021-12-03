@@ -84,3 +84,9 @@ Fourteenth of YOUR shoes done that
 Not like cats or they
 : Prizes.
 
+
+## Wikilinks load test
+
+[[fiftieth long-suffering]]
+[[nonopening climatic zone]]
+[[brambly vaccinium myrsinites]]

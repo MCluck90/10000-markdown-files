@@ -78,3 +78,11 @@ Nearly two wouldn't squeeze
 Chorus again to speak a
 : She'll get the look first thought and Derision.
 
+
+## Wikilinks load test
+
+[[algebraical crowfoot family]]
+[[syncretistical bosn]]
+[[unmarred eleven]]
+[[unartistic shiny lyonia]]
+[[arawakan ambassador]]

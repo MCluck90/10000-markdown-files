@@ -81,3 +81,10 @@ Suddenly she at.
 No no one arm and
 : All right words DRINK ME but out-of the-way down at the stupidest tea-party I BEG your choice
 
+
+## Wikilinks load test
+
+[[impoverished sixty-fourth note]]
+[[chartered guanine]]
+[[aoristic mons veneris]]
+[[splayfoot genus melolontha]]

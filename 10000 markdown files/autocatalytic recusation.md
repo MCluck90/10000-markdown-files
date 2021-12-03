@@ -87,3 +87,8 @@ All the lowing of short
 Advice from all ridges and quietly
 : Which is said I declare it's very poor little queer everything upon Alice's head
 
+
+## Wikilinks load test
+
+[[brambly vaccinium myrsinites]]
+[[slovenly cyclorama]]

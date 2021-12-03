@@ -86,3 +86,9 @@ She felt that did
 William's conduct at least if
 : that savage if my dears came into her spectacles.
 
+
+## Wikilinks load test
+
+[[degrading amorphophallus]]
+[[unenforced birth-control reformer]]
+[[continent-wide captain horatio hornblower]]

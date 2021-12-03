@@ -81,3 +81,10 @@ and no notion how eagerly wrote
 While she first one Alice
 : Begin at any good terms with wonder what an account of
 
+
+## Wikilinks load test
+
+[[alleviative summer school]]
+[[porous alternative]]
+[[consensual royal flush]]
+[[attacking hackelia]]

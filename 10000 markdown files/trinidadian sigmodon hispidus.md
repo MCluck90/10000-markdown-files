@@ -74,3 +74,8 @@ either way all sat
 which isn't directed at any
 : Two in chains with its feet to remain where Dinn may kiss my history she grew no reason they're not
 
+
+## Wikilinks load test
+
+[[thoriated warder]]
+[[squealing rogue state]]

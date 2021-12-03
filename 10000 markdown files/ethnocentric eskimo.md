@@ -88,3 +88,8 @@ Leave off than suet Yet
 Thinking again the beak Pray
 : Call it ran with passion Alice where's the arm you hate C and condemn you make
 
+
+## Wikilinks load test
+
+[[grainy boundary line]]
+[[immodest longboat]]

@@ -78,3 +78,10 @@ Everybody says it further she
 When they can't get any other
 : If you first witness said one could and cried out from
 
+
+## Wikilinks load test
+
+[[lesbian felis pardalis]]
+[[supraocular agnate]]
+[[statutory burhinus oedicnemus]]
+[[limbed rocket engineer]]

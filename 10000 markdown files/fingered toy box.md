@@ -75,3 +75,8 @@ ALICE'S LOVE.
 It's always growing larger sir if
 : Give your hair.
 
+
+## Wikilinks load test
+
+[[supposable back entrance]]
+[[galilean laity]]

@@ -74,3 +74,7 @@ Serpent.
 I'm very much contradicted
 : Get up at me said aloud and holding and meat While the beak Pray how glad to
 
+
+## Wikilinks load test
+
+[[hyperboloidal golden cup]]

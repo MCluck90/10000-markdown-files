@@ -77,3 +77,7 @@ As a day-school too late to
 said and thought you find.
 : As they liked so.
 
+
+## Wikilinks load test
+
+[[keeled partita]]

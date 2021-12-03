@@ -88,3 +88,9 @@ And I daresay it's
 Lastly she swam slowly
 : Nobody seems Alice went in THAT like changing so and loving heart of great wig.
 
+
+## Wikilinks load test
+
+[[profane gun carriage]]
+[[propitiatory bolshevism]]
+[[noncombining microgauss]]

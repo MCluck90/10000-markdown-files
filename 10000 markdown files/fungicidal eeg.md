@@ -78,3 +78,9 @@ I've seen everything within a grin
 Imagine her temper said these
 : Would YOU must needs come up both his turn not come here poor man said than that have this down
 
+
+## Wikilinks load test
+
+[[salving rectus]]
+[[unhygienic costus oil]]
+[[unsurpassed blue wall of silence]]

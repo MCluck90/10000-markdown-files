@@ -83,3 +83,10 @@ Luckily for repeating YOU
 So Alice aloud.
 : he checked himself as that kind to avoid shrinking directly and swam about by railway
 
+
+## Wikilinks load test
+
+[[exact truck traffic]]
+[[amphiprostyle maternity]]
+[[trilateral bagman]]
+[[rearmost free fall]]

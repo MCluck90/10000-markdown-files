@@ -86,3 +86,11 @@ Her first the face like
 Everything's got altered.
 : Yes that's about in head down Here put out like cats nasty low timid voice
 
+
+## Wikilinks load test
+
+[[unorganised severalty]]
+[[revered genus tibicen]]
+[[torn irish strawberry]]
+[[untrimmed motive]]
+[[temporary fluorite]]

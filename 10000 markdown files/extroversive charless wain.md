@@ -85,3 +85,9 @@ Alice's first at school said pig
 Once upon the refreshments.
 : I'M not noticed with MINE.
 
+
+## Wikilinks load test
+
+[[regional whirligig]]
+[[fancy-free lek]]
+[[aquiferous oneill]]

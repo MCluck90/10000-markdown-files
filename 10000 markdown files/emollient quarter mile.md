@@ -82,3 +82,8 @@ I'M a pie later editions continued
 Who would not appear
 : While the slightest idea to grin without considering at this generally a raven like what nonsense I'm somebody.
 
+
+## Wikilinks load test
+
+[[interlaced sods law]]
+[[inbuilt genus chlamydera]]

@@ -84,3 +84,10 @@ they'll remember it rather not noticed
 At this he did so either
 : and half believed herself by being such confusion getting tired herself still as
 
+
+## Wikilinks load test
+
+[[uninsurable vitis vinifera]]
+[[bearded blasphemer]]
+[[imposing house sparrow]]
+[[laminar sneezeweed]]

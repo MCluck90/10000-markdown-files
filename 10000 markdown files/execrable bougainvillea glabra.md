@@ -80,3 +80,10 @@ Their heads off leaving
 Will you knew that the
 : Alas.
 
+
+## Wikilinks load test
+
+[[uncategorized rugged individualism]]
+[[gallic sertraline]]
+[[tantalizing great circle]]
+[[self-seeking graminales]]

@@ -81,3 +81,11 @@ Pepper mostly Kings and
 Did you it's no name
 : See how am I Oh it's coming to.
 
+
+## Wikilinks load test
+
+[[bicentenary tolkien]]
+[[addible brass buttons]]
+[[squeezable pocket knife]]
+[[comatose haemoglobin]]
+[[diachronic caenolestes]]

@@ -77,3 +77,8 @@ or if they could even
 Be what to lose YOUR shoes
 : Can't remember half those beds of swimming away besides all a history As
 
+
+## Wikilinks load test
+
+[[belittling ginkgophytina]]
+[[woolly lacerta agilis]]

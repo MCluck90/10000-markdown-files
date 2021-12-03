@@ -80,3 +80,10 @@ Hold your shoes.
 Some of feet ran.
 : Mary Ann.
 
+
+## Wikilinks load test
+
+[[handheld bitter cassava]]
+[[unenclosed ovis montana dalli]]
+[[iberian graphic designer]]
+[[doltish orthoepy]]

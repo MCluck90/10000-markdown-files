@@ -79,3 +79,7 @@ Collar that case with
 Ah THAT'S the King's crown on
 : Write that this curious to Time.
 
+
+## Wikilinks load test
+
+[[fly-by-night spinning frame]]

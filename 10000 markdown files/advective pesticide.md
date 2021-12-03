@@ -73,3 +73,7 @@ Nothing whatever happens.
 At last she heard
 : sh.
 
+
+## Wikilinks load test
+
+[[city-bred primrose]]

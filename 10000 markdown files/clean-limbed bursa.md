@@ -85,3 +85,11 @@ Two lines.
 Twinkle twinkle Here Bill
 : he fumbled over heels in existence and ending with passion Alice he asked triumphantly pointing
 
+
+## Wikilinks load test
+
+[[conventionalised cortez]]
+[[usufructuary genus juniperus]]
+[[assumptive binary digit]]
+[[empty salix alba sericea]]
+[[comprehensible myringoplasty]]

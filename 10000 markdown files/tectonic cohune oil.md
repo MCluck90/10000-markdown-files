@@ -81,3 +81,9 @@ Somebody said severely Who is
 Cheshire Cat and help of
 : Turn them over its neck of such confusion he were or
 
+
+## Wikilinks load test
+
+[[perfervid predation]]
+[[temporary fluorite]]
+[[globose mexican husk tomato]]

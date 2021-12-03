@@ -85,3 +85,10 @@ With extras.
 Turn that curious croquet-ground.
 : Pat.
 
+
+## Wikilinks load test
+
+[[agape barunduki]]
+[[childish gummed label]]
+[[pyrotechnic trigeminal neuralgia]]
+[[verifiable alpha brass]]

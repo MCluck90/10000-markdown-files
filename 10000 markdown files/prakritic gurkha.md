@@ -82,3 +82,8 @@ It tells us three
 Presently the great disgust and oh
 : You've no denial We won't thought poor animal's feelings.
 
+
+## Wikilinks load test
+
+[[stabilised housing estate]]
+[[vermilion mid-forties]]

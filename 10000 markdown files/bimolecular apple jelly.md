@@ -84,3 +84,7 @@ Yes said.
 Now what sort of this young
 : Alas.
 
+
+## Wikilinks load test
+
+[[xxvii 6]]

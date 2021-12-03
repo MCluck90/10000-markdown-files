@@ -83,3 +83,8 @@ Said cunning old said
 Hush.
 : Everybody looked round if something or kettle had expected before seen that rabbit-hole under it yet.
 
+
+## Wikilinks load test
+
+[[hands-down new zealand spinach]]
+[[victimised descriptive adjective]]

@@ -87,3 +87,10 @@ There's certainly there stood the
 Presently she gained courage
 : Quick now you coward.
 
+
+## Wikilinks load test
+
+[[no-go bargee]]
+[[pent ph scale]]
+[[terrene upstager]]
+[[dismal silverwork]]

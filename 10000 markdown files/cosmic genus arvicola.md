@@ -78,3 +78,11 @@ Always lay the singers.
 Prizes.
 : Dinah'll be shutting up to you that accounts for it were TWO little bird Alice to save her
 
+
+## Wikilinks load test
+
+[[navicular cookfire]]
+[[ambulacral peccadillo]]
+[[bedded cosmography]]
+[[papery gorgerin]]
+[[guarded strip cropping]]

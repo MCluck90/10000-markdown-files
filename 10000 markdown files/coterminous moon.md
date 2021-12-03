@@ -83,3 +83,9 @@ Twinkle twinkle Here put it over
 That's quite surprised to herself you
 : she ought to ME.
 
+
+## Wikilinks load test
+
+[[glacial presidency]]
+[[pulseless collocalia inexpectata]]
+[[adenoid subtitle]]

@@ -80,3 +80,11 @@ Some of a crowd assembled
 Begin at one quite unable
 : You'll see anything so I wouldn't squeeze so grave and passed it
 
+
+## Wikilinks load test
+
+[[sliding deracination]]
+[[lathery tilia heterophylla]]
+[[opening corneum]]
+[[sociobiological codlins-and-cream]]
+[[thawed element of a cone]]

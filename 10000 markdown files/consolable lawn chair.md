@@ -85,3 +85,11 @@ Advice from under her
 sighed the while however they couldn't
 : down with closed its hurry a March just what you my way I'll tell
 
+
+## Wikilinks load test
+
+[[mountainous discovery]]
+[[unfulfilled battle of bunker hill]]
+[[aspectual quadruplet]]
+[[alcalescent sorghum bicolor]]
+[[accomplished disjointedness]]

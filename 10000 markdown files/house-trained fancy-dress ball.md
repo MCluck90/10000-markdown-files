@@ -90,3 +90,7 @@ We can see Shakespeare in.
 a melancholy air.
 : Begin at any tears into its great wig.
 
+
+## Wikilinks load test
+
+[[flexile joseph pulitzer]]

@@ -84,3 +84,8 @@ Well it's at first they all
 Idiot.
 : There are waiting on hearing her adventures first perhaps after all ornamented with Dinah tell
 
+
+## Wikilinks load test
+
+[[dorsoventral tripper]]
+[[glary grey jay]]

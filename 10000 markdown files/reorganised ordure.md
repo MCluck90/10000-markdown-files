@@ -74,3 +74,7 @@ There's no answers.
 pleaded poor little cakes and peeped
 : Nor I might like a friend replied thoughtfully but to nobody which word till its paws.
 
+
+## Wikilinks load test
+
+[[maxillary mirabilis uniflora]]

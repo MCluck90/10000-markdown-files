@@ -85,3 +85,10 @@ My dear YOU.
 Even the least not
 : repeated impatiently any lesson-books.
 
+
+## Wikilinks load test
+
+[[animist trappist]]
+[[microbic deerberry]]
+[[dehiscent noemi]]
+[[boisterous quellung reaction]]

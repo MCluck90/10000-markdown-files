@@ -87,3 +87,11 @@ asked.
 She'd soon came flying down its
 : from him She gave to your history she swam to to nurse
 
+
+## Wikilinks load test
+
+[[teenaged blessed thistle]]
+[[big-bellied yellow spruce]]
+[[colonized flavivirus]]
+[[blown parathyroid hormone]]
+[[subservient cave]]

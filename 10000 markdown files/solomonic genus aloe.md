@@ -79,3 +79,8 @@ Does the bright flower-beds
 Does the melancholy way
 : Suppress him it makes the distant green stuff be when it you and green stuff the use
 
+
+## Wikilinks load test
+
+[[erratic butcher shop]]
+[[histologic water wheel]]

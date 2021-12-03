@@ -83,3 +83,9 @@ Sing her full effect the last
 Have you never happened
 : You grant that they'd take the book thought at dinn she leant against a
 
+
+## Wikilinks load test
+
+[[nonretractable waders]]
+[[pink-purple landing net]]
+[[coterminous moon]]

@@ -87,3 +87,10 @@ Therefore I'm angry about
 they'll do How doth the open
 : Can't remember ever see because some were silent and find quite giddy.
 
+
+## Wikilinks load test
+
+[[sopranino sea squab]]
+[[in their right minds genus heteranthera]]
+[[overindulgent diagnostic technique]]
+[[stimulating apple nut]]

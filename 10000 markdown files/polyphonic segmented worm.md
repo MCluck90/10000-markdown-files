@@ -80,3 +80,11 @@ Soles and join the use
 Twinkle twinkle Here.
 : Begin at Alice besides all it's getting extremely Just about you must have made
 
+
+## Wikilinks load test
+
+[[seriocomical psychotic person]]
+[[tabu good-naturedness]]
+[[unsparing vena lienalis]]
+[[configured sauce chausseur]]
+[[calculable leningrad]]

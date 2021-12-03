@@ -76,3 +76,8 @@ Sounds of that soup.
 cried the shriek and
 : Idiot.
 
+
+## Wikilinks load test
+
+[[undercoated teres muscle]]
+[[anterograde apple geranium]]

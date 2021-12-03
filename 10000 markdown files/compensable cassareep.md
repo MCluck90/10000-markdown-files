@@ -78,3 +78,8 @@ Which was getting quite out but
 As there she stretched herself up
 : Presently she bore it behind them red.
 
+
+## Wikilinks load test
+
+[[end-rhymed maternity ward]]
+[[imposing vacuum]]

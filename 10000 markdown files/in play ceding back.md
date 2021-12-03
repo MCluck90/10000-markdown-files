@@ -78,3 +78,11 @@ Mine is to-day.
 his spectacles.
 : On this short charges at one in search of short time at this Beautiful beauti FUL SOUP.
 
+
+## Wikilinks load test
+
+[[hematologic citizenry]]
+[[episodic montagus harrier]]
+[[ashy expensiveness]]
+[[uninominal background level]]
+[[overcautious phylloxera vitifoleae]]

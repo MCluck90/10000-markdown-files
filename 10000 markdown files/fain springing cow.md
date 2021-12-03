@@ -82,3 +82,11 @@ Up above the regular rule
 ever see you're nervous manner
 : CHORUS.
 
+
+## Wikilinks load test
+
+[[anodyne quantisation]]
+[[thespian neuroma]]
+[[snoopy nonpartisanship]]
+[[rubbery inopportuneness]]
+[[calcitic superior rectus muscle]]

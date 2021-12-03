@@ -76,3 +76,11 @@ a three-legged table all
 Wow.
 : thump.
 
+
+## Wikilinks load test
+
+[[lead-free som]]
+[[spendthrift statesman]]
+[[warm-blooded red birch]]
+[[unjustified plo]]
+[[po-faced origanum vulgare]]

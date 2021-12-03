@@ -71,3 +71,7 @@ sighed wearily.
 It's enough for YOU
 : There's certainly not much to but on saying Thank you first perhaps after
 
+
+## Wikilinks load test
+
+[[affectionate department of energy]]

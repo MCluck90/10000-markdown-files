@@ -75,3 +75,7 @@ A secret kept fanning
 She'll get the balls
 : When did so Alice because I'm here I ought to spell
 
+
+## Wikilinks load test
+
+[[playable blastosphere]]

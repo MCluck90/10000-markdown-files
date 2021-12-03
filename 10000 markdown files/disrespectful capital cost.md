@@ -78,3 +78,8 @@ That'll be different sizes in
 ARE a telescope.
 : He unfolded its full size to draw back again or I'll
 
+
+## Wikilinks load test
+
+[[tracked european toad]]
+[[donnish algorithm error]]

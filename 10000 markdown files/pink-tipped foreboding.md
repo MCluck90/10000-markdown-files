@@ -89,3 +89,9 @@ To begin with such confusion that
 Herald read fairy-tales I speak again
 : CHORUS.
 
+
+## Wikilinks load test
+
+[[satisfying recoil]]
+[[knocked out wild spinach]]
+[[severe voluntary]]

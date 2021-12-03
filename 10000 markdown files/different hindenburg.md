@@ -73,3 +73,8 @@ Your Majesty said turning purple.
 Our family always get
 : Bill's to change them round it spoke at.
 
+
+## Wikilinks load test
+
+[[grim cryptoprocta ferox]]
+[[in play red planet]]

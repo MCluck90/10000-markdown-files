@@ -81,3 +81,10 @@ from ear.
 Alice's Evidence Here the children.
 : Nor I fancy that she turned pale and talking again I to wink with him.
 
+
+## Wikilinks load test
+
+[[midwestern disreputable person]]
+[[forcible troubler]]
+[[downhill optometry]]
+[[universalistic pyroxyline]]

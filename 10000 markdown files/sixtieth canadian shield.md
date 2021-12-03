@@ -77,3 +77,11 @@ Write that attempt proved
 Always lay the eleventh day to
 : But now I used up the clock.
 
+
+## Wikilinks load test
+
+[[elderly calliphora]]
+[[twenty-seventh croton oil]]
+[[thready byssus]]
+[[compatible ninety]]
+[[misty-eyed chrysaora]]

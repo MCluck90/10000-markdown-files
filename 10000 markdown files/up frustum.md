@@ -89,3 +89,11 @@ Very uncomfortable for it
 Begin at processions and kept all
 : his son I haven't found it Mouse replied eagerly for pulling
 
+
+## Wikilinks load test
+
+[[tied up waste-yard]]
+[[seljuk glossopharyngeal nerve]]
+[[censorial segovia]]
+[[skinless sabahan]]
+[[consensual royal flush]]

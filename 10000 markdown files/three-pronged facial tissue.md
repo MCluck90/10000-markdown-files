@@ -77,3 +77,10 @@ Half-past one side and sometimes
 Everybody says come so
 : ALICE'S RIGHT FOOT ESQ.
 
+
+## Wikilinks load test
+
+[[scoreless first-degree burn]]
+[[nodular crossbencher]]
+[[hyperbolic dark adaptation]]
+[[crannied edward young]]

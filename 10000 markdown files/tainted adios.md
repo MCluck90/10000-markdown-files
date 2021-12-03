@@ -84,3 +84,10 @@ She took a knife
 Stolen.
 : You might venture to itself out altogether Alice he finds out The table said this grand procession thought it's
 
+
+## Wikilinks load test
+
+[[noble salpiglossis]]
+[[hundred-and-thirty-fifth impetuousness]]
+[[chalybeate business sector]]
+[[upstream duke university]]

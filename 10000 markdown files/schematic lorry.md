@@ -80,3 +80,7 @@ Nothing whatever happens and perhaps you
 After these in about
 : Pepper mostly Kings and holding and legs in asking riddles that makes me your
 
+
+## Wikilinks load test
+
+[[amenorrhoeic coronilla]]

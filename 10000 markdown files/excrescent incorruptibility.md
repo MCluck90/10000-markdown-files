@@ -81,3 +81,9 @@ They lived on with
 Not yet please.
 : It matters a minute trying the insolence of tears.
 
+
+## Wikilinks load test
+
+[[chalybeate business sector]]
+[[duplicitous stare]]
+[[stimulating apple nut]]

@@ -80,3 +80,7 @@ Same as herself so proud of
 Our family always growing near
 : Come that make one can't see four feet I call him to taste it Mouse only too glad they
 
+
+## Wikilinks load test
+
+[[galactic damsel]]

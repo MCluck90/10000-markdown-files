@@ -87,3 +87,10 @@ Stop this could think
 Change lobsters.
 : Silence.
 
+
+## Wikilinks load test
+
+[[encroaching erasable programmable read-only memory]]
+[[decorous speck]]
+[[achenial bridal]]
+[[sitting mama]]

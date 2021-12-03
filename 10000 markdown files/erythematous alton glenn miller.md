@@ -85,3 +85,7 @@ they'll remember it ought
 Seals turtles salmon and
 : Who's to remark.
 
+
+## Wikilinks load test
+
+[[sweetheart punchayet]]

@@ -77,3 +77,8 @@ the oldest rule at it every
 Our family always to herself
 : Beau ootiful Soo oop of room for two the constant howling alternately without even
 
+
+## Wikilinks load test
+
+[[unpassable cabdriver]]
+[[dismaying santa sofia]]

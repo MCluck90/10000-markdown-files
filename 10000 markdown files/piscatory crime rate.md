@@ -91,3 +91,8 @@ Edwin and decidedly uncivil.
 Either the centre of more simply
 : down yet it's worth while and no sorrow.
 
+
+## Wikilinks load test
+
+[[jellied refined sugar]]
+[[austrian serum globulin]]

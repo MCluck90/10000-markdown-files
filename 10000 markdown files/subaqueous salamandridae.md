@@ -92,3 +92,8 @@ Therefore I'm Mabel for YOU.
 HEARTHRUG NEAR THE VOICE OF
 : Ugh.
 
+
+## Wikilinks load test
+
+[[arboriform yunnan province]]
+[[forgettable chardonnay]]

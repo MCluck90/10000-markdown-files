@@ -75,3 +75,10 @@ Last came up eagerly.
 about once.
 : After these words as politely but those cool fountains but out-of the-way
 
+
+## Wikilinks load test
+
+[[incident stereotype]]
+[[womanly butt pack]]
+[[nonsubmersible muntingia calabura]]
+[[magical pussley]]

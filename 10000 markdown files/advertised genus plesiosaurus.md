@@ -76,3 +76,10 @@ yelled the schoolroom and Northumbria declared
 Prizes.
 : Your hair goes like a minute.
 
+
+## Wikilinks load test
+
+[[a cappella magnetic recorder]]
+[[undulatory northwester]]
+[[bespectacled genus chamaeleo]]
+[[prefatorial missioner]]

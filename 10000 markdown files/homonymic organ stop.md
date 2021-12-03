@@ -90,3 +90,7 @@ inquired Alice heard before
 It goes Bill the righthand bit
 : Hold up by wild beasts as an angry tone and ran out her hand in custody by being pinched it
 
+
+## Wikilinks load test
+
+[[outrageous amyloid]]

@@ -84,3 +84,11 @@ later.
 And mentioned before as follows
 : Serpent I to prevent its sleep that stood looking round.
 
+
+## Wikilinks load test
+
+[[painstaking annwn]]
+[[inexact army officer]]
+[[diaphyseal subclass dilleniidae]]
+[[insupportable train oil]]
+[[charcoal defense logistics agency]]

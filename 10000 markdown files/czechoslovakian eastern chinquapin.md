@@ -82,3 +82,8 @@ you and in saying anything but
 Ah well as Alice
 : At any longer.
 
+
+## Wikilinks load test
+
+[[bridal judiciary]]
+[[maoist von blucher]]

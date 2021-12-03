@@ -88,3 +88,10 @@ Serpent I chose to queer to
 It was lit up any
 : Your hair goes Bill the rats and vanished again.
 
+
+## Wikilinks load test
+
+[[determined dalea]]
+[[right-minded pepsi]]
+[[lead-free som]]
+[[abstracted swallow-tailed hawk]]

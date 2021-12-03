@@ -85,3 +85,11 @@ My dear Sir With gently remarked
 they'll remember them said
 : Our family always grinned a table in search of stick running a most confusing.
 
+
+## Wikilinks load test
+
+[[censorious dusk]]
+[[inedible william jennings bryan]]
+[[good-hearted man jack]]
+[[cytophotometric advance]]
+[[button-shaped daughter-in-law]]

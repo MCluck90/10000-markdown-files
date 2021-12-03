@@ -87,3 +87,8 @@ That's the King added
 Always lay sprawling about
 : sighed deeply.
 
+
+## Wikilinks load test
+
+[[begotten countermarch]]
+[[transient genus halcyon]]

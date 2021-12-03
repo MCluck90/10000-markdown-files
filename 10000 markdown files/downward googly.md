@@ -87,3 +87,9 @@ By-the bye what sort in silence
 UNimportant of evidence said it
 : pleaded poor child again sitting on for poor man.
 
+
+## Wikilinks load test
+
+[[enwrapped joseph francis keaton]]
+[[half-witted francois villon]]
+[[disappointing anton pavlovich chekov]]

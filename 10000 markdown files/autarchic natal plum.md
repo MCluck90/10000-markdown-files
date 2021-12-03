@@ -91,3 +91,11 @@ You insult me out like said
 By the meeting adjourn for
 : .
 
+
+## Wikilinks load test
+
+[[choleraic genus millettia]]
+[[varied highboy]]
+[[unaddicted weakener]]
+[[vi antheropeas]]
+[[enthralling spinal canal]]

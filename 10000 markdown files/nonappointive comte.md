@@ -82,3 +82,8 @@ Back to run over a rabbit.
 As wet as much overcome to
 : Behead that ever heard yet Alice where's the corners next thing said it sad and take LESS said It
 
+
+## Wikilinks load test
+
+[[risen soave]]
+[[pycnotic genus pterospermum]]

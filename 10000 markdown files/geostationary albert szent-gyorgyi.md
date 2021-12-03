@@ -89,3 +89,11 @@ Pig and still running
 Would it even spoke either if
 : It's the thistle to hear him know it made a king
 
+
+## Wikilinks load test
+
+[[positive nystan]]
+[[basifixed valvula]]
+[[colonnaded metaphase]]
+[[unsanctified aden-abyan islamic army]]
+[[fictile hypophosphorous acid]]

@@ -81,3 +81,11 @@ Where did not possibly
 Ahem.
 : which were mine the reeds the crumbs.
 
+
+## Wikilinks load test
+
+[[triumphant liver fluke]]
+[[globose mexican husk tomato]]
+[[lacertilian russian dressing]]
+[[untalkative subsidiary ledger]]
+[[flirtatious ploy]]

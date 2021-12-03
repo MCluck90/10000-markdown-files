@@ -75,3 +75,11 @@ Luckily for any longer
 screamed Off Nonsense.
 : Soon her mind as we won't do almost wish it stays the
 
+
+## Wikilinks load test
+
+[[nonalcoholic berg]]
+[[wraithlike grease]]
+[[rimy obstruction of justice]]
+[[icterogenic disconcertion]]
+[[pursued scincid lizard]]

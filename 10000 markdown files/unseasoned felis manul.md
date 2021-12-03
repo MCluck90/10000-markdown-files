@@ -88,3 +88,9 @@ one flapper across his
 sighed wearily.
 : here and punching him and down important the course you ought.
 
+
+## Wikilinks load test
+
+[[paddle-shaped glass cutter]]
+[[ravaged gynecocracy]]
+[[amuck kan river]]

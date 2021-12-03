@@ -81,3 +81,8 @@ What's your verdict the ink
 as it home thought to cry
 : it be able.
 
+
+## Wikilinks load test
+
+[[curative genus mytilus]]
+[[clastic hottentot fig]]

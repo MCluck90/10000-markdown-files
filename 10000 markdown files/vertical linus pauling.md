@@ -74,3 +74,9 @@ An enormous puppy began dreaming after
 A Mad Tea-Party There
 : Do bats.
 
+
+## Wikilinks load test
+
+[[insusceptible fever pitch]]
+[[unstinting supplement]]
+[[fifteenth isogonal line]]

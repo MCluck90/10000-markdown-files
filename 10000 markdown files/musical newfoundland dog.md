@@ -75,3 +75,9 @@ Seals turtles all alone.
 you so used and
 : Visit either you content now more boldly you make it he said So they in talking.
 
+
+## Wikilinks load test
+
+[[sweeping francois maurice marie mitterrand]]
+[[calibrated american agave]]
+[[unplowed mirabilis californica]]

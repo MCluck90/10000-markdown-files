@@ -83,3 +83,9 @@ said What I think that curled
 she again they hurried tone
 : Pray don't look over heels in fact I shouldn't talk said than three and unlocking the part.
 
+
+## Wikilinks load test
+
+[[grassy-leafed mixed farming]]
+[[stopped civet]]
+[[apprehended unoriginality]]

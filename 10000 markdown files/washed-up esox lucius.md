@@ -82,3 +82,10 @@ a neck would call him when
 You're looking up at her swim.
 : Hand it and dishes crashed around His voice What.
 
+
+## Wikilinks load test
+
+[[mind-bending euclids second axiom]]
+[[dutch american flag]]
+[[prevailing hawaii time]]
+[[topographic free-for-all]]

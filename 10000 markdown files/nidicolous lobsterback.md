@@ -86,3 +86,7 @@ I've nothing but said
 Either the mushroom for its children.
 : cried.
 
+
+## Wikilinks load test
+
+[[graphic scet]]

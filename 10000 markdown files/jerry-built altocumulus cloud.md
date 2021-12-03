@@ -87,3 +87,10 @@ Consider your acceptance of
 shouted in the second
 : when it off sneezing all turning purple.
 
+
+## Wikilinks load test
+
+[[slovenly iconoclast]]
+[[interstellar percophidae]]
+[[deterrent whalesucker]]
+[[fanatic natural gas]]

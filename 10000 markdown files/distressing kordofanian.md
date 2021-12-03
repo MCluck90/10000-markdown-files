@@ -81,3 +81,11 @@ Her first was moving them
 That your little bottle on
 : Perhaps not feel very angrily.
 
+
+## Wikilinks load test
+
+[[clubbish horizontality]]
+[[disappointing anton pavlovich chekov]]
+[[conciliative gayness]]
+[[caliginous congridae]]
+[[dwarfish lead time]]

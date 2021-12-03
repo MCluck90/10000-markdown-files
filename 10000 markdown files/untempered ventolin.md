@@ -80,3 +80,11 @@ Run home thought and
 Sing her reach at dinn
 : wow.
 
+
+## Wikilinks load test
+
+[[endometrial right ventricle]]
+[[blasting towing rope]]
+[[vituperative genus pinicola]]
+[[poky perutz]]
+[[chylifactive archangel]]

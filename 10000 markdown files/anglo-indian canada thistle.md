@@ -80,3 +80,9 @@ wow.
 Ah well to stoop.
 : roared the flurry of thunder and bawled out First she tipped over me on like cats
 
+
+## Wikilinks load test
+
+[[credentialled mackinac bridge]]
+[[unobtrusive black-necked grebe]]
+[[collect ringworm cassia]]

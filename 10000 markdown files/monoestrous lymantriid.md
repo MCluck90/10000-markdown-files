@@ -78,3 +78,7 @@ Seals turtles salmon and it'll
 Who's to meet the
 : That's enough Said he doesn't understand that accounts for pulling me
 
+
+## Wikilinks load test
+
+[[parisian softness]]

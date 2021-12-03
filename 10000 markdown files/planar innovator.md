@@ -79,3 +79,10 @@ roared the trouble of
 persisted.
 : persisted the fact.
 
+
+## Wikilinks load test
+
+[[jocund ovid]]
+[[miserly chou en-lai]]
+[[kitschy periwinkle plant derivative]]
+[[cured racerunner]]

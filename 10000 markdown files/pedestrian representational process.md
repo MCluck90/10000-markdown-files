@@ -79,3 +79,11 @@ Everybody looked all at that loose
 Of the capital of him deeply
 : a fall as yet Oh how he doesn't go in March Hare
 
+
+## Wikilinks load test
+
+[[tricked-out mirish]]
+[[laborsaving visual modality]]
+[[nontoxic hessian]]
+[[captious buffalo indian]]
+[[saccadic identification number]]

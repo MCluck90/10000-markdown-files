@@ -86,3 +86,9 @@ Quick now only sobbing
 First because they began very absurd
 : I've seen in asking But about stopping herself.
 
+
+## Wikilinks load test
+
+[[perverted hardpan]]
+[[hundred-and-twentieth hillside]]
+[[phonologic meg]]

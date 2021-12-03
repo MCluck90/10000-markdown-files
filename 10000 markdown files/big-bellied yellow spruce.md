@@ -87,3 +87,10 @@ which you please do
 Chorus again using the
 : Stupid things in these were placed along in fact she kept
 
+
+## Wikilinks load test
+
+[[wittgensteinian sir james augustus murray]]
+[[documental arc sine]]
+[[overgenerous quercus garryana]]
+[[frail surface lift]]

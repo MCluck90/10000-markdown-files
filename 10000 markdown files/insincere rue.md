@@ -79,3 +79,8 @@ Suppress him sighing as we
 Idiot.
 : Idiot.
 
+
+## Wikilinks load test
+
+[[lancastrian revilement]]
+[[ultra king devil]]

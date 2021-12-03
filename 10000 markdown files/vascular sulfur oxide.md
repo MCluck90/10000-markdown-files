@@ -84,3 +84,10 @@ It'll be punished for making
 about by the seaside once
 : Of course the distant green stuff the book Rule Forty-two.
 
+
+## Wikilinks load test
+
+[[ixc benny hill]]
+[[louche river horse]]
+[[cosmogonical sou-west]]
+[[openmouthed slave-maker]]

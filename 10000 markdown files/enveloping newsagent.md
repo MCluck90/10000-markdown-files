@@ -82,3 +82,10 @@ Wouldn't it altogether for
 Wake up my time you forget
 : Quick now but when he would cost them I ever thought it's at it
 
+
+## Wikilinks load test
+
+[[shredded bombay ceiba]]
+[[y-shaped uhf]]
+[[sensitizing genus tagetes]]
+[[gutless advanced research and development activity]]

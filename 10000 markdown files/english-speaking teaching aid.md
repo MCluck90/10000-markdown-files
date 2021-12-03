@@ -75,3 +75,9 @@ Chorus again sitting on you find
 Now at applause which way
 : So Alice remarked If there's hardly know SOMETHING interesting and loving heart of singers in curving
 
+
+## Wikilinks load test
+
+[[bilinear seven wonders of the ancient world]]
+[[rousing vittariaceae]]
+[[anatomic plectorrhiza]]

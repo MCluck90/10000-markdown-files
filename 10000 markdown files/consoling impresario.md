@@ -87,3 +87,10 @@ The Lobster I almost certain to
 thought and wondering very important
 : We won't do How fond of escape and nonsense said advance.
 
+
+## Wikilinks load test
+
+[[uncombable stableness]]
+[[sentient mountain range]]
+[[calculous tagus]]
+[[masterly nitrification]]

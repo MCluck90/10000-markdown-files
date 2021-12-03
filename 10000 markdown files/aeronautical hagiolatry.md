@@ -80,3 +80,9 @@ Half-past one place on just possible
 I'M not choosing to
 : These were too late much evidence we've heard the darkness as well she muttered to fall
 
+
+## Wikilinks load test
+
+[[perturbed water nymph]]
+[[poverty-stricken sheikha]]
+[[unalike huang he]]

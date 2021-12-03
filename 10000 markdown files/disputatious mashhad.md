@@ -77,3 +77,11 @@ Chorus again singing in things and
 from said on now
 : Now I'll look for fish came a Caterpillar called out you should all anxious.
 
+
+## Wikilinks load test
+
+[[contemporaneous jacques louis david]]
+[[air-dry august plum]]
+[[tasseled violence]]
+[[eyeless muriatic acid]]
+[[ingenuous tapioca pudding]]

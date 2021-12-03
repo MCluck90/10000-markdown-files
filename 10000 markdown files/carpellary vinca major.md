@@ -76,3 +76,11 @@ Or would break.
 CHORUS.
 : Wow.
 
+
+## Wikilinks load test
+
+[[resettled bouillon]]
+[[seaborne physostegia virginiana]]
+[[intimal cather]]
+[[liberated new world]]
+[[moroccan club moss]]

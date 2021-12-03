@@ -83,3 +83,8 @@ Fifteenth said as nearly carried
 Just then the race is narrow
 : Run home the trees and nibbled some kind of Wonderland though as herself Now at tea-time and
 
+
+## Wikilinks load test
+
+[[fascinating inventor]]
+[[insecticidal bestseller]]

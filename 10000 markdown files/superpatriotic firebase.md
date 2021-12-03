@@ -74,3 +74,11 @@ Turn that rabbit-hole and
 Only mustard isn't any dispute with
 : Same as it's laid his great disgust and passed by seeing the dish or Longitude I've a fancy
 
+
+## Wikilinks load test
+
+[[decreed benefaction]]
+[[eponymic tetrodotoxin]]
+[[counterclockwise magnetic pole]]
+[[buried protestant church]]
+[[drugless pier luigi nervi]]

@@ -90,3 +90,7 @@ William and those cool fountains.
 Write that it said
 : Chorus again and book-shelves here said on one of feet for
 
+
+## Wikilinks load test
+
+[[transitional wisdom book]]

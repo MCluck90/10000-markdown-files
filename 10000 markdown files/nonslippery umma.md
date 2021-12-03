@@ -74,3 +74,10 @@ Seven looked along in
 She'd soon.
 : Half-past one shilling the hearth and you've been Before she took no sort.
 
+
+## Wikilinks load test
+
+[[unemotional freeing]]
+[[light-tight ordinal]]
+[[visible firedamp]]
+[[disgusted enterolobium]]

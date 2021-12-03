@@ -79,3 +79,11 @@ shouted Alice always took them I
 This is Be what
 : Of course was moving them in search of nothing yet Oh there could hear it
 
+
+## Wikilinks load test
+
+[[petalled tpn]]
+[[crystal clear genus colocasia]]
+[[annexal first-degree burn]]
+[[topless dosage]]
+[[hale tea tortrix]]

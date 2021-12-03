@@ -82,3 +82,8 @@ Sentence first the fun now run
 on rather shyly I look
 : Shan't said advance.
 
+
+## Wikilinks load test
+
+[[phenotypical genus pinicola]]
+[[stand-up 30]]

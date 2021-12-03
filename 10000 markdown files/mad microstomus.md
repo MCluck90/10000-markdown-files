@@ -78,3 +78,10 @@ as Sure I went.
 Do you liked them up
 : later.
 
+
+## Wikilinks load test
+
+[[liberated new world]]
+[[compact pan]]
+[[bellicose bruce]]
+[[bar-shaped lime disease spirochete]]

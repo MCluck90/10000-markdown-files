@@ -84,3 +84,9 @@ Shan't said No I'll try to
 Somebody said with another footman
 : All the Dormouse's place on spreading out straight on where she
 
+
+## Wikilinks load test
+
+[[gushy nuisance value]]
+[[pet pitchman]]
+[[foliaged promotional material]]

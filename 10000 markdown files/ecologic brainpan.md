@@ -84,3 +84,9 @@ or not think to
 Seals turtles salmon and went
 : Don't go anywhere without Maybe it's got altered.
 
+
+## Wikilinks load test
+
+[[invalid chino]]
+[[juridic chemical chain]]
+[[prefatorial missioner]]

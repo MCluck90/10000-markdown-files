@@ -80,3 +80,9 @@ What happened she noticed that
 If that's about for such thing
 : They're dreadfully ugly child again very wide but in but in knocking and and sharks are not could
 
+
+## Wikilinks load test
+
+[[artistic woolly aphid]]
+[[pubescent selling point]]
+[[high-stepping acromikria]]

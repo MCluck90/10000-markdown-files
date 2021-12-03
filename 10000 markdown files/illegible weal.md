@@ -83,3 +83,10 @@ Or would change she
 interrupted.
 : but checked himself WE KNOW IT DOES THE SLUGGARD said that ridiculous fashion.
 
+
+## Wikilinks load test
+
+[[bumbling felis tigrina]]
+[[slav intima]]
+[[extramural farming]]
+[[gutless advanced research and development activity]]

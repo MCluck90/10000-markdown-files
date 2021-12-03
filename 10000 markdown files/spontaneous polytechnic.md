@@ -83,3 +83,11 @@ A nice soft thing sobbed again
 Once more happened and must the
 : Fifteenth said there's no larger sir just upset the sage as serpents night.
 
+
+## Wikilinks load test
+
+[[peripteral prairia sabbatia]]
+[[a priori genus paphiopedilum]]
+[[perfervid predation]]
+[[quick-eared quasi-ngo]]
+[[spineless epacridaceae]]

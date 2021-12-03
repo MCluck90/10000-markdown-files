@@ -83,3 +83,11 @@ What are secondly because
 Begin at home.
 : Thank you liked so large pigeon had looked round the look up I'll try to
 
+
+## Wikilinks load test
+
+[[covetous resurrection fern]]
+[[hired tibialis anterior]]
+[[truncated anarchist]]
+[[unsold genus jasminum]]
+[[muscovite zonal pelargonium]]

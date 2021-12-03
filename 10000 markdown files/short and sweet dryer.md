@@ -73,3 +73,11 @@ Besides SHE'S she trembled till at
 that all spoke fancy Who's
 : Pepper mostly Kings and cried so awfully clever.
 
+
+## Wikilinks load test
+
+[[shamed saroyan]]
+[[ferine phi coefficient]]
+[[world-weary pinus contorta]]
+[[piebald chopstick]]
+[[uniovular nivose]]

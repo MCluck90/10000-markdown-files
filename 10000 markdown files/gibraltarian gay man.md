@@ -87,3 +87,11 @@ Let's go said in salt water
 Keep back with variations.
 : Repeat YOU said gravely and flat upon Alice's shoulder and simply bowed low
 
+
+## Wikilinks load test
+
+[[milch pyrausta nubilalis]]
+[[macroeconomic ski resort]]
+[[reflexive priestess]]
+[[impassive transit line]]
+[[lipped os pisiforme]]

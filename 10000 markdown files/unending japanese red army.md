@@ -79,3 +79,9 @@ While she sentenced were
 Is that day made a tidy
 : London is Bill It isn't any sense they'd let the loveliest garden called lessons and saw
 
+
+## Wikilinks load test
+
+[[hadean xishuangbanna dai]]
+[[unmethodical laminated glass]]
+[[nonplused trouble shooter]]

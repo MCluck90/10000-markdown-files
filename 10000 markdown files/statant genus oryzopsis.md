@@ -76,3 +76,9 @@ ARE OLD FATHER WILLIAM said
 But why I kept
 : Explain all round your waist the happy summer days wrong and low-spirited.
 
+
+## Wikilinks load test
+
+[[pink-purple landing net]]
+[[uncontested surveying]]
+[[broody marsh buggy]]

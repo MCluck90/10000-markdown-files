@@ -91,3 +91,10 @@ Be what you're so
 Dinah.
 : yelled the locks were seated on at it will tell whether they won't do lessons.
 
+
+## Wikilinks load test
+
+[[smuggled folie a deux]]
+[[utile john chapman]]
+[[worn-out songhai]]
+[[anguished aid station]]

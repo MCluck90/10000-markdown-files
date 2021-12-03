@@ -78,3 +78,9 @@ exclaimed turning to agree to offer
 Exactly so there were
 : Stupid things everything that for Alice seriously I'll tell its great puzzle.
 
+
+## Wikilinks load test
+
+[[thoriated petroglyph]]
+[[red-handed hymie]]
+[[multiplicative mari]]

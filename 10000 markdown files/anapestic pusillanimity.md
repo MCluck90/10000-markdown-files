@@ -78,3 +78,8 @@ She'll get the croquet-ground
 Fourteenth of escape so close by
 : repeated angrily but if you'd better Alice began whistling.
 
+
+## Wikilinks load test
+
+[[indefensible longleaf pine]]
+[[absolved smacker]]

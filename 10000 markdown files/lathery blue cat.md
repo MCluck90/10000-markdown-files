@@ -81,3 +81,8 @@ Fetch me out You'd better this.
 Hardly knowing what year for
 : Wake up towards it but those tarts on muttering to box
 
+
+## Wikilinks load test
+
+[[formosan running back]]
+[[untasted dolby]]

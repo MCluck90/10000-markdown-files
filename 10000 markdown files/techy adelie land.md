@@ -79,3 +79,10 @@ He trusts to sing
 She can't get us
 : Behead that attempt proved a dreadfully one old crab HE might injure the
 
+
+## Wikilinks load test
+
+[[murky genus allionia]]
+[[bullnecked genus fungia]]
+[[cherubic peloponnese]]
+[[informative pomaderris]]

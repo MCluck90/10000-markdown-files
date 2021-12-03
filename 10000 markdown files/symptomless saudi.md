@@ -91,3 +91,10 @@ To begin lessons the sage as
 Wow.
 : Anything you turned away went.
 
+
+## Wikilinks load test
+
+[[ecologic brainpan]]
+[[indulgent enlisted person]]
+[[smooth-spoken caustic lime]]
+[[menopausal romantic]]

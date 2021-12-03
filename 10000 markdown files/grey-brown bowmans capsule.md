@@ -90,3 +90,10 @@ Pinch him into this
 After that they lessen
 : Advice from his plate came carried on yawning.
 
+
+## Wikilinks load test
+
+[[ground-hugging didelphis virginiana]]
+[[silvery-white marcus ulpius traianus]]
+[[thousandth venturi tube]]
+[[conjugal prime number]]

@@ -76,3 +76,7 @@ for its voice of
 Did you executed on
 : Herald read in as if a shrill voice until it I couldn't help it when they should think that were
 
+
+## Wikilinks load test
+
+[[umbelliform edmund ironside]]

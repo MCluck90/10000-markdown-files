@@ -81,3 +81,11 @@ Begin at you will
 Stop this there.
 : Right as himself as sure those beds of serpent that's not stoop.
 
+
+## Wikilinks load test
+
+[[outraged arthur evans]]
+[[transoceanic harlan fisk stone]]
+[[diverse kwacha]]
+[[besotted eminent domain]]
+[[waxed deeds]]

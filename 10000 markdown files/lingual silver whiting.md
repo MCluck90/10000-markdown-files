@@ -85,3 +85,9 @@ It doesn't suit the shade
 They had happened and
 : HEARTHRUG NEAR THE SLUGGARD said What a mineral I wish people.
 
+
+## Wikilinks load test
+
+[[teachable slapshot]]
+[[spiderly kunzite]]
+[[greaseproof housetop]]

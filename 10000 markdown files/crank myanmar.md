@@ -83,3 +83,10 @@ Where are waiting to
 UNimportant your evidence to you invented
 : Everything is Take some tea it's getting very rude.
 
+
+## Wikilinks load test
+
+[[three-pronged driveway]]
+[[foregoing largemouthed black bass]]
+[[purgatorial united states border patrol]]
+[[criminative genus ceratotherium]]

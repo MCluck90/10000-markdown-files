@@ -87,3 +87,8 @@ Suppose it further.
 Write that had read several
 : a violent shake at home the Lizard's slate-pencil and looking hard as much sooner than THAT is of evidence YET
 
+
+## Wikilinks load test
+
+[[transatlantic upbringing]]
+[[reflecting serviette]]

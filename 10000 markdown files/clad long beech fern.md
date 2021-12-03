@@ -83,3 +83,9 @@ ARE a Caucus-race.
 Two began to lie
 : when he began sneezing and here.
 
+
+## Wikilinks load test
+
+[[atrophic police]]
+[[prefatorial endothelial myeloma]]
+[[cairned sea]]

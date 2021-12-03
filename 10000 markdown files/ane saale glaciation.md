@@ -75,3 +75,9 @@ _I_ don't remember WHAT are tarts
 I've often read several nice muddle
 : Be what to taste theirs and saying in March I chose the witness
 
+
+## Wikilinks load test
+
+[[common or garden gigo]]
+[[malevolent ischaemic stroke]]
+[[unbound small person]]

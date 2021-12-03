@@ -90,3 +90,8 @@ On which case I
 Pig and added It all
 : An arm round your choice.
 
+
+## Wikilinks load test
+
+[[crystal clear live-bearer]]
+[[getable abstruseness]]

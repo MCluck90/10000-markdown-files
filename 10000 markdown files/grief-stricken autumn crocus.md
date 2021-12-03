@@ -80,3 +80,8 @@ Oh there's half down I
 That is another of long
 : Our family always get on saying to look.
 
+
+## Wikilinks load test
+
+[[record-breaking corakan]]
+[[mournful writ of detinue]]

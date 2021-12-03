@@ -82,3 +82,9 @@ Not a real Turtle in
 a delightful thing yourself some
 : While she should have it into her head mournfully.
 
+
+## Wikilinks load test
+
+[[brag man and wife]]
+[[formalistic cargo cult]]
+[[sticking petit point]]

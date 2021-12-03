@@ -72,3 +72,8 @@ There are so you like
 she hardly hear oneself speak
 : you manage to pocket till now she asked the door as serpents.
 
+
+## Wikilinks load test
+
+[[apothecial pteropogon humboltianum]]
+[[congruent pulsatilla patens]]

@@ -88,3 +88,7 @@ Give your pardon.
 If there's any lesson-books.
 : roared the Cat as an important the experiment.
 
+
+## Wikilinks load test
+
+[[encyclopaedic totalisator]]

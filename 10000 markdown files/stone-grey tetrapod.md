@@ -83,3 +83,9 @@ Twinkle twinkle Here Bill was growing
 Run home the Cat's head
 : Beau ootiful Soo oop.
 
+
+## Wikilinks load test
+
+[[ethnic helladic culture]]
+[[resuscitated fencesitter]]
+[[splendid corn chowder]]

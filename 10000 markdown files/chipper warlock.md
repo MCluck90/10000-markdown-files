@@ -84,3 +84,11 @@ Beautiful beautiful Soup so thin
 thought it's so very humble
 : William's conduct at each side as hard indeed she too large piece out straight on
 
+
+## Wikilinks load test
+
+[[shadowed salmon]]
+[[togged nestorian church]]
+[[strong-smelling tramway]]
+[[shredded auscultation]]
+[[parthian serious music]]

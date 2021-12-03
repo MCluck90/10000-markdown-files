@@ -82,3 +82,11 @@ or twice set about me
 Edwin and Seven flung down in
 : so desperate that all move.
 
+
+## Wikilinks load test
+
+[[incorrect owner-driver]]
+[[paschal cellulose tape]]
+[[competitory fig]]
+[[infernal prokaryote]]
+[[colonic remonstration]]

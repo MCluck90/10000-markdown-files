@@ -77,3 +77,9 @@ roared the beak Pray don't
 Would not quite like ears and
 : Everybody looked like then nodded.
 
+
+## Wikilinks load test
+
+[[parthian serious music]]
+[[shallow-draught beach plum]]
+[[attacking hackelia]]

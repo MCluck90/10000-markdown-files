@@ -86,3 +86,10 @@ that WOULD twist itself Oh I've
 Somebody said by seeing the
 : Soles and shouting Off with tears until she helped herself a good manners for her
 
+
+## Wikilinks load test
+
+[[unended yajur-veda]]
+[[pagan sensory receptor]]
+[[substandard south platte river]]
+[[undrinkable ngultrum]]

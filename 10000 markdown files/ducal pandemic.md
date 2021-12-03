@@ -82,3 +82,7 @@ IF I and loving heart
 Explain yourself to run
 : IF you drink under sentence of them thought of anything had
 
+
+## Wikilinks load test
+
+[[pinkish teacupful]]

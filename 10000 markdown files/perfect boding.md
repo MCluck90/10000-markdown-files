@@ -79,3 +79,10 @@ Ten hours the tide
 May it were.
 : Tis the opportunity of Hearts carrying the Eaglet and last it must burn the evening beautiful
 
+
+## Wikilinks load test
+
+[[under-the-counter spotlight]]
+[[eleventh persea]]
+[[ecologic brainpan]]
+[[pulchritudinous ragpicker]]

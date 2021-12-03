@@ -84,3 +84,8 @@ Be what am so ordered
 First however it rather
 : Ugh.
 
+
+## Wikilinks load test
+
+[[altruistic sphyrna]]
+[[awful relativity]]

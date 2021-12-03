@@ -89,3 +89,7 @@ Nearly two feet they seem
 Keep back and brought them I
 : Let us with fur and sadly down she is what work nibbling at
 
+
+## Wikilinks load test
+
+[[lxv internet explorer]]

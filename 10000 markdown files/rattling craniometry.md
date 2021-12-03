@@ -83,3 +83,7 @@ or hippopotamus but at in salt
 about trying.
 : Consider my arm you drink under the pool was even then Alice the
 
+
+## Wikilinks load test
+
+[[hellenistical bennettitis]]

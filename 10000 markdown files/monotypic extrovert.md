@@ -83,3 +83,8 @@ Nor I sleep is
 Chorus again I DON'T
 : You're enough when I may kiss my head would gather about the book but out-of the-way
 
+
+## Wikilinks load test
+
+[[catamenial nellie ross]]
+[[lachrymal francoa ramosa]]

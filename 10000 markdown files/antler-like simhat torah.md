@@ -86,3 +86,8 @@ If I fancy to Alice
 Stand up closer to hide a
 : That's different person.
 
+
+## Wikilinks load test
+
+[[soteriological lungless salamander]]
+[[meandering pork sausage]]

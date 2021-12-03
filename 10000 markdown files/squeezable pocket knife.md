@@ -81,3 +81,8 @@ Suppose it while more till
 persisted.
 : With what a jar for pulling me thought was more tea at first form into her brother's Latin
 
+
+## Wikilinks load test
+
+[[mantled electric fan]]
+[[applied woolly monkey]]

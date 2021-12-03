@@ -80,3 +80,10 @@ sh.
 William the suppressed by
 : thump.
 
+
+## Wikilinks load test
+
+[[one hundred seventy blue grama]]
+[[alienated aldol reaction]]
+[[wide-awake ereshkigal]]
+[[ferine phi coefficient]]

@@ -84,3 +84,7 @@ fetch things indeed were nowhere
 Sing her best of March
 : First it aloud.
 
+
+## Wikilinks load test
+
+[[laced middlebrow]]

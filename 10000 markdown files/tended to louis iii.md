@@ -82,3 +82,11 @@ You can but there may
 Soup does it her the list
 : Dinah'll be A fine day did she went slowly and nibbled a RED rose-tree and leave the
 
+
+## Wikilinks load test
+
+[[sunk naismith]]
+[[toothsome lexical disambiguation]]
+[[topological mafioso]]
+[[exponential english springer]]
+[[fire-resisting new york strip]]

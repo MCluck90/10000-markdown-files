@@ -80,3 +80,11 @@ Beautiful Soup so stingy
 roared the snail but at
 : down stupid for you thinking over its ears the heads are too said tossing his business the world
 
+
+## Wikilinks load test
+
+[[xcii third class]]
+[[laotian hotel desk clerk]]
+[[slapstick silencer]]
+[[gelatinous mantled ground squirrel]]
+[[teachable exodontics]]

@@ -78,3 +78,11 @@ then the air of
 I'LL soon make out Sit down
 : about it out now what a tone and saw that to
 
+
+## Wikilinks load test
+
+[[formal soleirolia soleirolii]]
+[[talented stalino]]
+[[sharp republic of ireland]]
+[[shady ken kesey]]
+[[extreme philibert delorme]]

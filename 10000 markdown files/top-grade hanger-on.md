@@ -81,3 +81,7 @@ Her listeners were looking
 persisted the fact I
 : thump.
 
+
+## Wikilinks load test
+
+[[haunting blt]]

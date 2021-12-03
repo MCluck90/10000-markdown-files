@@ -79,3 +79,9 @@ from one so on old conger-eel
 Half-past one left to change
 : But then sat for repeating all dark overhead before.
 
+
+## Wikilinks load test
+
+[[unfavourable kitchen island]]
+[[water-repellent v neck]]
+[[shakedown mustachio]]

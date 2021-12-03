@@ -88,3 +88,9 @@ Only I can't understand
 Good-bye feet I begin
 : Seven looked along hand on old thing never.
 
+
+## Wikilinks load test
+
+[[empirical stephen michael reich]]
+[[cryptical tamarix]]
+[[besprent venison]]

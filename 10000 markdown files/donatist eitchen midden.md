@@ -79,3 +79,7 @@ Seals turtles salmon and
 Pennyworth only as it
 : Pat.
 
+
+## Wikilinks load test
+
+[[larboard genus linaria]]

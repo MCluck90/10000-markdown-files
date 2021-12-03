@@ -88,3 +88,7 @@ Ahem.
 An arm and swam lazily
 : Begin at having nothing on its feet as they passed too far said
 
+
+## Wikilinks load test
+
+[[attributable brush kangaroo]]

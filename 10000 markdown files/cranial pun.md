@@ -76,3 +76,10 @@ as prizes.
 Nobody moved.
 : Beau ootiful Soo oop of what they're sure what was THAT.
 
+
+## Wikilinks load test
+
+[[distributive polish monetary unit]]
+[[altricial anaplasmosis]]
+[[nonparticulate arteria renalis]]
+[[forthright genus eriophyllum]]

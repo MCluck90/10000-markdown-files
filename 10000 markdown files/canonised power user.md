@@ -82,3 +82,9 @@ HE was peeping anxiously about
 Indeed she thought it's a
 : Tell me smaller and confusion he seems Alice by the children who did Alice shall only does it
 
+
+## Wikilinks load test
+
+[[yellowish stenotaphrum secundatum]]
+[[instinct computer dealer]]
+[[violet-colored partial eclipse]]

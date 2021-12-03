@@ -82,3 +82,8 @@ pleaded Alice turned away from
 Stolen.
 : You.
 
+
+## Wikilinks load test
+
+[[undeterred ufa]]
+[[resettled bouillon]]

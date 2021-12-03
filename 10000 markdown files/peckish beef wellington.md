@@ -78,3 +78,10 @@ Turn them with each
 Serpent I have told you that
 : IT DOES THE COURT.
 
+
+## Wikilinks load test
+
+[[pleomorphic kneepan]]
+[[two-footed lepidopterist]]
+[[calculous maui]]
+[[panhellenic broomstick]]

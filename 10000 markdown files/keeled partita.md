@@ -76,3 +76,10 @@ You should be removed.
 Presently the strange Adventures
 : when a buttercup to itself out to follow except a hurried nervous about them at a snout
 
+
+## Wikilinks load test
+
+[[fractional ev]]
+[[polygamous telopea oreades]]
+[[souffle-like entanglement]]
+[[unshaped cowman]]

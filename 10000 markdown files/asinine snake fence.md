@@ -79,3 +79,11 @@ When did not open
 Hardly knowing how this
 : Stand up again.
 
+
+## Wikilinks load test
+
+[[xc lisp program]]
+[[fuzzy crocodile river]]
+[[serial savings bank]]
+[[acid-loving fig marigold]]
+[[peroneal fetal movement]]

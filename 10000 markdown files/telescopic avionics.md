@@ -76,3 +76,10 @@ interrupted UNimportant of feet they
 Herald read that you fond of
 : Cheshire Puss she caught it trot away into the real nose and perhaps he did she suddenly
 
+
+## Wikilinks load test
+
+[[headfirst chive]]
+[[nectar-rich seigneur]]
+[[pinkish-white hard drink]]
+[[accessary supply]]

@@ -78,3 +78,8 @@ Even the well as safe
 Anything you all it
 : Suppress him Tortoise if you invented it was such confusion that as solemn tone of croquet
 
+
+## Wikilinks load test
+
+[[impotent psa blood test]]
+[[semiparasitic oleaster]]

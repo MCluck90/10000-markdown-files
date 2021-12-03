@@ -81,3 +81,9 @@ Your hair.
 they said severely Who cares
 : Serpent.
 
+
+## Wikilinks load test
+
+[[unsuccessful neo-lamarckism]]
+[[maroon generalization]]
+[[counter bicycle-built-for-two]]

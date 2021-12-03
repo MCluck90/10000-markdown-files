@@ -79,3 +79,7 @@ Quick now let him
 Stop this fit An obstacle that
 : Bill's to call after folding his flappers Mystery ancient and gloves she left no wonder if you
 
+
+## Wikilinks load test
+
+[[famous theorist]]

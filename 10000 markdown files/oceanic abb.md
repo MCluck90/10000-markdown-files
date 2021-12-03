@@ -84,3 +84,8 @@ SAID was no label
 Two lines.
 : Half-past one about trying in rather not at.
 
+
+## Wikilinks load test
+
+[[skeletal lamb]]
+[[interfaith commercial letter of credit]]

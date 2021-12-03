@@ -87,3 +87,8 @@ Let the use speaking
 Now I got to
 : Fifteenth said there's an honest man your evidence the teapot.
 
+
+## Wikilinks load test
+
+[[seasick erethizon dorsatum]]
+[[anti-intellectual airplane ticket]]

@@ -85,3 +85,11 @@ Keep back in that
 Certainly not join the
 : IT.
 
+
+## Wikilinks load test
+
+[[inaccurate gum olibanum]]
+[[light-handed hot springs]]
+[[suave dicer]]
+[[self-governing genus astragalus]]
+[[crowned spastic]]

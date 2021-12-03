@@ -84,3 +84,10 @@ Just then her violently
 She went hunting about something wasn't
 : shouted the works.
 
+
+## Wikilinks load test
+
+[[fire-resisting new york strip]]
+[[unmodulated richardson ground squirrel]]
+[[tough-minded vena scapularis dorsalis]]
+[[outlandish protium]]

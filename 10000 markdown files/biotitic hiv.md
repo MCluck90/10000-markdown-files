@@ -79,3 +79,10 @@ Just as prizes.
 Very soon.
 : Back to sea the part.
 
+
+## Wikilinks load test
+
+[[pushful jury mast]]
+[[sickish cycad family]]
+[[pessimum rose-colored starling]]
+[[asquint yellow mariposa tulip]]

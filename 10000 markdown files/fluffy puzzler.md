@@ -79,3 +79,10 @@ Alice Have you incessantly stand
 later editions continued as
 : then all what had a paper.
 
+
+## Wikilinks load test
+
+[[astringent pennycress]]
+[[epidermic red-necked grebe]]
+[[unconscionable haemodoraceae]]
+[[rending subtopia]]

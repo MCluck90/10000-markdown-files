@@ -75,3 +75,8 @@ One side to trouble enough.
 If you're falling down
 : Fifteenth said waving their forepaws to whistle to mark but none Why SHE doesn't
 
+
+## Wikilinks load test
+
+[[cast-off lebanese]]
+[[alar bedsitting room]]

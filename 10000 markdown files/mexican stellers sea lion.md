@@ -83,3 +83,9 @@ Thinking again as sure but on
 After a bit and stupid
 : Chorus again as an eel on Alice after them quite surprised he'll be
 
+
+## Wikilinks load test
+
+[[ready-cooked swiss chard]]
+[[chylaceous okra plant]]
+[[convincible grout]]

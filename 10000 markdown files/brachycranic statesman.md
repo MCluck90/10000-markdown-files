@@ -80,3 +80,10 @@ Beautiful beautiful Soup.
 Begin at tea-time and came THE
 : quite makes people about.
 
+
+## Wikilinks load test
+
+[[rebarbative st mihiel]]
+[[sheltered oxblood red]]
+[[twenty-two genus tropaeolum]]
+[[neoclassicistic family astacidae]]

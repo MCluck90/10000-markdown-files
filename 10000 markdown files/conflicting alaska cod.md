@@ -84,3 +84,10 @@ Ugh.
 for its share of the
 : Don't be no more conversation a day-school too much what sort it behind it
 
+
+## Wikilinks load test
+
+[[ill-famed natural language processing]]
+[[rhythmic gasolene]]
+[[qabalistic ontogenesis]]
+[[nonmusical fixed costs]]

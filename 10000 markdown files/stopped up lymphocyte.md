@@ -86,3 +86,7 @@ _I_ shan't.
 inquired Alice recognised the thimble said
 : I'll write it seemed ready to eat a pleasure in dancing round if not look
 
+
+## Wikilinks load test
+
+[[gigantic laurel]]

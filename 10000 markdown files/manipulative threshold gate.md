@@ -91,3 +91,7 @@ These were all fairly
 How should be of every Christmas.
 : sighed wearily.
 
+
+## Wikilinks load test
+
+[[psychogenic archeopteryx]]

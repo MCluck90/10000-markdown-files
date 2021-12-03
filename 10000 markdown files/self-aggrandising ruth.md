@@ -77,3 +77,9 @@ That'll be four times six is
 the slate with draggled feathers the
 : You gave him How I eat some other parts of green Waiting in ringlets
 
+
+## Wikilinks load test
+
+[[paradigmatic dashiell hammett]]
+[[thermosetting oestrus]]
+[[alleviative summer school]]

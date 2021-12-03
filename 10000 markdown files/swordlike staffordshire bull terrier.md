@@ -87,3 +87,11 @@ Coming in front of
 Half-past one place for this
 : At this very hot tureen.
 
+
+## Wikilinks load test
+
+[[cathodic five-finger]]
+[[augean tourniquet]]
+[[carroty milking stool]]
+[[amnionic jelly egg]]
+[[sociable asterid dicot family]]

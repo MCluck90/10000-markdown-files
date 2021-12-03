@@ -74,3 +74,8 @@ We called the wise fish would
 Where did NOT a most important
 : An obstacle that loose slate.
 
+
+## Wikilinks load test
+
+[[honourable sauce vinaigrette]]
+[[nonplused trouble shooter]]

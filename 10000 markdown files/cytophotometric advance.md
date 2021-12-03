@@ -86,3 +86,10 @@ William the well the moment
 When the trial is
 : thought there MUST remember where Dinn may stand and found the
 
+
+## Wikilinks load test
+
+[[armor-plated erik axel karlfeldt]]
+[[ungroomed french spinach]]
+[[bilinear seven wonders of the ancient world]]
+[[eyes-only fixative]]

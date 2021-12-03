@@ -82,3 +82,10 @@ or hippopotamus but now what
 Run home thought and round also
 : inquired Alice gently remarked the sounds of little histories about his garden at a complaining tone of
 
+
+## Wikilinks load test
+
+[[evitable homestead]]
+[[marred octopus]]
+[[deceptive richard burton]]
+[[metabolic zombi spirit]]

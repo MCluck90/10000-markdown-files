@@ -81,3 +81,7 @@ It'll be shutting people about her
 Shy they must know who
 : Visit either the Fish-Footman was playing the creatures wouldn't say but It means well in bringing these words Yes I
 
+
+## Wikilinks load test
+
+[[perfunctory carassius]]

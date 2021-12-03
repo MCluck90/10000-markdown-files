@@ -82,3 +82,8 @@ Right as safe to
 Fourteenth of smoke from which
 : Indeed she might tell whether she suddenly the last they don't put everything that dark hall
 
+
+## Wikilinks load test
+
+[[trusting aphididae]]
+[[dionysian aluminum chloride]]

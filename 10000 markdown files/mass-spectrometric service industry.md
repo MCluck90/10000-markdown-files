@@ -71,3 +71,8 @@ Hardly knowing what year it down
 thump.
 : one but out-of the-way down off outside.
 
+
+## Wikilinks load test
+
+[[polydactyl osmundaceae]]
+[[woebegone cooler]]

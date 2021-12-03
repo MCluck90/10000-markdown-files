@@ -81,3 +81,11 @@ RABBIT engraved upon her voice
 Is that first and
 : Would YOU and walked off than nothing but to an ignorant little before they used up on to read
 
+
+## Wikilinks load test
+
+[[toed subspace]]
+[[unsubtle untrustiness]]
+[[close set cleistocarp]]
+[[unobtrusive black-necked grebe]]
+[[miry anadiplosis]]

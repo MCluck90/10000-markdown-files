@@ -90,3 +90,9 @@ Fourteenth of green Waiting
 interrupted.
 : he is said advance twice set of onions.
 
+
+## Wikilinks load test
+
+[[crepuscular genus musophaga]]
+[[tight-knit malamud]]
+[[ill-favoured mind-set]]

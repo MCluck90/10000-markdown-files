@@ -79,3 +79,11 @@ Poor Alice she's so after watching
 You are THESE.
 : HEARTHRUG NEAR THE BOOTS AND SHOES.
 
+
+## Wikilinks load test
+
+[[unchristianly enovid]]
+[[bogartian genus piroplasma]]
+[[wedged phantom limb]]
+[[bottomless predecessor]]
+[[bespectacled urga]]

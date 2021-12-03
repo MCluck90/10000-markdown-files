@@ -85,3 +85,11 @@ Pat what's that nothing so
 Not a simple question
 : Wow.
 
+
+## Wikilinks load test
+
+[[lobeliaceous saguaro]]
+[[compounded ivan the terrible]]
+[[dextrorotary collapsible shelter]]
+[[momentary gironde]]
+[[well-meaning sentimentalism]]

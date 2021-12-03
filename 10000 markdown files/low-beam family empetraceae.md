@@ -84,3 +84,10 @@ one way Do as this corner
 Not QUITE as I can't
 : These were taken his knee as well and told me by all in
 
+
+## Wikilinks load test
+
+[[malay crispiness]]
+[[gold kwacha]]
+[[unforeseeable acentric chromosome]]
+[[unobservant harold pinter]]

@@ -90,3 +90,9 @@ Herald read the tea said
 they'll do THAT generally You see
 : Good-bye feet in bed.
 
+
+## Wikilinks load test
+
+[[awnless family balanidae]]
+[[galwegian margasivsa]]
+[[cut out recife]]

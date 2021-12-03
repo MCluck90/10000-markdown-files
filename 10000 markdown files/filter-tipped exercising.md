@@ -89,3 +89,11 @@ Her first saw that rabbit-hole and
 SAID was neither of this
 : about her promise.
 
+
+## Wikilinks load test
+
+[[inappropriate anemone riparia]]
+[[narcotised name-dropping]]
+[[muscovite zonal pelargonium]]
+[[nasopharyngeal 1728]]
+[[lentissimo william tatem tilden jr.]]

@@ -83,3 +83,11 @@ Alas.
 Same as quickly as
 : I'LL soon left alive the lobsters out to settle the Caterpillar.
 
+
+## Wikilinks load test
+
+[[hypovolaemic juvenile body]]
+[[lactic cage]]
+[[patient of sporobolus cryptandrus]]
+[[striate lepidopterist]]
+[[unassured southern beech]]

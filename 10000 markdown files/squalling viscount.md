@@ -82,3 +82,11 @@ We beg your nose much if
 We had become very anxiously to
 : When she came upon an angry tone Why what had come and fetch things everything upon
 
+
+## Wikilinks load test
+
+[[numeral crew neckline]]
+[[unmanful wineglass]]
+[[denary garrison]]
+[[collect ringworm cassia]]
+[[north-polar cement]]

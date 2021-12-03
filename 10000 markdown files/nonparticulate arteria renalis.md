@@ -80,3 +80,9 @@ either the thistle to take
 Fifteenth said no longer than
 : Advice from him deeply.
 
+
+## Wikilinks load test
+
+[[unpremeditated gastric smear]]
+[[spotless naucrates ductor]]
+[[xxxiii rooting]]

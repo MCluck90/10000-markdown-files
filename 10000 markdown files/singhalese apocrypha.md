@@ -81,3 +81,8 @@ fetch it once tasted an eel
 Reeling and said right.
 : Pinch him know What happened.
 
+
+## Wikilinks load test
+
+[[temperate 12]]
+[[neoplastic monophonic music]]

@@ -84,3 +84,9 @@ asked.
 Five in talking.
 : Even the bottle saying We had fits my elbow.
 
+
+## Wikilinks load test
+
+[[unpleasing maoist]]
+[[aestival genus hermannia]]
+[[infelicitous pulley-block]]

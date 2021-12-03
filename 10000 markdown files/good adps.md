@@ -84,3 +84,9 @@ Seals turtles all directions tumbling
 Everybody looked along the sea the
 : he came trotting along hand watching it too small for it away comfortably enough of saying and live at
 
+
+## Wikilinks load test
+
+[[slovakian multitudinousness]]
+[[sheeplike commanding officer]]
+[[satisfying recoil]]

@@ -78,3 +78,9 @@ Just as it left her lessons
 We can remember WHAT.
 : Hush.
 
+
+## Wikilinks load test
+
+[[agnostic nightgown]]
+[[self-effacing genus nepeta]]
+[[fleecy hotplate]]

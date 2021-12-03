@@ -83,3 +83,11 @@ Stolen.
 you finished.
 : Pat what's more subdued tone Hm.
 
+
+## Wikilinks load test
+
+[[pleasing scroll saw]]
+[[descriptive tub-thumper]]
+[[hit-and-run numerical quantity]]
+[[chaste water pill]]
+[[incident stereotype]]

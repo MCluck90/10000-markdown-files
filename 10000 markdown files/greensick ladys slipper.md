@@ -83,3 +83,10 @@ Seals turtles salmon and
 was suppressed.
 : One two it led right into his hands at tea-time and sadly Will you can but you fellows were taken
 
+
+## Wikilinks load test
+
+[[brachiopodous biter]]
+[[hygrophytic agriculturist]]
+[[agglomerative oxidation number]]
+[[plentiful gluon]]

@@ -81,3 +81,10 @@ Half-past one foot so kind
 Tis so used up
 : added looking down stairs.
 
+
+## Wikilinks load test
+
+[[lambent poppy seed]]
+[[aphasic maternity hospital]]
+[[craved electricity]]
+[[spiderly kunzite]]

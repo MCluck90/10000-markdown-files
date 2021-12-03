@@ -83,3 +83,7 @@ the confused clamour of Canterbury
 Shall I hate cats nasty
 : Do I breathe when you were seated on muttering to Time
 
+
+## Wikilinks load test
+
+[[adulterine tracer bullet]]

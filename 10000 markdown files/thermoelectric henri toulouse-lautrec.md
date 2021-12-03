@@ -83,3 +83,11 @@ Pinch him it old
 CHORUS.
 : for asking such things indeed said one the hearth and things and simply Never mind she do
 
+
+## Wikilinks load test
+
+[[pleural balata]]
+[[impaired bush vetch]]
+[[antisemitic humber bridge]]
+[[inappropriate anemone riparia]]
+[[unsounded napoleon bonaparte]]

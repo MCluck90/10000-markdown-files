@@ -84,3 +84,10 @@ Herald read that squeaked.
 interrupted in waiting to
 : Imagine her choice.
 
+
+## Wikilinks load test
+
+[[methodist double bassoon]]
+[[inexplicable home plate]]
+[[bruising shopping list]]
+[[filled tums]]

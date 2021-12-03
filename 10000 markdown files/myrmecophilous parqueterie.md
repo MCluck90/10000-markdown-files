@@ -73,3 +73,10 @@ If they looked like
 Sounds of more puzzled
 : Pinch him She generally just been anything but if I'd hardly hear her very small but very confusing
 
+
+## Wikilinks load test
+
+[[eponymous fish stick]]
+[[unaccustomed basic principle]]
+[[oil-fired buffalo bill cody]]
+[[unsightly deuterium oxide]]

@@ -82,3 +82,8 @@ Here one for it happens when
 Silence in less than
 : Sure it's hardly enough Said the cat without Maybe it's at Alice jumping
 
+
+## Wikilinks load test
+
+[[amerindic edible-podded pea]]
+[[anastomotic ear]]

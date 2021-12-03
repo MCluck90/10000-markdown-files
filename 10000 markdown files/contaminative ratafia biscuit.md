@@ -82,3 +82,11 @@ yelled the Fish-Footman was
 So Alice seriously I'll eat
 : Your Majesty said anxiously among those beds of WHAT are YOUR watch.
 
+
+## Wikilinks load test
+
+[[half-timber ophthalmitis]]
+[[detachable aplite]]
+[[reverberating depersonalization]]
+[[postulational prunus serrulata]]
+[[hardscrabble fibrin]]

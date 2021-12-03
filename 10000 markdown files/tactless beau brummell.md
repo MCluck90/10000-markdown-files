@@ -83,3 +83,10 @@ Nor I suppose.
 on others took her going out
 : Wow.
 
+
+## Wikilinks load test
+
+[[volumetrical temporal gyrus]]
+[[preponderating sinus coronarius]]
+[[embossed teetotum]]
+[[ambivalent ascomycetes]]

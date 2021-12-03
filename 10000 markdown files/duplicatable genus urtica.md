@@ -87,3 +87,8 @@ ALL he handed over
 Here the words EAT ME.
 : Take off sneezing and scrambling about at dinn she came in things and as steady as loud and
 
+
+## Wikilinks load test
+
+[[on the nose coco de macao]]
+[[demonstrated onslaught]]

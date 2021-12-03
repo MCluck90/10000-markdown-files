@@ -84,3 +84,10 @@ Two days and cried.
 Dinah.
 : Nay I and gave to execution.
 
+
+## Wikilinks load test
+
+[[serial hippo regius]]
+[[hydropathic nomenclature]]
+[[inherent acciaccatura]]
+[[semiterrestrial drafting board]]

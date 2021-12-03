@@ -80,3 +80,9 @@ exclaimed.
 Still she simply arranged the melancholy
 : Ugh.
 
+
+## Wikilinks load test
+
+[[nonpareil dulcinea]]
+[[curtal fore-topsail]]
+[[shelled cacao]]

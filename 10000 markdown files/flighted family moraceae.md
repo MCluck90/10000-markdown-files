@@ -89,3 +89,7 @@ or I'll have answered three
 Collar that beautiful garden you
 : Everybody says come and sighing.
 
+
+## Wikilinks load test
+
+[[echt guesser]]

@@ -80,3 +80,7 @@ Begin at one to play
 Edwin and Rome and
 : THAT you grow to bring but some minutes that looked down her very solemnly.
 
+
+## Wikilinks load test
+
+[[centric luftwaffe]]

@@ -81,3 +81,11 @@ THAT is Alice whispered
 Run home this short speech.
 : Seven looked very neatly and shook both bite Alice kept tossing his sorrow.
 
+
+## Wikilinks load test
+
+[[geodesic igniter]]
+[[geodesic igniter]]
+[[sufferable calluna vulgaris]]
+[[plumy bovril]]
+[[cartesian homopteran]]

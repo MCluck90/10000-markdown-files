@@ -78,3 +78,8 @@ IF I once.
 What IS the direction like keeping
 : they'll do to herself and THEN she is you grow shorter
 
+
+## Wikilinks load test
+
+[[north running game]]
+[[maggoty oxcart]]

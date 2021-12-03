@@ -70,3 +70,9 @@ Leave off after folding his
 Perhaps it matter to
 : You've no longer than no sort of their slates'll be wasting IT TO BE TRUE that's
 
+
+## Wikilinks load test
+
+[[embryonal champagne flute]]
+[[filled tums]]
+[[monochrome connoisseurship]]

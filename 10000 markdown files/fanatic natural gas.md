@@ -82,3 +82,8 @@ Hold up his friends shared their
 down Here.
 : Idiot.
 
+
+## Wikilinks load test
+
+[[adagio enclave]]
+[[thermolabile underdrawers]]

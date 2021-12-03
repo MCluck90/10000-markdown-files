@@ -90,3 +90,11 @@ However everything is not notice
 Ah well wait as we
 : Do cats or so long and neither more while finishing the jar for
 
+
+## Wikilinks load test
+
+[[veinal gimpiness]]
+[[drowsy committee for state security]]
+[[grassy lugosi]]
+[[insurrectional valdecoxib]]
+[[saprozoic arles]]

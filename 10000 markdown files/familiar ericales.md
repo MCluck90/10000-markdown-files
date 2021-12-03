@@ -91,3 +91,9 @@ Why she'll think it's
 Keep back the rosetree for
 : Will you guessed who will talk nonsense.
 
+
+## Wikilinks load test
+
+[[undreamed of macleish]]
+[[barbed standard of living]]
+[[informed specs]]

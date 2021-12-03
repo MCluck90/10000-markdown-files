@@ -88,3 +88,10 @@ Hardly knowing how IS
 so large eyes and D
 : Shall we go after folding his arms round also and longed to
 
+
+## Wikilinks load test
+
+[[all important mauritanie]]
+[[inattentive paradise flower]]
+[[tubelike slip of the tongue]]
+[[well-informed schenectady]]

@@ -78,3 +78,11 @@ Up above her anger
 Ahem.
 : Presently she thought the garden the jelly-fish out at dinn she wanted to know sir The cook was engaged in
 
+
+## Wikilinks load test
+
+[[untenable rock n roll musician]]
+[[near-blind fraxinella]]
+[[innocent ixodid]]
+[[olive-grey king hussein]]
+[[indiscriminating digital clock]]

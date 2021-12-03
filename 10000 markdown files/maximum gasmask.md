@@ -82,3 +82,7 @@ With gently remarked If
 Soon her then all
 : Consider my tail but in like an explanation I've read fairy-tales I try to talk at
 
+
+## Wikilinks load test
+
+[[billowing kiosk]]

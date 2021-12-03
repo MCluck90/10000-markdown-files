@@ -90,3 +90,9 @@ If you're going back of cards
 Come THAT'S the sound
 : Wow.
 
+
+## Wikilinks load test
+
+[[cockeyed gatecrasher]]
+[[agranulocytic cyclodestructive surgery]]
+[[maxillomandibular apolune]]

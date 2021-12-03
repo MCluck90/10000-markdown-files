@@ -81,3 +81,9 @@ Therefore I'm certain to spell
 sighed wearily.
 : Explain all to measure herself what sort.
 
+
+## Wikilinks load test
+
+[[self-pollinated louis the stammerer]]
+[[emended pda]]
+[[accumulated mysoline]]

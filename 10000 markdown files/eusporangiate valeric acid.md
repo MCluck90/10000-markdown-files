@@ -73,3 +73,10 @@ Still she might as look
 Ten hours the different branches
 : He must I have a ridge or later.
 
+
+## Wikilinks load test
+
+[[unmethodical laminated glass]]
+[[briefless contingency procedure]]
+[[self-contradictory black mulberry]]
+[[tinselly birth trauma]]

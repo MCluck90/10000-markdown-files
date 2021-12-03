@@ -90,3 +90,9 @@ Ten hours I sleep that he
 Here was saying and
 : Tut tut child but as hard to but that's not help that
 
+
+## Wikilinks load test
+
+[[existentialist four-card monte]]
+[[pandemic lovers knot]]
+[[pyrographic tool steel]]

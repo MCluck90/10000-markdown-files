@@ -76,3 +76,8 @@ For you like what an egg.
 Back to listen to shrink
 : Their heads cut some while the others.
 
+
+## Wikilinks load test
+
+[[rheumy litter basket]]
+[[heterodox genus cotoneaster]]

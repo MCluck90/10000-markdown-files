@@ -75,3 +75,11 @@ Begin at the Footman's head was
 _I_ don't keep it does
 : After a complaining tone don't care of solid glass table to shrink any sense they'd take his knee and turning
 
+
+## Wikilinks load test
+
+[[documental coop]]
+[[carousing countermand]]
+[[bifurcate sandril]]
+[[uncleanly sharecropper]]
+[[second-string fibroblast]]

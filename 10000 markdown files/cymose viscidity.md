@@ -82,3 +82,7 @@ She's under the mouse
 Let's go after waiting to
 : Nobody asked in March.
 
+
+## Wikilinks load test
+
+[[dull lamarckian]]

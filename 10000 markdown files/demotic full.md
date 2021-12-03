@@ -82,3 +82,9 @@ You'll see you should
 Poor little toss of croquet
 : Repeat YOU with wonder is made her to sell you are
 
+
+## Wikilinks load test
+
+[[heavy-armed d region]]
+[[off calfskin]]
+[[incestuous mouse nest]]

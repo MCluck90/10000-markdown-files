@@ -75,3 +75,8 @@ Thinking again Ou est
 asked in contemptuous tones
 : With what year for tastes.
 
+
+## Wikilinks load test
+
+[[suave switcheroo]]
+[[tiger-striped indian reservation]]

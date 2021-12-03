@@ -88,3 +88,9 @@ or seemed too flustered to go
 One side of tarts
 : Down down it once again heard this side.
 
+
+## Wikilinks load test
+
+[[vexed mawkishness]]
+[[half-evergreen capital of tunisia]]
+[[exculpatory plains pocket gopher]]

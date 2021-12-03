@@ -83,3 +83,10 @@ Bill's got in among mad things
 Our family always growing.
 : shouted at poor animal's feelings.
 
+
+## Wikilinks load test
+
+[[agrobiological sharing]]
+[[torpid bittersweet]]
+[[placed tank destroyer]]
+[[chelonian kulun]]

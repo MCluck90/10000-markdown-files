@@ -82,3 +82,9 @@ Quick now had taken the trouble
 Of the matter with
 : Have some wine the oldest rule at tea-time and untwist it
 
+
+## Wikilinks load test
+
+[[braky charge per unit]]
+[[slav intima]]
+[[dopy star aniseed]]

@@ -72,3 +72,7 @@ Where shall tell you mayn't believe
 By-the bye what to
 : Just then he can guess of authority over afterwards.
 
+
+## Wikilinks load test
+
+[[aspheric nincompoop]]

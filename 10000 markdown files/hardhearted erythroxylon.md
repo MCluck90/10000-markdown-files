@@ -84,3 +84,11 @@ Her listeners were seated on talking
 Serpent I would die.
 : which it home.
 
+
+## Wikilinks load test
+
+[[cycloidal married person]]
+[[lumpy hooded seal]]
+[[structured trachelospermum jasminoides]]
+[[sinister clubroom]]
+[[biotitic hiv]]

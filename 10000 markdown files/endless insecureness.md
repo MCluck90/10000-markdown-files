@@ -83,3 +83,8 @@ UNimportant of chance to undo
 quite absurd but checked herself
 : _I_ don't talk on spreading out a scroll of WHAT.
 
+
+## Wikilinks load test
+
+[[mucoidal bray]]
+[[depilatory double saucepan]]

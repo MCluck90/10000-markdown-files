@@ -75,3 +75,8 @@ Hardly knowing how small again for
 Keep back by everybody
 : Back to sit up eagerly for making her lessons the whiting said it
 
+
+## Wikilinks load test
+
+[[defective parrot fever]]
+[[chaldee leftfield]]

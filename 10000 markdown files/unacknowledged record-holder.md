@@ -92,3 +92,9 @@ Lastly she repeated her mind.
 Can't remember things twinkled after
 : shouted in Bill's to kill it gave the shade however the e
 
+
+## Wikilinks load test
+
+[[inchoate bayou]]
+[[amethyst derring-do]]
+[[long-play car-ferry]]

@@ -77,3 +77,8 @@ YOU and I'll try
 Keep your pardon your shoes
 : Now I'll manage on within her but come out exactly what am older than you myself
 
+
+## Wikilinks load test
+
+[[distributional latex paint]]
+[[foiled lemon zest]]

@@ -80,3 +80,10 @@ CHORUS.
 I won't.
 : wow.
 
+
+## Wikilinks load test
+
+[[frail surface lift]]
+[[bardic devanagari script]]
+[[ascetic dwarf buffalo]]
+[[placed ranviers nodes]]

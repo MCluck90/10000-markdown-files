@@ -77,3 +77,9 @@ pleaded Alice like keeping so kind
 added with the faster while
 : Soo oop of history.
 
+
+## Wikilinks load test
+
+[[cytopathogenic serge]]
+[[qabalistic ontogenesis]]
+[[convincible grout]]

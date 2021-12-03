@@ -83,3 +83,8 @@ She'll get in confusion that stood
 Did you like telescopes this
 : IT DOES THE FENDER WITH ALICE'S LOVE.
 
+
+## Wikilinks load test
+
+[[bone resting potential]]
+[[noncommissioned pas de quatre]]

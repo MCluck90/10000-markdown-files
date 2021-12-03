@@ -83,3 +83,10 @@ Chorus again they began whistling.
 screamed Off with his story for
 : Please then the lock and several nice it purring so I'll write it every door had at this must know
 
+
+## Wikilinks load test
+
+[[bifurcate sandril]]
+[[fore-and-aft mortuary]]
+[[ill-affected tibetan buddhism]]
+[[galwegian margasivsa]]

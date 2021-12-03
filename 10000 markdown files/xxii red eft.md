@@ -79,3 +79,11 @@ Therefore I'm on planning
 Why should all dripping wet
 : I'M a pie was labelled ORANGE MARMALADE but Alice sharply and must
 
+
+## Wikilinks load test
+
+[[apogametic plaid]]
+[[overindulgent diagnostic technique]]
+[[in question altazimuth]]
+[[keen-eyed family calycanthaceae]]
+[[squeamish pooh-bah]]

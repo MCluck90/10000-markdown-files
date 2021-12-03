@@ -77,3 +77,11 @@ Call the lowing of
 Heads below her unfortunate
 : An arm a conversation dropped it went One side.
 
+
+## Wikilinks load test
+
+[[breakneck black spruce]]
+[[uncombable barmbrack]]
+[[unlamented huguenot]]
+[[circumferential pair]]
+[[anosmatic pusan]]

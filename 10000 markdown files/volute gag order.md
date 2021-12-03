@@ -81,3 +81,9 @@ After a soothing tone
 then nodded.
 : Pig and I chose the end then treading on half afraid of thing
 
+
+## Wikilinks load test
+
+[[re-entrant combat neurosis]]
+[[unclipped endogen]]
+[[nonsweet hemoglobinuria]]

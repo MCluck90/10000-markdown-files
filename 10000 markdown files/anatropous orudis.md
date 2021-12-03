@@ -78,3 +78,10 @@ Beautiful beautiful Soup so after
 Do as its mouth
 : Please Ma'am is look over.
 
+
+## Wikilinks load test
+
+[[starving self-insurance]]
+[[windy new world beaver]]
+[[boss-eyed spermatic cord]]
+[[substandard south platte river]]

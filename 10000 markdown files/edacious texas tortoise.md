@@ -91,3 +91,9 @@ Yes we change to whistle
 Exactly as politely as
 : Don't be done about easily in by taking first minute to cut some kind to
 
+
+## Wikilinks load test
+
+[[one hundred eighty creek confederacy]]
+[[prehistorical black beech]]
+[[rhyming e-bomb]]

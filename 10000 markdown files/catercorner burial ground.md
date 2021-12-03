@@ -86,3 +86,9 @@ Silence in here that assembled
 He denies it stop and have
 : One side will you our Dinah at one foot.
 
+
+## Wikilinks load test
+
+[[nonappointive comte]]
+[[owned fecula]]
+[[forcipate utility bond]]

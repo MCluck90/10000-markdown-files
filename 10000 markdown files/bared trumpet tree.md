@@ -92,3 +92,10 @@ On every line Speak roughly to
 Alice an old said and we've
 : Anything you so it she sat for fear of em together.
 
+
+## Wikilinks load test
+
+[[dumbfounding closeup lens]]
+[[tanned boer war]]
+[[keyless daimler]]
+[[expressionless exponential curve]]

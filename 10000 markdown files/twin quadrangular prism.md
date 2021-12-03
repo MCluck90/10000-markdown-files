@@ -81,3 +81,11 @@ Two.
 cried.
 : Pig.
 
+
+## Wikilinks load test
+
+[[apiculate tropopause]]
+[[tasseled parakeet]]
+[[plumy bovril]]
+[[inaccurate gum olibanum]]
+[[unassisted hypobetalipoproteinemia]]

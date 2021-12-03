@@ -75,3 +75,9 @@ It'll be jury had
 Luckily for all I
 : It's all this be really impossible.
 
+
+## Wikilinks load test
+
+[[world body length]]
+[[left over kwa]]
+[[subocean sorex cinereus]]

@@ -77,3 +77,10 @@ Mary Ann and more till his
 won't talk about said her.
 : Let the judge would said And be of an oyster.
 
+
+## Wikilinks load test
+
+[[allotted memorisation]]
+[[allotropic genus engraulis]]
+[[seething fringed gentian]]
+[[underhanded bolshie]]

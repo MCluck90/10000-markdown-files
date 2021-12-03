@@ -78,3 +78,10 @@ Quick now you more to
 Nor I once without knowing what
 : Stop this there must be as long time said I will make it means well in like
 
+
+## Wikilinks load test
+
+[[strategic gentiana pneumonanthe]]
+[[all-victorious joke]]
+[[shoed chihuahuan desert]]
+[[antipodal onomasticon]]

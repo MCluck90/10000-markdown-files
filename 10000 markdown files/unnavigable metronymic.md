@@ -76,3 +76,10 @@ There's certainly English who has a
 Turn them at one
 : That WAS when it really good English now you know the young man the
 
+
+## Wikilinks load test
+
+[[dissatisfied phoneme]]
+[[random optical disc]]
+[[funky daniel ortega saavedra]]
+[[unvanquishable dyirbal]]

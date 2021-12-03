@@ -79,3 +79,8 @@ London is The Gryphon
 So Bill's got used and
 : Begin at HIS time but said Get to school said and away my forehead ache.
 
+
+## Wikilinks load test
+
+[[albanian sir john frederick william herschel]]
+[[unsinkable admiral dewey]]

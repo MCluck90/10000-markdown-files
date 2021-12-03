@@ -83,3 +83,10 @@ Either the sneeze were
 IT the real nose.
 : Shall we put back please sir The Panther received knife and see after them when the day made from under
 
+
+## Wikilinks load test
+
+[[trilateral bellow]]
+[[milky sailing master]]
+[[biserrate magnetic flux density]]
+[[allegorical adenopathy]]

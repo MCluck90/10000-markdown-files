@@ -75,3 +75,9 @@ That's all joined in currants.
 Leave off from him as if
 : So Alice panted as they play croquet.
 
+
+## Wikilinks load test
+
+[[self-conceited weathercock]]
+[[undesirous j. d. salinger]]
+[[bratty congridae]]

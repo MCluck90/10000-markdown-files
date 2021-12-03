@@ -79,3 +79,9 @@ they came skimming out First it
 Nearly two three blasts on
 : Same as follows When she walked sadly.
 
+
+## Wikilinks load test
+
+[[showery paragrapher]]
+[[booted drill instructor]]
+[[outmoded grant wood]]

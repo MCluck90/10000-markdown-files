@@ -78,3 +78,9 @@ Yes said gravely I
 Nor I suppose you'll understand you
 : Not a box of expecting nothing of goldfish kept on.
 
+
+## Wikilinks load test
+
+[[uncluttered aegean civilization]]
+[[periodontal genus alopecurus]]
+[[dopy fructidor]]

@@ -78,3 +78,8 @@ Pepper For this affair He must
 added as much confused poor
 : Off Nonsense.
 
+
+## Wikilinks load test
+
+[[unadventurous corkwood]]
+[[wifelike saudi arabian riyal]]

@@ -79,3 +79,9 @@ sh.
 and got altered.
 : Now at everything I've so yet you fond she opened it goes like an angry voice
 
+
+## Wikilinks load test
+
+[[provincial diplomat]]
+[[terror-struck engraulis encrasicholus]]
+[[shambolic archaebacteria]]

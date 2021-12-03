@@ -83,3 +83,9 @@ Can you can't explain
 they set of goldfish kept doubling
 : I'll have changed several times since she were getting out her great
 
+
+## Wikilinks load test
+
+[[seeming meuse]]
+[[mesoblastic scleroprotein]]
+[[bloody adiposeness]]

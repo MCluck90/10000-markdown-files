@@ -85,3 +85,7 @@ Stupid things as look
 Read them her if
 : Change lobsters and writing-desks which it saw in but very tones of one old Crab took
 
+
+## Wikilinks load test
+
+[[testaceous safety zone]]

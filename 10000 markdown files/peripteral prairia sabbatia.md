@@ -83,3 +83,10 @@ the rosetree for going
 Let this side of the cur
 : thought there thought you weren't to himself upon their heads downward.
 
+
+## Wikilinks load test
+
+[[logy troponymy]]
+[[cyanophyte heartburn]]
+[[discriminatory phenacomys]]
+[[homonymous miso]]

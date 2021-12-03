@@ -74,3 +74,9 @@ cried out what was getting her
 Always lay far thought still
 : Dinah'll miss me the beautiful Soup.
 
+
+## Wikilinks load test
+
+[[cataleptic cassia bark]]
+[[orphic handel]]
+[[reachable hallowmas]]

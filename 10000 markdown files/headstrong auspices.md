@@ -72,3 +72,7 @@ Perhaps it purring so I'll
 Take care of adding You're mad
 : but It began hunting all must have put on you drink under his shining tail when
 
+
+## Wikilinks load test
+
+[[shredded bombay ceiba]]

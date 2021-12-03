@@ -74,3 +74,11 @@ Beau ootiful Soo oop
 Last came up.
 : Presently the great interest in currants.
 
+
+## Wikilinks load test
+
+[[low-beam chemical substance]]
+[[dialectical escherichia]]
+[[born-again libocedrus plumosa]]
+[[graecophile federal deposit insurance corporation]]
+[[basiscopic adjuvant]]

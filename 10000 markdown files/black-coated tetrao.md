@@ -82,3 +82,8 @@ repeated the locks were
 RABBIT engraved upon the
 : Soo oop.
 
+
+## Wikilinks load test
+
+[[benedictine immunization]]
+[[friable aristocrat]]

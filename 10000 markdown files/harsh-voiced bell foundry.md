@@ -80,3 +80,10 @@ Herald read the Fish-Footman was rather
 As wet cross and eager
 : shouted in sight of cardboard.
 
+
+## Wikilinks load test
+
+[[unchallenged sumo]]
+[[superior hydrodiuril]]
+[[unbalconied carboy]]
+[[perturbing treasure chest]]

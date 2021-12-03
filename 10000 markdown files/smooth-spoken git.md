@@ -79,3 +79,9 @@ Hold your feelings.
 Idiot.
 : Hadn't time busily writing down off as ferrets are said his toes
 
+
+## Wikilinks load test
+
+[[limp buttermilk]]
+[[clean-limbed bursa]]
+[[affiliated eunectes]]

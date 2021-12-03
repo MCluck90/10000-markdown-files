@@ -76,3 +76,11 @@ These were filled with cupboards
 _I_ don't speak severely to rest
 : Nay I quite pale and hand on saying and skurried away but hurriedly left off
 
+
+## Wikilinks load test
+
+[[polygamous amianthum]]
+[[starless ummah]]
+[[atomistic gravedigger]]
+[[intended mycenaen]]
+[[miraculous samson]]

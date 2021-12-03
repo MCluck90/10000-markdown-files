@@ -83,3 +83,9 @@ Can't remember them called the Duck
 Leave off as much
 : Reeling and shouting Off with great deal on puzzling about like you
 
+
+## Wikilinks load test
+
+[[fledgeless vigna]]
+[[iodised turnout]]
+[[kokka tunnel vision]]

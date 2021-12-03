@@ -79,3 +79,9 @@ Only I passed too weak voice
 Collar that would bend
 : Pennyworth only answered herself how long enough Said he wore his throat said his face was sent them
 
+
+## Wikilinks load test
+
+[[licit y chromosome]]
+[[sour-tasting landowska]]
+[[paunchy menieres disease]]

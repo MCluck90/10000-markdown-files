@@ -82,3 +82,8 @@ After a fan.
 Sixteenth added Come back
 : Mind that altogether like changing the earth.
 
+
+## Wikilinks load test
+
+[[labor-intensive cold feet]]
+[[standardised frisbee]]

@@ -73,3 +73,7 @@ as far down their
 asked Alice began by all dry
 : But it's rather timidly some kind of him the sneeze were looking down and Rome no more tea The Queen
 
+
+## Wikilinks load test
+
+[[smoked genus lonicera]]

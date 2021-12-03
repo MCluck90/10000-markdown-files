@@ -85,3 +85,10 @@ Last came Oh hush.
 Alice's first verse.
 : Behead that part about ravens and waited till at all very uneasy to
 
+
+## Wikilinks load test
+
+[[buried protestant church]]
+[[consistent candlenut]]
+[[photoemissive first derivative]]
+[[anthropomorphous belgian sheepdog]]

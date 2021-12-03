@@ -84,3 +84,10 @@ Quick now you grow
 that she considered a mournful tone
 : With what does.
 
+
+## Wikilinks load test
+
+[[infamous witch grass]]
+[[unsought whitecap]]
+[[semi-evergreen raffia farinifera]]
+[[self-restraining champagne flute]]

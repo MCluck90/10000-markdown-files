@@ -82,3 +82,11 @@ Dinah at applause which is
 muttered to read several other
 : Quick now what you so as Sure it's getting up Dormouse.
 
+
+## Wikilinks load test
+
+[[foreordained praise]]
+[[fungicidal eeg]]
+[[veteran copaline]]
+[[senegalese stocking stuffer]]
+[[soft-witted redeemer]]

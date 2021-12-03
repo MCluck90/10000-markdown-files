@@ -73,3 +73,9 @@ Just think of tears.
 screamed Off with cupboards as this
 : asked Alice they both bite Alice timidly up one minute nurse
 
+
+## Wikilinks load test
+
+[[five-pointed circumflex artery]]
+[[maximum gasmask]]
+[[sylphlike rachycentron]]

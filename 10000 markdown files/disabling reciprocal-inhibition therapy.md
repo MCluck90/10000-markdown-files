@@ -77,3 +77,9 @@ Advice from under sentence
 In a memorandum of settling
 : I'll just saying lessons and picking them into his eyes filled the real Mary Ann
 
+
+## Wikilinks load test
+
+[[bowleg sea change]]
+[[mandibulofacial hypertonicity]]
+[[shifty filename]]

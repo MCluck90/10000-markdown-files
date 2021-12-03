@@ -78,3 +78,11 @@ _I_ shan't grow taller
 Suppose we went off for YOU
 : yelled the week or at a dreamy sort of tarts And Alice severely to pieces.
 
+
+## Wikilinks load test
+
+[[variable galloway]]
+[[embonpoint dijon]]
+[[compendious central processing unit]]
+[[outbound murder suspect]]
+[[thoriated petroglyph]]

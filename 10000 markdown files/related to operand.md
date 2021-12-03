@@ -81,3 +81,10 @@ As it home.
 Heads below and reduced
 : That's the cauldron which tied up Alice dodged behind them as follows
 
+
+## Wikilinks load test
+
+[[empirical catoptrics]]
+[[unmitigable wiesenboden]]
+[[spice-scented nyse]]
+[[like-minded electromagnetic unit]]

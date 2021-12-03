@@ -80,3 +80,11 @@ Twinkle twinkle Here was now I
 Mine is sure but I'm angry
 : Pray don't want YOURS I BEG your story but oh.
 
+
+## Wikilinks load test
+
+[[spotless naucrates ductor]]
+[[mismated inkpad]]
+[[stereotypic praisworthiness]]
+[[wriggling genus ostryopsis]]
+[[nonplused 4to]]

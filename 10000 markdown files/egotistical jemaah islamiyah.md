@@ -87,3 +87,10 @@ later.
 Twinkle twinkle and still sobbing
 : Right as he knows it marked with.
 
+
+## Wikilinks load test
+
+[[ferret-sized altar wine]]
+[[bridal judiciary]]
+[[proven machine-readable text]]
+[[incompatible genus aspis]]

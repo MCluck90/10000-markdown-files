@@ -73,3 +73,10 @@ Idiot.
 I'll try the lap as
 : She'd soon got behind.
 
+
+## Wikilinks load test
+
+[[purplish-brown andira]]
+[[literary stypsis]]
+[[rastafarian aphorism]]
+[[stopped up lymphocyte]]

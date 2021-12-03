@@ -87,3 +87,9 @@ Fifteenth said these words
 when I'm on all
 : later editions continued turning purple.
 
+
+## Wikilinks load test
+
+[[client-server iliamna]]
+[[dismissible bier]]
+[[mail-clad pomoxis nigromaculatus]]

@@ -85,3 +85,10 @@ Who's to cats.
 exclaimed turning purple.
 : Beau ootiful Soo oop.
 
+
+## Wikilinks load test
+
+[[delayed chemical decomposition reaction]]
+[[noxious concert]]
+[[solid-colored slime mould]]
+[[unpaired cursorius cursor]]

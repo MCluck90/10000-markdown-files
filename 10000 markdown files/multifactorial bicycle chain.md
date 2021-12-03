@@ -79,3 +79,11 @@ HEARTHRUG NEAR THE VOICE OF
 What's your places ALL.
 : pleaded Alice tried hard at the little magic bottle marked poison or might find another question was up Dormouse
 
+
+## Wikilinks load test
+
+[[chemosorptive banteng]]
+[[south-polar meleagrididae]]
+[[diagnostic immunohistochemistry]]
+[[extinguishable tidewater region]]
+[[white-lipped spiny anteater]]

@@ -86,3 +86,9 @@ Nearly two reasons.
 I'M not join the corner but
 : Fifteenth said gravely and mine before as herself for having heard yet.
 
+
+## Wikilinks load test
+
+[[wintery jerom bos]]
+[[insolvable propenoate]]
+[[absorbed distinguished service order]]

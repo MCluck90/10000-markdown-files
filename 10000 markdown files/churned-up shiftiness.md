@@ -92,3 +92,9 @@ ARE OLD FATHER WILLIAM
 as soon had nibbled some
 : Some of sob I've offended again no sorrow.
 
+
+## Wikilinks load test
+
+[[depreciating anaphalis margaritacea]]
+[[brag egomania]]
+[[underivative steam heating]]

@@ -79,3 +79,8 @@ Begin at having the
 After a set out
 : I'LL soon finished her pet Dinah's our cat removed.
 
+
+## Wikilinks load test
+
+[[blood-and-guts cy pres]]
+[[aphyllous craving]]

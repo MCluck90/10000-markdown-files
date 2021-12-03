@@ -86,3 +86,10 @@ persisted.
 Mary Ann and read
 : Hold up as far.
 
+
+## Wikilinks load test
+
+[[deducible air division]]
+[[placed tank destroyer]]
+[[kashmiri baroness emmusca orczy]]
+[[amphitheatrical comedy]]

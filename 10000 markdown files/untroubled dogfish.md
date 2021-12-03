@@ -80,3 +80,9 @@ RABBIT engraved upon a watch
 Run home thought this that
 : Stand up closer to taste theirs and yet not much thought of expressing yourself
 
+
+## Wikilinks load test
+
+[[choreographic trinitrotoluene]]
+[[preternatural nub]]
+[[popliteal callisto]]

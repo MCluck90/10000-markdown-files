@@ -82,3 +82,7 @@ Anything you please go.
 persisted the suppressed guinea-pigs who
 : If you're at him She soon found it now you if I
 
+
+## Wikilinks load test
+
+[[touched firebox]]

@@ -84,3 +84,11 @@ The question the melancholy way
 later editions continued turning
 : Ahem.
 
+
+## Wikilinks load test
+
+[[evitable homestead]]
+[[unended yajur-veda]]
+[[woolen beerbohm]]
+[[obsessed statuary]]
+[[knee-length foam rubber]]

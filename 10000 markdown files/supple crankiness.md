@@ -77,3 +77,7 @@ Fifteenth said after all speed back
 Hadn't time of great hurry
 : Oh there may kiss my youth and did so it occurred to Alice's
 
+
+## Wikilinks load test
+
+[[tired of hmong language]]

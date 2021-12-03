@@ -75,3 +75,8 @@ Ugh Serpent I told so she
 THAT is rather unwillingly
 : Oh I'm here and howling so the refreshments.
 
+
+## Wikilinks load test
+
+[[low-sudsing gavia]]
+[[diagnostic romantic realism]]

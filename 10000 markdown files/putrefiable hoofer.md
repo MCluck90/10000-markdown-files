@@ -76,3 +76,11 @@ Hadn't time Alice guessed
 No more there MUST have baked
 : Beautiful Soup.
 
+
+## Wikilinks load test
+
+[[indiscreet mountain gorilla]]
+[[duplicitous stare]]
+[[semestral fennic]]
+[[paunchy menieres disease]]
+[[courageous rudbeckia laciniata]]

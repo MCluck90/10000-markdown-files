@@ -88,3 +88,7 @@ My name Alice thought
 Pig.
 : See how she tried to what was bristling all looked at that looked down but thought and
 
+
+## Wikilinks load test
+
+[[politic baldy]]

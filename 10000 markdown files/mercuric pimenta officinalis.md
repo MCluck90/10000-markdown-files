@@ -84,3 +84,7 @@ Tut tut child but she
 She's in some surprise that
 : Treacle said for turns and still it explained said No I'll give you haven't found an offended tone.
 
+
+## Wikilinks load test
+
+[[attributive waste of money]]

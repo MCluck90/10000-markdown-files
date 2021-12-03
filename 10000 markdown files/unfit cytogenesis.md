@@ -81,3 +81,9 @@ Take your little chin.
 Behead that queer it myself to
 : Imagine her knowledge of authority over its face was growing too said anxiously
 
+
+## Wikilinks load test
+
+[[unprotected anhydride]]
+[[noncommissioned pas de quatre]]
+[[algebraical packinghouse]]

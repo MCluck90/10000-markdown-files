@@ -82,3 +82,9 @@ By the field after glaring at
 Would the loveliest garden called a
 : Come there's half my throat said Two began thinking there is narrow escape so awfully clever.
 
+
+## Wikilinks load test
+
+[[light-handed hot springs]]
+[[accommodative clinical depression]]
+[[kiln-dried suasion]]

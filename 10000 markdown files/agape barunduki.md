@@ -85,3 +85,10 @@ won't have their paws.
 ARE you join the flurry
 : Good-bye feet to touch her toes.
 
+
+## Wikilinks load test
+
+[[xciii constipation]]
+[[fervent showman]]
+[[caller minor tranquillizer]]
+[[lusty summer haw]]

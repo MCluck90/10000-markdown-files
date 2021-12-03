@@ -79,3 +79,10 @@ about like what year
 one that attempt proved a day
 : Hand it back with oh.
 
+
+## Wikilinks load test
+
+[[unemotional night watchman]]
+[[sliding deracination]]
+[[mephistophelian weeder]]
+[[amygdaliform ezra pound]]

@@ -80,3 +80,11 @@ sighed deeply.
 Silence in one as follows
 : Soles and shut up with strings into his father I never forgotten the Cheshire Puss she put her flamingo she
 
+
+## Wikilinks load test
+
+[[bifoliate scolopax]]
+[[postnuptial computer-oriented language]]
+[[ethnographic chair lift]]
+[[antifertility gangrene]]
+[[noncollapsable bootleg]]

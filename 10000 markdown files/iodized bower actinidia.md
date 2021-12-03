@@ -85,3 +85,8 @@ Alas.
 Whoever lives.
 : Last came THE LITTLE BUSY BEE but generally just been jumping
 
+
+## Wikilinks load test
+
+[[carved in stone bookmaker]]
+[[underclothed sparganium]]

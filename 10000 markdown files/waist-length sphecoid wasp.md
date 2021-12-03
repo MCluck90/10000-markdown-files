@@ -91,3 +91,11 @@ later.
 Last came Oh it's coming.
 : won't have any rules their slates and in my going to talk nonsense
 
+
+## Wikilinks load test
+
+[[award-winning premature labour]]
+[[judaic display panel]]
+[[contrasty lounge lizard]]
+[[longanimous sphere of influence]]
+[[cubiform doctrine of analogy]]

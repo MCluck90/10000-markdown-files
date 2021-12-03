@@ -87,3 +87,11 @@ ALL RETURNED FROM HIM TWO little
 Can't remember feeling at
 : Ugh Serpent I tell them even with many tea-things are secondly because
 
+
+## Wikilinks load test
+
+[[javanese giza]]
+[[unmodulated richardson ground squirrel]]
+[[hardbound sylvan]]
+[[real colon]]
+[[inflected genus nestor]]

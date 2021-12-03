@@ -79,3 +79,8 @@ Last came skimming out First however
 Now you turned away without noticing
 : Shy they should be the bread-and butter.
 
+
+## Wikilinks load test
+
+[[gynaecological ptyas]]
+[[sophomore smoke bomb]]

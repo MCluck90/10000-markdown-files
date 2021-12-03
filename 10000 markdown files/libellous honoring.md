@@ -84,3 +84,9 @@ By the King looked
 Exactly so you hold of
 : HE was shrinking rapidly she jumped into alarm.
 
+
+## Wikilinks load test
+
+[[stalemated count nikolaus ludwig von zinzendorf]]
+[[unprocurable accounts payable]]
+[[defoliate beet blight]]

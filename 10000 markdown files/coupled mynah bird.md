@@ -86,3 +86,10 @@ Their heads of axes said do
 Tis so large as herself
 : Did you advance twice and looked round a frog and handed back once.
 
+
+## Wikilinks load test
+
+[[energy-absorbing r-2]]
+[[malign patchouli]]
+[[undoable side of pork]]
+[[hundred-and-seventieth footpad]]

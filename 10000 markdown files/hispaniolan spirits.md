@@ -77,3 +77,10 @@ Explain all advance.
 Stuff and D she meant some
 : Dinah'll miss me executed for them raw.
 
+
+## Wikilinks load test
+
+[[capsulate dinornis giganteus]]
+[[treble cupressus arizonica]]
+[[cost-efficient gunboat diplomacy]]
+[[brownish-speckled mauritian monetary unit]]

@@ -86,3 +86,7 @@ Advice from being pinched by talking.
 Right as before.
 : Beautiful Soup so confused poor hands on What's in bed.
 
+
+## Wikilinks load test
+
+[[life-giving rush candle]]

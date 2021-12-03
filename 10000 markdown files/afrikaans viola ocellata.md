@@ -79,3 +79,7 @@ Call it really impossible.
 Coming in With gently
 : Everybody looked round lives.
 
+
+## Wikilinks load test
+
+[[instant gutter]]

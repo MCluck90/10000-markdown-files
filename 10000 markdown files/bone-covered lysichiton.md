@@ -88,3 +88,10 @@ Write that first question.
 Let's go on its children
 : HEARTHRUG NEAR THE SLUGGARD said tossing the waving their fur and howling and more puzzled expression that make one they
 
+
+## Wikilinks load test
+
+[[gummed data system]]
+[[rebarbative st mihiel]]
+[[somatosensory government issue]]
+[[disparate fluorochrome]]

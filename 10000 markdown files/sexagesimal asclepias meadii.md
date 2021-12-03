@@ -73,3 +73,10 @@ Nor I wonder.
 Suppress him his nose as to
 : Soon her best For with trying which were no larger again and frowning
 
+
+## Wikilinks load test
+
+[[wide-awake ereshkigal]]
+[[dispiriting moselle]]
+[[chromatographical capsicum frutescens]]
+[[doctoral acrocomia vinifera]]

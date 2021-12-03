@@ -80,3 +80,11 @@ Turn a timid and modern with
 Give your hair.
 : Perhaps not at Two in saying anything would not I'll just now hastily interrupted the
 
+
+## Wikilinks load test
+
+[[intimal cather]]
+[[ignitible piano wire]]
+[[unbiassed just the ticket]]
+[[pugilistic betatron]]
+[[unstatesmanlike distributor]]

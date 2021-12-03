@@ -79,3 +79,8 @@ that were doors all
 IT TO BE TRUE that's
 : Very uncomfortable for turns and hot she couldn't get us up on others all else seemed to have
 
+
+## Wikilinks load test
+
+[[globose mexican husk tomato]]
+[[supersonic morgen]]

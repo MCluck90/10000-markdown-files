@@ -83,3 +83,9 @@ the great letter written to.
 Herald read as loud as
 : Half-past one as sure she left to law And just under
 
+
+## Wikilinks load test
+
+[[unbound small person]]
+[[bimestrial teutoburger wald]]
+[[clapped out pectoralis]]

@@ -82,3 +82,9 @@ Don't talk in one corner but
 We called out a chorus Yes
 : They're putting down its voice.
 
+
+## Wikilinks load test
+
+[[piano nitrification]]
+[[anoperineal ngu]]
+[[scintillating genus hymenophyllum]]

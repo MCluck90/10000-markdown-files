@@ -75,3 +75,8 @@ While the key was
 Idiot.
 : sh.
 
+
+## Wikilinks load test
+
+[[monstrous oral herpes]]
+[[offbeat yacca]]

@@ -87,3 +87,8 @@ Heads below.
 Did you fly and your hat
 : Soon her next.
 
+
+## Wikilinks load test
+
+[[rhymeless putting surface]]
+[[deep-sea superorder malacopterygii]]

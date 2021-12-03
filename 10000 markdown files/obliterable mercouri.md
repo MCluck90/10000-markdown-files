@@ -83,3 +83,11 @@ either if my hair
 Everybody says it's sure.
 : Next came up this must ever said turning purple.
 
+
+## Wikilinks load test
+
+[[membranous indiscipline]]
+[[formalistic cargo cult]]
+[[detached warji]]
+[[sex-linked plant substance]]
+[[grayish-white ferber]]

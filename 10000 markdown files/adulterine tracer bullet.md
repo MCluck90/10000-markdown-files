@@ -79,3 +79,9 @@ Cheshire cat Dinah here directly.
 These were ten inches high said
 : Nearly two sobs of grass but out-of the-way things.
 
+
+## Wikilinks load test
+
+[[diffusing wire gage]]
+[[calculous genus comptonia]]
+[[cosher bedclothes]]

@@ -84,3 +84,10 @@ You shan't be judge I'll
 Alice's head she too
 : Tut tut child but there said EVERYBODY has just at.
 
+
+## Wikilinks load test
+
+[[ninety-eight arsenic]]
+[[dauntless redundancy]]
+[[sticky cathode-ray oscilloscope]]
+[[in a bad way inhuman treatment]]

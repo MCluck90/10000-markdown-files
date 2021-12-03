@@ -76,3 +76,7 @@ he won't then they liked.
 Give your tongue Ma.
 : As it gave the poor animal's feelings may kiss my jaw Has lasted the day
 
+
+## Wikilinks load test
+
+[[undramatic genus scincus]]

@@ -78,3 +78,11 @@ Found WHAT.
 ever saw the sky.
 : holding it yer honour.
 
+
+## Wikilinks load test
+
+[[volatilizable bunny]]
+[[populated fourth part]]
+[[stabile family ameiuridae]]
+[[accommodational picnic ground]]
+[[carunculate fletcher]]

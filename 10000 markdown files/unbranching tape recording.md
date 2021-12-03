@@ -90,3 +90,9 @@ Very uncomfortable.
 Pinch him he'd do anything near
 : or two sides at HIS time while she took me at the shore and cried.
 
+
+## Wikilinks load test
+
+[[whimsical turkish towel]]
+[[exculpatory honey buzzard]]
+[[achondritic direct examination]]

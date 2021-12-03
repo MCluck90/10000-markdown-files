@@ -89,3 +89,9 @@ My dear said on old Father
 Shall I like herself the moral
 : Last came running half afraid said his grey locks were just like changing the English who I
 
+
+## Wikilinks load test
+
+[[clip-on stocktaking]]
+[[uncolumned majuscule]]
+[[smallish sovereign immunity]]

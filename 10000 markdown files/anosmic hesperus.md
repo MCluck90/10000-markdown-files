@@ -86,3 +86,8 @@ a shrill cries to pieces
 Yes I once to work
 : Quick now that queer thing.
 
+
+## Wikilinks load test
+
+[[full of life crotch hair]]
+[[swashbuckling upset stomach]]

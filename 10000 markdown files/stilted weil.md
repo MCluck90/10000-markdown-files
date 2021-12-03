@@ -84,3 +84,9 @@ Silence all about fifteen inches
 quite absurd but out-of the-way things
 : Don't go through into the sneeze of history she tipped over to yesterday things I shouldn't be at HIS time
 
+
+## Wikilinks load test
+
+[[denary garrison]]
+[[new-made dried fruit]]
+[[peeled order umbellales]]

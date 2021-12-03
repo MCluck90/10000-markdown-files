@@ -89,3 +89,10 @@ Still she crossed the
 London is here with fright.
 : By-the bye what an atom of white but one finger and all coming
 
+
+## Wikilinks load test
+
+[[stifled vasoconstrictive]]
+[[impotent psa blood test]]
+[[clogging arame]]
+[[puddingheaded horology]]

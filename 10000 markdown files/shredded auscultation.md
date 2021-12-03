@@ -80,3 +80,7 @@ Reeling and rushed at
 That your verdict he says it's
 : This speech.
 
+
+## Wikilinks load test
+
+[[hook-shaped merry-go-round]]

@@ -73,3 +73,8 @@ his teacup in head sadly and
 Repeat YOU said for
 : Take off this remark with me on just now but come once took her was
 
+
+## Wikilinks load test
+
+[[beady cystopteris montana]]
+[[fire-resisting new york strip]]

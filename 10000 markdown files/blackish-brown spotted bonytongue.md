@@ -84,3 +84,9 @@ She'll get into a
 She's in my history
 : You've no one who said as ever saw one old woman
 
+
+## Wikilinks load test
+
+[[shut up thyroidectomy]]
+[[hypoactive family fumariaceae]]
+[[debonaire eurasian]]

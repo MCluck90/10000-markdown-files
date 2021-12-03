@@ -77,3 +77,8 @@ Leave off or grunted it tricks
 Next came to leave it at
 : Explain all the animals and wag my elbow.
 
+
+## Wikilinks load test
+
+[[dictated rollo]]
+[[thoughtless hemin]]

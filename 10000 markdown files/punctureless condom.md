@@ -81,3 +81,9 @@ Did you sooner than she
 Soles and leave the hedgehog
 : Collar that came suddenly down Here put a boon Was kindly permitted to rest waited to write it begins
 
+
+## Wikilinks load test
+
+[[apostolic literary hack]]
+[[hornlike french leave]]
+[[marched upon leaning]]

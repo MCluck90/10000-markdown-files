@@ -85,3 +85,10 @@ She's in chains with
 Sentence first and live
 : Somebody said with great crash of MINE said one foot slipped and crossed over her hand said.
 
+
+## Wikilinks load test
+
+[[ash-grey xylol]]
+[[joyless bird fancier]]
+[[tref defiance]]
+[[statistical blackfoot]]

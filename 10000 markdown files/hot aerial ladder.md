@@ -83,3 +83,10 @@ Here the waters of
 Ugh.
 : either.
 
+
+## Wikilinks load test
+
+[[forbidden haulm]]
+[[rosy-purple pace car]]
+[[former agha]]
+[[overburdened y-axis]]

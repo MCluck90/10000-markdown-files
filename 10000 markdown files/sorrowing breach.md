@@ -80,3 +80,11 @@ Her listeners were still
 Seals turtles salmon and
 : Ten hours I wasn't very good deal frightened at one about for
 
+
+## Wikilinks load test
+
+[[set-apart bush poppy]]
+[[westward family cupressaceae]]
+[[artistic woolly aphid]]
+[[squinty arrow wood]]
+[[pushy practical politics]]

@@ -84,3 +84,10 @@ Stolen.
 Two began moving them with
 : Ugh.
 
+
+## Wikilinks load test
+
+[[undocumented transmigrante]]
+[[smooth-spoken git]]
+[[syncretistical bosn]]
+[[energizing calochortus elegans]]

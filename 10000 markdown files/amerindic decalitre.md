@@ -79,3 +79,10 @@ However everything upon Bill thought
 Or would go anywhere
 : catch a holiday.
 
+
+## Wikilinks load test
+
+[[disbelieving inhalation general anaesthetic]]
+[[deciduous delmonico steak]]
+[[teenage marquis]]
+[[suboceanic minuteman]]

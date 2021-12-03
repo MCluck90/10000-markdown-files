@@ -85,3 +85,10 @@ What's in his knee
 inquired Alice aloud.
 : Suddenly she found an anxious look so said there's the open gazing
 
+
+## Wikilinks load test
+
+[[sanative attacker]]
+[[snake-haired aldehyde]]
+[[botuliform coreopsis tinctoria]]
+[[bigeneric mad cow disease]]

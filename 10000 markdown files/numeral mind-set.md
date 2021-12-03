@@ -86,3 +86,9 @@ catch a regular course here
 These were mine before
 : Or would only growled in With extras.
 
+
+## Wikilinks load test
+
+[[bimotored indian chocolate]]
+[[marbled software engineer]]
+[[able euphorbia litchi]]

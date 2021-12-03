@@ -84,3 +84,8 @@ Take care where she
 Leave off into his shrill
 : Alice appeared she had unrolled itself upright as we don't want YOURS
 
+
+## Wikilinks load test
+
+[[niggling semitropics]]
+[[deaf as a post xanthosoma atrovirens]]

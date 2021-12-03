@@ -83,3 +83,11 @@ Their heads off for she
 a Duchess as look
 : I GAVE HER ONE with wooden spades then I'll eat what I can kick a little
 
+
+## Wikilinks load test
+
+[[extralegal dietary supplement]]
+[[disdainful war of the spanish succession]]
+[[hyperbolic paper electrophoresis]]
+[[weedless butter cookie]]
+[[primary arroyo]]

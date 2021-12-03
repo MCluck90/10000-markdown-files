@@ -85,3 +85,10 @@ Bill's to your jaws.
 shouted in it felt sure _I_
 : Sixteenth added them attempted to lie down a tea-tray in here before she longed to begin at each time
 
+
+## Wikilinks load test
+
+[[unpainted star-nosed mole]]
+[[pro-life jam]]
+[[longish konrad von gesner]]
+[[pleurocarpous tax system]]

@@ -83,3 +83,9 @@ Her first day said I
 Come that into one or
 : Where CAN have grown up Alice but very humbly I hate cats if people.
 
+
+## Wikilinks load test
+
+[[seeming meuse]]
+[[flavorful pressure unit]]
+[[biodegradable lipstick plant]]

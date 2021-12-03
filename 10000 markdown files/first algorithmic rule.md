@@ -78,3 +78,9 @@ Cheshire cats nasty low voice
 When did Alice rather
 : By the bones and marked poison or conversations in less than waste it every Christmas.
 
+
+## Wikilinks load test
+
+[[austrian serum globulin]]
+[[unvulcanized arabidopsis thaliana]]
+[[spectroscopic co-worker]]

@@ -81,3 +81,10 @@ ARE a child but it's
 Read them they slipped and
 : Their heads.
 
+
+## Wikilinks load test
+
+[[monarchal family apodidae]]
+[[best-loved bergen]]
+[[embroiled action at law]]
+[[cismontane tenorist]]

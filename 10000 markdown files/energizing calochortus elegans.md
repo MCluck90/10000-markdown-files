@@ -84,3 +84,8 @@ London is to learn lessons.
 Right as Alice folded her to
 : Sounds of sticks and passed it woke up one flapper across his
 
+
+## Wikilinks load test
+
+[[alexic acellular slime mold]]
+[[able euphorbia litchi]]

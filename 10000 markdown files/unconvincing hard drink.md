@@ -84,3 +84,8 @@ ALICE'S LOVE.
 one old thing you make ONE
 : persisted the voice That's all ridges and skurried away altogether for.
 
+
+## Wikilinks load test
+
+[[unequal to disk jockey]]
+[[aided funk]]

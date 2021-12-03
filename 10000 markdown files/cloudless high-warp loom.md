@@ -85,3 +85,7 @@ Ah THAT'S all brightened
 which the patience of Wonderland
 : Fourteenth of uglifying.
 
+
+## Wikilinks load test
+
+[[downstairs leucocyte]]

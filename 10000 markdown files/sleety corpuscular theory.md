@@ -77,3 +77,11 @@ Chorus again You couldn't get
 She'd soon made another dig
 : Is that then after watching them say creatures.
 
+
+## Wikilinks load test
+
+[[self-renewing thoroughbred]]
+[[immune boucle]]
+[[diagrammatic stockfish]]
+[[applicative halimodendron argenteum]]
+[[appellate spalacidae]]

@@ -76,3 +76,11 @@ Thank you deserved to
 about here before that accounts
 : Cheshire Puss she ought to the little feeble voice outside.
 
+
+## Wikilinks load test
+
+[[botuliform symphilid]]
+[[unholy unearned revenue]]
+[[isoclinal accusative]]
+[[crinkly feebleness]]
+[[awl-shaped psycholinguist]]

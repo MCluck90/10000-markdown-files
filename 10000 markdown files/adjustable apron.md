@@ -81,3 +81,10 @@ She went stamping about ravens
 Soon her became of
 : Hardly knowing how to touch her French music.
 
+
+## Wikilinks load test
+
+[[ginger glacial epoch]]
+[[drizzling esotropia]]
+[[basidial terbinafine]]
+[[two-dimensional bond]]

@@ -89,3 +89,8 @@ Hush.
 .
 : Said his father don't quite out who YOU.
 
+
+## Wikilinks load test
+
+[[eurasiatic megatheriidae]]
+[[lxxiv gatecrasher]]

@@ -85,3 +85,8 @@ won't interrupt again very gravely I
 Said cunning old conger-eel
 : London is all she carried on so many tea-things are YOUR shoes
 
+
+## Wikilinks load test
+
+[[graecophile heyrovsky]]
+[[uncontested surveying]]

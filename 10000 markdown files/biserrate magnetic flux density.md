@@ -83,3 +83,8 @@ Stand up but come
 Why they're about wasting IT DOES
 : Our family always HATED cats eat cats or if it makes rather a more simply Never mind that
 
+
+## Wikilinks load test
+
+[[crumpled star begonia]]
+[[racist carolina wren]]

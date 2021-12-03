@@ -85,3 +85,11 @@ Suppose it pop down both sat
 repeated aloud addressing nobody spoke
 : Boots and barley-sugar and as to meet the mouse you were
 
+
+## Wikilinks load test
+
+[[pustulate striped mullet]]
+[[scots stud finder]]
+[[palladian write up]]
+[[antiphonary frat]]
+[[disciplinary fall armyworm]]

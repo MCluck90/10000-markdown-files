@@ -83,3 +83,9 @@ I'm Mabel.
 No said one listening
 : Same as she fell off.
 
+
+## Wikilinks load test
+
+[[philhellene artillery]]
+[[unpotted american plan]]
+[[assertive depressor]]

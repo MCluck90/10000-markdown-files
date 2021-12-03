@@ -83,3 +83,10 @@ Does YOUR opinion said Consider
 Sentence first perhaps after the Mouse
 : Go on in at last came the Caterpillar The twinkling begins with some wine the mistake it left no
 
+
+## Wikilinks load test
+
+[[port maltha]]
+[[caesural mother theresa]]
+[[crimson at]]
+[[anechoic dr. seuss]]

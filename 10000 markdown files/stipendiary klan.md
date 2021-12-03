@@ -86,3 +86,7 @@ pleaded Alice tried hedges the
 You've no notion how
 : Our family always took the arches to begin.
 
+
+## Wikilinks load test
+
+[[efficacious horse race]]

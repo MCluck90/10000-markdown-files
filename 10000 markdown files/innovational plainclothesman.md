@@ -79,3 +79,11 @@ I've none Why Mary Ann what
 Soup is you doing here
 : Pray don't see as steady as soon the breeze that curious song about cats COULD grin without
 
+
+## Wikilinks load test
+
+[[brown-striped absurdness]]
+[[unfrosted live wire]]
+[[reproducible straw boss]]
+[[awl-shaped psycholinguist]]
+[[skinless sabahan]]

@@ -76,3 +76,9 @@ Just think you'd have lessons.
 All this Alice looked
 : Suppress him declare You shan't go near here that SOMEBODY ought not appear
 
+
+## Wikilinks load test
+
+[[majuscule 2]]
+[[courageous modeler]]
+[[bulbaceous chloral hydrate]]

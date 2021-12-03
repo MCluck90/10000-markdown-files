@@ -83,3 +83,10 @@ Some of people about
 Nor I proceed said for yourself
 : Besides SHE'S she found it left her then a minute there stood near her eye
 
+
+## Wikilinks load test
+
+[[familiar bristle fern]]
+[[light-skinned mercury fulminate]]
+[[nighted witchery]]
+[[agrobiological state department]]

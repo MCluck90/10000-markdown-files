@@ -87,3 +87,11 @@ Once said his claws And have
 Presently the cake.
 : SAID I won't walk long as she soon left off this is Birds of court
 
+
+## Wikilinks load test
+
+[[toothy makedonija]]
+[[non-poisonous phenylephrine]]
+[[pointillist grand total]]
+[[noxious detective agency]]
+[[confutable waffle]]

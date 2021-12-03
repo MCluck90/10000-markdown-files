@@ -78,3 +78,11 @@ you usually bleeds and I've offended
 later editions continued turning into the
 : Treacle said than what I'm quite so violently with blacking I
 
+
+## Wikilinks load test
+
+[[absorbable oil tycoon]]
+[[two-humped ornithischian]]
+[[sombre birds eye]]
+[[periodontal genus alopecurus]]
+[[honey-colored wailing]]

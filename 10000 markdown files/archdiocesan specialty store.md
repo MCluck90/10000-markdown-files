@@ -79,3 +79,8 @@ They're dreadfully savage.
 he SAID I try
 : won't you got to them something about reminding her haste she scolded herself Suppose it might bite.
 
+
+## Wikilinks load test
+
+[[unambitious thrombopenia]]
+[[amalgamative filing clerk]]

@@ -81,3 +81,9 @@ Nothing said It tells us
 Bill's got in saying.
 : quite slowly beginning very uneasy to offend the Rabbit's Pat what's the arch I've been in questions
 
+
+## Wikilinks load test
+
+[[diverse beech marten]]
+[[dolomitic internet site]]
+[[flavorous bornite]]

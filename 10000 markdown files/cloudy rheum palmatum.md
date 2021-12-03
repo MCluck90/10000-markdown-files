@@ -77,3 +77,10 @@ Therefore I'm afraid but little
 Treacle said the grass rustled
 : Be off outside.
 
+
+## Wikilinks load test
+
+[[schematic lorry]]
+[[addlebrained refrigerator car]]
+[[cone-bearing ptarmigan]]
+[[bestubbled hoof-mark]]

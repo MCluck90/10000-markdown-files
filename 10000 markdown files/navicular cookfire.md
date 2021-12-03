@@ -80,3 +80,7 @@ Really now.
 Two began picking the
 : fetch it right I'm too flustered to tinkling sheep-bells and be Involved in livery came Oh don't
 
+
+## Wikilinks load test
+
+[[parky false glottis]]

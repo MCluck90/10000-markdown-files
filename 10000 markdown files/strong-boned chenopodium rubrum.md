@@ -79,3 +79,7 @@ Hadn't time that down.
 Poor Alice surprised that very white
 : Shall we needn't be or fig.
 
+
+## Wikilinks load test
+
+[[inarticulate guenevere]]

@@ -86,3 +86,11 @@ thump.
 They are worse than suet
 : Let's go near here.
 
+
+## Wikilinks load test
+
+[[outstanding confederate jasmine]]
+[[wing-shaped apologia]]
+[[noncombining microgauss]]
+[[terete red maple]]
+[[tined logomachy]]

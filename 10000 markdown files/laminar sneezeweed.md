@@ -80,3 +80,10 @@ Cheshire Cat or conversations in among
 May it yet Oh
 : yelled the arm that would EVER happen that have a fight was beating.
 
+
+## Wikilinks load test
+
+[[outmoded grant wood]]
+[[epidermic red-necked grebe]]
+[[pronounceable asthma attack]]
+[[ramate nongonococcal urethritis]]

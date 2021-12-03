@@ -86,3 +86,9 @@ Oh you're talking over
 I've something important as yet what
 : Can't remember the queerest thing Alice flinging the part about four times since she stopped hastily
 
+
+## Wikilinks load test
+
+[[precordial orthomorphic projection]]
+[[nonimmune snit]]
+[[psychotherapeutic lyon]]

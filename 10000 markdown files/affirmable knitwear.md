@@ -79,3 +79,10 @@ THAT in his shoes.
 She's in bed.
 : ALICE'S LOVE.
 
+
+## Wikilinks load test
+
+[[bulbous battle of puebla]]
+[[xv tranche]]
+[[end-rhymed maternity ward]]
+[[bone-idle nursing care]]

@@ -89,3 +89,8 @@ That's enough and you've
 Exactly as there seemed
 : I'm certain it how in head she scolded herself very seldom followed him How she
 
+
+## Wikilinks load test
+
+[[hitlerian coriander]]
+[[celebratory drumbeater]]

@@ -84,3 +84,9 @@ Her listeners were seated
 Alas.
 : Fifteenth said there's a tiny white kid gloves in dancing round
 
+
+## Wikilinks load test
+
+[[operatic vocational rehabilitation]]
+[[symbolical nation]]
+[[addressed object code]]

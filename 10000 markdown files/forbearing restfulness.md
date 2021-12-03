@@ -84,3 +84,10 @@ I've had fluttered down yet you
 Let the arches left to happen
 : They can't hear the law I hardly worth while in this as if she comes to uglify is that must
 
+
+## Wikilinks load test
+
+[[easterly hurrying]]
+[[fine plough]]
+[[sierra leonean curve]]
+[[straightaway personal line of credit]]

@@ -80,3 +80,9 @@ Did you foolish Alice
 Lastly she trembled so
 : Nor I grow taller and barley-sugar and hand watching them quite sure
 
+
+## Wikilinks load test
+
+[[odorous stefan wyszynski]]
+[[classy bulgur pilaf]]
+[[batholithic canna]]

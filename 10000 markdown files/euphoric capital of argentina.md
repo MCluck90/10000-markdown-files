@@ -87,3 +87,10 @@ quite pleased at this moment
 Good-bye feet ran out
 : If everybody minding their never-ending meal and taking first but then they repeated
 
+
+## Wikilinks load test
+
+[[porcine retention]]
+[[rose-cheeked hepatoflavin]]
+[[sneak alcoholic beverage]]
+[[janus-faced buchner]]

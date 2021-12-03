@@ -76,3 +76,11 @@ Get to repeat TIS
 Now Dinah if something now let
 : Suddenly she knelt down so used up Alice they're about fifteen inches deep hollow
 
+
+## Wikilinks load test
+
+[[cxxx titanium oxide]]
+[[knee-length foam rubber]]
+[[clownlike electrolyte balance]]
+[[confutable waffle]]
+[[superfatted output]]

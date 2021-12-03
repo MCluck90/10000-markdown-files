@@ -81,3 +81,7 @@ Hardly knowing how I
 You've no more and it does
 : Sentence first and uncomfortable for tastes.
 
+
+## Wikilinks load test
+
+[[irreproachable renal vein]]

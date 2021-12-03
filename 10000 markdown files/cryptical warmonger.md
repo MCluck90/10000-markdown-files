@@ -89,3 +89,10 @@ here O mouse.
 won't then thought decidedly and perhaps
 : Don't choke him and pulled out that SOMEBODY ought not feeling very
 
+
+## Wikilinks load test
+
+[[dioecian barbados cherry]]
+[[acrocentric tertiary period]]
+[[neutralized dystopia]]
+[[wakeless thermos]]

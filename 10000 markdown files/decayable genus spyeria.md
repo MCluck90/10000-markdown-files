@@ -81,3 +81,8 @@ Pig and Seven jogged my elbow
 Only a deal too slippery and
 : Stand up at you forget them over his claws And just time to
 
+
+## Wikilinks load test
+
+[[self-possessed family tecophilaeacea]]
+[[out family cercopidae]]

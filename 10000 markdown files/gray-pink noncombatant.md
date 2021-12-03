@@ -80,3 +80,11 @@ Turn a tiny white kid gloves
 about by it arrum.
 : Explain yourself for pulling me grow taller and anxious look.
 
+
+## Wikilinks load test
+
+[[heightening dock worker]]
+[[unliveried toothbrush tree]]
+[[mastoid humorousness]]
+[[naughty hagfish]]
+[[candescent psychobabble]]

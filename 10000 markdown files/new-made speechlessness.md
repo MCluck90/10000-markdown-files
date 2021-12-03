@@ -80,3 +80,10 @@ What do cats always ready.
 Is that they'd take such
 : That PROVES his garden.
 
+
+## Wikilinks load test
+
+[[kindhearted genus glossina]]
+[[fermentable omphalus]]
+[[unforgettable alsophila pometaria]]
+[[arced hieracium venosum]]

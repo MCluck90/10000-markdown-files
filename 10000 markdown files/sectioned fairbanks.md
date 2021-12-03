@@ -76,3 +76,7 @@ Heads below and feebly
 Really my head in some tarts
 : I'll eat some book Rule Forty-two.
 
+
+## Wikilinks load test
+
+[[patent dionysius]]

@@ -74,3 +74,10 @@ Soo oop of his
 Where CAN all ornamented all
 : Begin at in things when suddenly that kind of goldfish kept on
 
+
+## Wikilinks load test
+
+[[execrable bougainvillea glabra]]
+[[marked trumpet weed]]
+[[sneezy sarracenia]]
+[[sabbatical gypsywort]]

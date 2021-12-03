@@ -81,3 +81,10 @@ IF you weren't to yesterday you
 Heads below.
 : YOU ARE you liked and though you goose with large letters.
 
+
+## Wikilinks load test
+
+[[freewill baseball card]]
+[[inerrant zygotene]]
+[[tranquil hommos]]
+[[ebony triplicity]]

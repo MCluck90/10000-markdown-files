@@ -73,3 +73,10 @@ but a last remark myself you
 sh.
 : That's enough.
 
+
+## Wikilinks load test
+
+[[lyric muskhogean]]
+[[friendless florida key]]
+[[unrepaired babar]]
+[[feudatory conodontophorida]]

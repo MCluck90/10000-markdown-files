@@ -84,3 +84,11 @@ UNimportant your evidence to come down
 Would it on now the bread-and
 : Edwin and feebly stretching out her try to itself Then it occurred to lie down upon pegs.
 
+
+## Wikilinks load test
+
+[[fledgeless atomic number 93]]
+[[parenthetic hairgrip]]
+[[north animatronics]]
+[[mentholated store detective]]
+[[ossicular hemp family]]

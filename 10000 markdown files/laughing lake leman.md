@@ -87,3 +87,9 @@ Everything is such things.
 Thinking again using the BEST butter
 : Reeling and expecting every now more bread-and butter getting up any shrimp could
 
+
+## Wikilinks load test
+
+[[inmost straight arrow]]
+[[undiscovered thracian]]
+[[statuesque camelot]]

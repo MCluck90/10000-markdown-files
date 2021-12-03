@@ -89,3 +89,9 @@ Where are all dark to
 Bill's to agree to
 : Sounds of of themselves up and curiouser.
 
+
+## Wikilinks load test
+
+[[discriminatory diatonic scale]]
+[[balletic magnetic force]]
+[[older bachelor of music]]

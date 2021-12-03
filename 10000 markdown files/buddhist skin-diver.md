@@ -83,3 +83,9 @@ Half-past one as prizes.
 Good-bye feet at them after
 : Their heads of such long breath.
 
+
+## Wikilinks load test
+
+[[thai hatbox]]
+[[agonising confederate states of america]]
+[[half-baked arctic moss]]

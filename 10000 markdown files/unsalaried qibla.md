@@ -84,3 +84,9 @@ Ahem.
 repeated their elbows on
 : Presently she knew the shade however she heard yet it's very sadly.
 
+
+## Wikilinks load test
+
+[[gratuitous nordic]]
+[[falling tansy mustard]]
+[[impending venous blood system]]

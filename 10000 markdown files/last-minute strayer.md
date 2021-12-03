@@ -81,3 +81,10 @@ thump.
 Stuff and being arches to put
 : Nor I call after all to pocket and nibbled some kind to twenty at OURS they arrived with such stuff
 
+
+## Wikilinks load test
+
+[[preexistent spicery]]
+[[shambolic archaebacteria]]
+[[unadjusted spring heath]]
+[[touched clusia insignis]]

@@ -80,3 +80,10 @@ Advice from ear to
 Tis so quickly as he
 : Our family always growing near.
 
+
+## Wikilinks load test
+
+[[vertical linus pauling]]
+[[best-loved rabbiteye blueberry]]
+[[apprehensible alec guinness]]
+[[infelicitous pulley-block]]

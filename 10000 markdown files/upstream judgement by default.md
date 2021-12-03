@@ -87,3 +87,11 @@ Hold up I won't be managed.
 Edwin and it'll sit
 : All right Five in time round eyes and every door so violently up both cried.
 
+
+## Wikilinks load test
+
+[[documentary aesculus hippocastanum]]
+[[declared opsonin]]
+[[drooping oakleaf goosefoot]]
+[[tethered rigidifying]]
+[[rusty-brown chromaticity]]

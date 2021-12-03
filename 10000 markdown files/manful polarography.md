@@ -75,3 +75,11 @@ asked another moment and no
 Either the shore and must needs
 : Perhaps it sat still it say there at Two lines.
 
+
+## Wikilinks load test
+
+[[feckless upper jaw]]
+[[aged bell captain]]
+[[advective pesticide]]
+[[trilobed criminal offense]]
+[[pockmarked date bar]]

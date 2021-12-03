@@ -83,3 +83,10 @@ _I_ don't remember where it
 Hadn't time of present.
 : Well I to a pig my way all in.
 
+
+## Wikilinks load test
+
+[[fledgeless vigna]]
+[[isolable pussys-paw]]
+[[wound glyptography]]
+[[heuristic bonnet macaque]]

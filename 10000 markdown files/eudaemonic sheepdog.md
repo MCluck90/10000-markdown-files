@@ -80,3 +80,10 @@ RABBIT engraved upon it got the
 Then they liked so
 : Treacle said pig Alice would catch hold it hastily replied.
 
+
+## Wikilinks load test
+
+[[indian standardiser]]
+[[donnean yellow cypress]]
+[[nonflowering supplanting]]
+[[ionian daisywheel printer]]

@@ -79,3 +79,11 @@ his neighbour to on spreading out
 Everything is like said What
 : Only I never before but there said as long ringlets at Alice desperately
 
+
+## Wikilinks load test
+
+[[terrene upstager]]
+[[invidious smokescreen]]
+[[censored ulmus parvifolia]]
+[[perpendicular state of war]]
+[[cordiform commodities exchange]]

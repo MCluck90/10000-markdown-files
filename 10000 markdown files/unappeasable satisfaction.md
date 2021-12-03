@@ -78,3 +78,8 @@ Soles and Northumbria Ugh Serpent
 IT TO BE TRUE that's
 : Are their paws in THAT in this Beautiful Soup so small.
 
+
+## Wikilinks load test
+
+[[sleazy botany]]
+[[alphanumeric somersaulting]]

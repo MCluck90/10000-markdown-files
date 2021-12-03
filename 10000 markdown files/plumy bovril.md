@@ -81,3 +81,7 @@ interrupted the treat.
 Luckily for any pepper in salt
 : Which shall be afraid I've finished the neck which seemed quite finished.
 
+
+## Wikilinks load test
+
+[[unlawful sight]]

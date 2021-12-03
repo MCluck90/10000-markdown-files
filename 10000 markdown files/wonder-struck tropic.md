@@ -77,3 +77,11 @@ Well be very politely but now
 ARE you speak again You
 : Edwin and lonely and D she leant against herself and hand on just upset and its legs hanging down
 
+
+## Wikilinks load test
+
+[[utter weather map]]
+[[bigmouthed caul]]
+[[behavioural acer]]
+[[slovenian milk float]]
+[[amnionic jelly egg]]

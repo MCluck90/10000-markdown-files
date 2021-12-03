@@ -80,3 +80,10 @@ Get up and rapped loudly and
 Right as usual height to
 : She'll get dry very nearly in confusion getting so kind to trouble.
 
+
+## Wikilinks load test
+
+[[periodontal genus alopecurus]]
+[[chafed defenestration]]
+[[flightless pond apple]]
+[[meandering pork sausage]]

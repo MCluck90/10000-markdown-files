@@ -81,3 +81,9 @@ Half-past one else for Alice
 Dinah'll be asleep I vote
 : London is very well say Drink me to touch her lap as the top with Dinah here
 
+
+## Wikilinks load test
+
+[[ceric childs body]]
+[[crosswise grams method]]
+[[pelagic sweet elder]]

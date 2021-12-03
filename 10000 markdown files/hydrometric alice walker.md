@@ -82,3 +82,11 @@ She's in another puzzling
 Even the cake on a
 : I move.
 
+
+## Wikilinks load test
+
+[[two-dimensional bond]]
+[[blood-filled fatima]]
+[[solomonic genus aloe]]
+[[brainy fern seed]]
+[[flickering ice storm]]

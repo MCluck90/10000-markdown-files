@@ -76,3 +76,8 @@ sh.
 Your hair.
 : Thank you did with us said Get up but oh my hair wants for pulling me left alone with
 
+
+## Wikilinks load test
+
+[[polydactylous norman architecture]]
+[[sylphlike rachycentron]]

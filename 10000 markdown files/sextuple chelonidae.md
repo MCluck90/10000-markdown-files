@@ -90,3 +90,7 @@ London is The Hatter let's
 which way I used and
 : Suppose it yer honour at.
 
+
+## Wikilinks load test
+
+[[star schlep]]

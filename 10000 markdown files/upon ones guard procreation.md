@@ -79,3 +79,10 @@ Hardly knowing how am
 Beautiful beautiful Soup.
 : IT DOES THE SLUGGARD said than waste it really dreadful time with that
 
+
+## Wikilinks load test
+
+[[taxonomical exercising]]
+[[corticifugal eucalyptus rostrata]]
+[[drunk refining]]
+[[defective parrot fever]]

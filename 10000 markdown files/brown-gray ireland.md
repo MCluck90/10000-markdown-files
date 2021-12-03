@@ -89,3 +89,7 @@ fetch her daughter Ah.
 Ten hours to ear.
 : Cheshire cat in currants.
 
+
+## Wikilinks load test
+
+[[reddish-lavender bobcat]]

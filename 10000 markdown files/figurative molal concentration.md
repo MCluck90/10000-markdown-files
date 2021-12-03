@@ -84,3 +84,7 @@ How dreadfully ugly child for showing
 May it it myself the
 : later.
 
+
+## Wikilinks load test
+
+[[blue-fruited star-duckweed]]

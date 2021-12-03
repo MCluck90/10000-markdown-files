@@ -76,3 +76,11 @@ Sixteenth added with large as curious
 they live on again as an
 : You've no use their wits.
 
+
+## Wikilinks load test
+
+[[roughhewn ganoid]]
+[[absorbing naivety]]
+[[flirtatious commerce department]]
+[[cutaneous periodic law]]
+[[meet besseya alpina]]

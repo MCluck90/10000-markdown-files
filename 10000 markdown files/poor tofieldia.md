@@ -77,3 +77,10 @@ a ring with each case with
 That's right not yet
 : Mind now.
 
+
+## Wikilinks load test
+
+[[permutable church festival]]
+[[peaceable family triakidae]]
+[[otherworldly synanceja verrucosa]]
+[[worldwide fat cat]]

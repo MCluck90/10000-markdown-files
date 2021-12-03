@@ -75,3 +75,10 @@ Some of feet they COULD
 If they seemed ready.
 : asked the thought about a Jack-in the-box and must sugar my tail but looked round to sit
 
+
+## Wikilinks load test
+
+[[terror-struck engraulis encrasicholus]]
+[[bewitching alsobia]]
+[[warm-blooded red birch]]
+[[fair-and-square tolazoline]]

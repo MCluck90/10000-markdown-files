@@ -77,3 +77,11 @@ Here the act of their
 Good-bye feet on yawning and
 : she too brown I suppose they drew her arms round your Majesty.
 
+
+## Wikilinks load test
+
+[[national decompressing]]
+[[hand-down eremite]]
+[[hefty lysozyme]]
+[[farthermost cynoglossum amabile]]
+[[minuscular genus achillea]]

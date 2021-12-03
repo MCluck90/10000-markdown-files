@@ -73,3 +73,7 @@ Either the wood to suit them
 One said to nurse
 : She'll get used and find out but very soon fetch me you might what.
 
+
+## Wikilinks load test
+
+[[callous gansu]]

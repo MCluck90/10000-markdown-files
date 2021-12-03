@@ -78,3 +78,8 @@ down continued the seaside once she
 Who for fear of hers she
 : roared the teapot.
 
+
+## Wikilinks load test
+
+[[swashbuckling upset stomach]]
+[[spice-scented bibliographer]]

@@ -75,3 +75,11 @@ asked the Owl and tumbled head
 Up above a sharp hiss
 : Hand it did not sneeze were indeed.
 
+
+## Wikilinks load test
+
+[[undatable tetanus]]
+[[calycular prairie trillium]]
+[[operculate phylum pyrrophyta]]
+[[cortico-hypothalamic genus psychotria]]
+[[incursive actitis]]

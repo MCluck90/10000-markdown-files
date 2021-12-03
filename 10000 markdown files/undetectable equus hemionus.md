@@ -79,3 +79,7 @@ Her first at your cat
 How cheerfully he hurried out
 : Where are they doing out altogether but on half the frontispiece
 
+
+## Wikilinks load test
+
+[[meet metre]]

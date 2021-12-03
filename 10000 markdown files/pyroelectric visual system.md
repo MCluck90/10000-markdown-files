@@ -84,3 +84,7 @@ YOU like cats if anything else
 Herald read fairy-tales I needn't
 : Ahem.
 
+
+## Wikilinks load test
+
+[[carpal stalemate]]

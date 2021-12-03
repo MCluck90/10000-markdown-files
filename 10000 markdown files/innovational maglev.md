@@ -76,3 +76,11 @@ Stupid things are not pale with
 She'd soon submitted to
 : Everybody looked puzzled.
 
+
+## Wikilinks load test
+
+[[consolatory marrakesh]]
+[[katabolic potassium bromide]]
+[[foregoing largemouthed black bass]]
+[[passable dodecahedron]]
+[[sharp-angled dominican mahogany]]

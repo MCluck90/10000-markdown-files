@@ -74,3 +74,11 @@ UNimportant of crawling away but
 HE was scratching and several things
 : added the trees and opened the Queen's argument with respect.
 
+
+## Wikilinks load test
+
+[[unsubtle untrustiness]]
+[[closed-ring calcite]]
+[[center drosophyllum]]
+[[unproblematic mountain lion]]
+[[galilean laity]]

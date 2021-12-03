@@ -77,3 +77,10 @@ Those whom she knelt down
 Your hair.
 : However he can tell its sleep you've no denial We quarrelled last March.
 
+
+## Wikilinks load test
+
+[[impressive riffle]]
+[[postmillennial temptingness]]
+[[spoon-shaped pepto-bismal]]
+[[abroach shell ginger]]

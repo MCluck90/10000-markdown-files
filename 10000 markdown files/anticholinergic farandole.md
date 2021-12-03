@@ -79,3 +79,7 @@ wow.
 Of course he would die.
 : Cheshire Puss she remarked.
 
+
+## Wikilinks load test
+
+[[palmlike bowleg]]

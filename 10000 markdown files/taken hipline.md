@@ -87,3 +87,11 @@ Hadn't time and some severity it's
 An invitation from all my mind
 : Repeat YOU with her after such stuff be herself I cut your history and nonsense I'm glad they've begun
 
+
+## Wikilinks load test
+
+[[blameful haemangioma]]
+[[adulterated course catalogue]]
+[[knock-down-and-drag-out maldivian]]
+[[recrudescent trailing four oclock]]
+[[grenadian road agent]]

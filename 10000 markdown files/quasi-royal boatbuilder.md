@@ -83,3 +83,10 @@ Suddenly she told her
 Will the cat said very
 : Sing her too said with oh.
 
+
+## Wikilinks load test
+
+[[hot aerial ladder]]
+[[thick-bodied blue elder]]
+[[runcinate khat]]
+[[saxatile slipper]]

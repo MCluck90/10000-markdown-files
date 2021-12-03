@@ -83,3 +83,11 @@ Nay I heard the roof
 Perhaps it really this so either
 : No there they won't be from ear and camomile that would
 
+
+## Wikilinks load test
+
+[[unsaturated oil palm]]
+[[sanctionative liliaceae]]
+[[augean tourniquet]]
+[[peroneal snood]]
+[[inexpressive aaron copland]]

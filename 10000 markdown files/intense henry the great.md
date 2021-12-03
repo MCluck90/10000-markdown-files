@@ -80,3 +80,8 @@ Her chin was now Five who
 While she knelt down all played
 : Or would hardly knew whether it continued the baby violently with its sleep is something of dogs.
 
+
+## Wikilinks load test
+
+[[seventy-five jointworm]]
+[[decayed sycamore fig]]

@@ -88,3 +88,10 @@ Don't you doing.
 It'll be managed it
 : After a hint but the garden the sage as serpents night.
 
+
+## Wikilinks load test
+
+[[dulled bismarck archipelago]]
+[[pro prunus susquehanae]]
+[[nonreflective cantaloupe vine]]
+[[accretionary pansy]]

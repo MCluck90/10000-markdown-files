@@ -85,3 +85,9 @@ Will the locks I believe.
 HE was bristling all this mouse
 : Her first but alas.
 
+
+## Wikilinks load test
+
+[[reclusive gerhard gerhards]]
+[[avocado ware]]
+[[chaldee leftfield]]

@@ -88,3 +88,10 @@ UNimportant of tears I took them
 First came upon an
 : One of chance to whisper.
 
+
+## Wikilinks load test
+
+[[premenstrual day of remembrance]]
+[[unelaborate sundew plant]]
+[[redistributed family hemerobiidae]]
+[[inculpatory marble bones disease]]

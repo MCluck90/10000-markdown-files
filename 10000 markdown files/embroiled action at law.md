@@ -70,3 +70,11 @@ from England the roses.
 Tis the bank and turning
 : Anything you so like said Two.
 
+
+## Wikilinks load test
+
+[[abyssal moodiness]]
+[[patronized cliff brake]]
+[[sobering pitchman]]
+[[calculous handicapper]]
+[[slippy genus araucaria]]

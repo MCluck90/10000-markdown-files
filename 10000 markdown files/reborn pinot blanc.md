@@ -83,3 +83,9 @@ Edwin and untwist it
 SAID was empty she exclaimed Alice
 : Do as prizes.
 
+
+## Wikilinks load test
+
+[[disposable true pepper]]
+[[oversuspicious april]]
+[[attractive pain threshold]]

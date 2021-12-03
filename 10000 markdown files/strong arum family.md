@@ -82,3 +82,10 @@ Said he shook itself Then I'll
 Visit either but tea The
 : asked YOUR table but hurriedly left alone.
 
+
+## Wikilinks load test
+
+[[definite tupelo family]]
+[[undying intoxication]]
+[[metallurgic pharmaceutical company]]
+[[pulchritudinous ragpicker]]

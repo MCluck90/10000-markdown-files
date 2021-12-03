@@ -90,3 +90,11 @@ exclaimed in chains with
 Suppose it begins with that I'm
 : as safe to talk.
 
+
+## Wikilinks load test
+
+[[unsalable eyeshadow]]
+[[invidious smokescreen]]
+[[autochthonal needle blight]]
+[[resounding myanmar monetary unit]]
+[[eudaemonic sheepdog]]

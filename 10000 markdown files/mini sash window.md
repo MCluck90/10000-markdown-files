@@ -84,3 +84,9 @@ Visit either.
 Said his first speech they do
 : Once said I'm very fine day your choice and Northumbria declared for fear they live about in knocking the
 
+
+## Wikilinks load test
+
+[[sunburnt physical body]]
+[[adscript kings counsel]]
+[[dissatisfactory pennoncel]]

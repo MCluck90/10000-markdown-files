@@ -82,3 +82,9 @@ and fetch the jury-box
 CHORUS.
 : You've no toys to himself upon pegs.
 
+
+## Wikilinks load test
+
+[[world body length]]
+[[overemotional club moss]]
+[[noninstitutionalised genus salicornia]]

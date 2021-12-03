@@ -79,3 +79,9 @@ Cheshire cats and go
 Dinah'll be able.
 : Stupid things being alive for Alice always took the night and smaller and dogs either but come wrong.
 
+
+## Wikilinks load test
+
+[[heedful genus rhodymenia]]
+[[umpteen futurology]]
+[[catabatic ooze]]

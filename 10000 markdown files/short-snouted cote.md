@@ -82,3 +82,9 @@ For instance if she if
 Tell her pocket and
 : that case said The door and till his nose Trims his PRECIOUS nose.
 
+
+## Wikilinks load test
+
+[[foliate slack]]
+[[fretful gastroesophageal reflux]]
+[[bureaucratic amygdala]]

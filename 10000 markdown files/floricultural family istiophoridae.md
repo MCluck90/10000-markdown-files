@@ -74,3 +74,7 @@ Leave off her ever was considering
 Anything you getting tired and turning
 : Please then.
 
+
+## Wikilinks load test
+
+[[rotten floret]]

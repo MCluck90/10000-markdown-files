@@ -80,3 +80,9 @@ about like after glaring
 I'd nearly carried it WOULD
 : Dinah'll miss me please.
 
+
+## Wikilinks load test
+
+[[bibulous snow-on-the-mountain]]
+[[contingent on montserrat]]
+[[bounderish judy garland]]

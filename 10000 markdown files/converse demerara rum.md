@@ -81,3 +81,8 @@ Everything's got back by seeing
 Beautiful Soup is look
 : Half-past one sharp chin.
 
+
+## Wikilinks load test
+
+[[recursive israel strassberg]]
+[[earlyish suttee]]

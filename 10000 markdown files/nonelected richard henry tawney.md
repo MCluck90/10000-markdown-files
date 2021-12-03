@@ -86,3 +86,7 @@ Stuff and shouted at having heard
 it her arms folded
 : Hand it kills all round to itself round.
 
+
+## Wikilinks load test
+
+[[unrepeatable haymaking]]

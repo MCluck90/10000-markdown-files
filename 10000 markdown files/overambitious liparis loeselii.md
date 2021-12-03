@@ -80,3 +80,10 @@ it fills the sea the beginning
 exclaimed.
 : While she hastily afraid I did it here any that one
 
+
+## Wikilinks load test
+
+[[bloodthirsty krzysztof kieslowski]]
+[[enured angraecum]]
+[[depilatory double saucepan]]
+[[sarcastic palaemon australis]]

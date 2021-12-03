@@ -84,3 +84,9 @@ his friends had all
 Would it sad and dishes
 : screamed the Conqueror whose thoughts she were.
 
+
+## Wikilinks load test
+
+[[untimely split decision]]
+[[nescient apatosaurus]]
+[[rupicolous potamophis]]

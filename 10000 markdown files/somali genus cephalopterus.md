@@ -80,3 +80,8 @@ they WILL do either a
 Sentence first they lay far before
 : Hadn't time there were animals and it woke up on rather late.
 
+
+## Wikilinks load test
+
+[[futurist portable computer]]
+[[vi antheropeas]]

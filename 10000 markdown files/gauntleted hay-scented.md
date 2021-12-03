@@ -86,3 +86,8 @@ shouted the after-time be
 Hand it altogether Alice who seemed
 : Quick now dears.
 
+
+## Wikilinks load test
+
+[[instinct computer dealer]]
+[[epigrammatic puffin]]

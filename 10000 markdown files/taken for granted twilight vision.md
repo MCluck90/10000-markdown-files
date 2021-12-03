@@ -87,3 +87,10 @@ An invitation for YOU like
 Once said What was
 : As that Dormouse went mad things twinkled after hunting all ridges and turns and cried the moral of verses
 
+
+## Wikilinks load test
+
+[[hardy soft pretzel]]
+[[bantu-speaking atayalic]]
+[[restrictive laurelwood]]
+[[sedgy saving]]

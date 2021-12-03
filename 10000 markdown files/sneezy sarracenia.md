@@ -85,3 +85,11 @@ one quite pale beloved snail
 interrupted.
 : shouted out.
 
+
+## Wikilinks load test
+
+[[forty-eighth spanish oak]]
+[[liturgical ytterbium]]
+[[blackened communicativeness]]
+[[passionless streamer fly]]
+[[understood very high frequency]]

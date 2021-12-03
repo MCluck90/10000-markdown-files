@@ -83,3 +83,9 @@ Whoever lives.
 So they haven't opened
 : Whoever lives.
 
+
+## Wikilinks load test
+
+[[plenary centigrade thermometer]]
+[[peaceable family triakidae]]
+[[tempest-tossed vascular bundle]]

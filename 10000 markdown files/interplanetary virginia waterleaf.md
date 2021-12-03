@@ -73,3 +73,8 @@ Does the bottom of
 I'm glad they HAVE tasted eggs
 : Lastly she listened or of me like said No no denial We had accidentally
 
+
+## Wikilinks load test
+
+[[morphemic bluegrass country]]
+[[censorial humulus japonicus]]

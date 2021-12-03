@@ -84,3 +84,10 @@ An arm curled round eager
 Once more sounds uncommon nonsense
 : pleaded Alice by the happy summer days.
 
+
+## Wikilinks load test
+
+[[infrasonic male bonding]]
+[[botanic lancaster]]
+[[impure ash cake]]
+[[bimestrial ranunculus flammula]]

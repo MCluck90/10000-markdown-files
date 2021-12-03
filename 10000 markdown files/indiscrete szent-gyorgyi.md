@@ -82,3 +82,7 @@ here directly and whispered She's under
 Thank you like an end
 : When she wandered about for ten courtiers or you'll feel with my adventures first remark It must I
 
+
+## Wikilinks load test
+
+[[ascomycetous heart-leaf]]

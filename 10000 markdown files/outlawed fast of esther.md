@@ -81,3 +81,10 @@ IF you should understand it
 It's a RED rose-tree
 : Off Nonsense.
 
+
+## Wikilinks load test
+
+[[geophysical coprophagia]]
+[[timorese rayless chamomile]]
+[[dimensioning entertainment center]]
+[[hedonic yogi berra]]

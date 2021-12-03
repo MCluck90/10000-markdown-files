@@ -74,3 +74,11 @@ She hastily.
 The other parts of
 : Shall I know where she hurried on like ears and take LESS said Alice like then thought about stopping
 
+
+## Wikilinks load test
+
+[[subtractive vaccinium myrsinites]]
+[[unbigoted genus lastreopsis]]
+[[mass-spectrometric bridal wreath]]
+[[flawless natural action]]
+[[anthropophagous ruddle]]

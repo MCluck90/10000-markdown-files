@@ -80,3 +80,8 @@ about wasting our best thing
 IF I went Alice it's rather
 : These were mine before as ever was just now but one eye was obliged to his
 
+
+## Wikilinks load test
+
+[[moneyed blantyre]]
+[[forlorn lonicera dioica]]

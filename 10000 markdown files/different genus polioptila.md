@@ -82,3 +82,10 @@ a sea the tale perhaps
 However he now what
 : Idiot.
 
+
+## Wikilinks load test
+
+[[dumbfounding closeup lens]]
+[[aeronautical hagiolatry]]
+[[dulled bismarck archipelago]]
+[[grammatical agave sisalana]]

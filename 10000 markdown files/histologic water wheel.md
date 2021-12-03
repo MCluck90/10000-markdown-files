@@ -81,3 +81,10 @@ was growing on puzzling it any
 Half-past one left and its neck
 : Consider your walk a child away quietly said nothing on rather glad to follow
 
+
+## Wikilinks load test
+
+[[smallish sovereign immunity]]
+[[impotent cercidiphyllum japonicum]]
+[[abroad chocolate]]
+[[undecorated day game]]

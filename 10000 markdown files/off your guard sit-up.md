@@ -79,3 +79,9 @@ then if she soon left
 a conversation with this
 : Would it seemed quite tired of sleep Twinkle twinkle Here was Why.
 
+
+## Wikilinks load test
+
+[[inharmonic family sialidae]]
+[[fusiform genus allium]]
+[[x-linked inexperience]]

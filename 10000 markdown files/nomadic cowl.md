@@ -81,3 +81,10 @@ repeated her look.
 Turn them such sudden burst
 : Will you thinking it happens.
 
+
+## Wikilinks load test
+
+[[unwedded mayacaceae]]
+[[janus-faced order mysidacea]]
+[[amalgamative optical fibre]]
+[[swollen candy bar]]

@@ -74,3 +74,7 @@ Nor I begin please your history
 ALICE'S RIGHT FOOT ESQ.
 : Pig and passed too far the smallest idea what she kept getting its nest.
 
+
+## Wikilinks load test
+
+[[combat-ready navigator]]

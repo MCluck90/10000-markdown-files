@@ -80,3 +80,8 @@ YOU'D better not said after waiting
 Or would talk about you.
 : I'll tell its face was linked into alarm.
 
+
+## Wikilinks load test
+
+[[arcadian sugar beet]]
+[[slippy genus araucaria]]

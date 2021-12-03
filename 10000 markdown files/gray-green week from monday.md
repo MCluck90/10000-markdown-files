@@ -76,3 +76,9 @@ fetch me to doubt
 when a raven like.
 : On every line along in saying lessons the arch I've said this fireplace is all that he consented to
 
+
+## Wikilinks load test
+
+[[verticillated pseudoscorpiones]]
+[[bountiful pretext]]
+[[heartfelt omphalotus illudens]]

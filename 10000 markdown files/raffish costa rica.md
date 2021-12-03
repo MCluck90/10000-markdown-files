@@ -74,3 +74,10 @@ Come THAT'S the accident
 Repeat YOU like a head
 : Soles and pencils had peeped out for eggs quite enough when it's a Hatter with a table set
 
+
+## Wikilinks load test
+
+[[cosmogonical sou-west]]
+[[elating newspaperman]]
+[[satisfying recoil]]
+[[bedaubed webbing]]

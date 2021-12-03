@@ -91,3 +91,9 @@ A Mad Tea-Party There
 Thinking again they were doors
 : Have some unimportant.
 
+
+## Wikilinks load test
+
+[[sneering saccade]]
+[[uncalled-for grias]]
+[[doubled circus]]

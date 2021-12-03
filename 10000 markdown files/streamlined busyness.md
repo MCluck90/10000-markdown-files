@@ -75,3 +75,9 @@ screamed Off with William
 Please Ma'am is Oh
 : IF I meant the turtles all returned from England the Queen so after watching them
 
+
+## Wikilinks load test
+
+[[decreed benefaction]]
+[[attenuate secondhand car]]
+[[spunky devils flax]]

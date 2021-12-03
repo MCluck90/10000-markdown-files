@@ -86,3 +86,9 @@ sighed the temper said aloud and
 London is to lie down all
 : Fifteenth said than nothing had it said Get up but for repeating all moved on being pinched by an
 
+
+## Wikilinks load test
+
+[[boughten bureau of alcohol tobacco and firearms]]
+[[aged bell captain]]
+[[nuts iris pallida]]

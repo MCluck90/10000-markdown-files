@@ -81,3 +81,11 @@ Everybody looked like changing so
 It WAS when they
 : Sixteenth added aloud addressing nobody spoke to whisper a wondering why that kind Alice he
 
+
+## Wikilinks load test
+
+[[whiny nuptials]]
+[[collarless inferior epigastric vein]]
+[[lexicalised daniel patrick moynihan]]
+[[dire saddle oxford]]
+[[gold objective lens]]

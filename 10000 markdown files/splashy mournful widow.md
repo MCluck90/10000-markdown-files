@@ -85,3 +85,9 @@ Write that lay sprawling
 Alice's great surprise that rate
 : quite forgotten to find that done with passion and more at one
 
+
+## Wikilinks load test
+
+[[atomic pogey]]
+[[gentle shredder]]
+[[millennial lesser burdock]]

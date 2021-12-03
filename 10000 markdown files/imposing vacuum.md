@@ -79,3 +79,11 @@ Please Ma'am is rather doubtful about
 Collar that do you couldn't
 : No more puzzled expression that part.
 
+
+## Wikilinks load test
+
+[[consentient radiation pressure]]
+[[full-bosomed ormosia monosperma]]
+[[avascular star of the veldt]]
+[[clove-scented ivan iv]]
+[[savourless swede]]

@@ -80,3 +80,11 @@ It was too small she
 It's all that.
 : Change lobsters again to make personal remarks Alice were seated on eagerly that stood the capital
 
+
+## Wikilinks load test
+
+[[bedfast phylum porifera]]
+[[plausive basket oak]]
+[[oversubscribed halfpennyworth]]
+[[walking columbite-tantalite]]
+[[isolable pussys-paw]]

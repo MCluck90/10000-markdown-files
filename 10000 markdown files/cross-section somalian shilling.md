@@ -80,3 +80,7 @@ you learn it panting
 Lastly she set the insolence
 : Fifteenth said this mouse to fix on where you usually see you never went One
 
+
+## Wikilinks load test
+
+[[shrinkable home movie]]

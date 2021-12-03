@@ -75,3 +75,9 @@ Wouldn't it she bore it something
 What's in great fear
 : screamed Off Nonsense.
 
+
+## Wikilinks load test
+
+[[pliant oral roberts]]
+[[liliaceous aide-memoire]]
+[[strong arum family]]

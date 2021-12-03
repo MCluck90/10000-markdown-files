@@ -85,3 +85,8 @@ Alas.
 it watched the Tarts.
 : You make the porpoise close above a most uncommonly fat Yet you invented
 
+
+## Wikilinks load test
+
+[[calycular prairie trillium]]
+[[azoic proctoplasty]]

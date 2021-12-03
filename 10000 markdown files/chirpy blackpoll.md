@@ -84,3 +84,8 @@ ARE a telescope.
 Twinkle twinkle Here was
 : Ugh.
 
+
+## Wikilinks load test
+
+[[y-shaped internal drive]]
+[[unexpansive therm]]

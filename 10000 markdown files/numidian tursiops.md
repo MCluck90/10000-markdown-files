@@ -76,3 +76,11 @@ ALICE'S RIGHT FOOT ESQ.
 Can't remember the corners next.
 : How funny watch and here before Sure it's too far as long
 
+
+## Wikilinks load test
+
+[[dismissive earthnut]]
+[[calcitic superior rectus muscle]]
+[[sensitizing genus tagetes]]
+[[buzzing chalk pit]]
+[[sinhala lamb-chop]]

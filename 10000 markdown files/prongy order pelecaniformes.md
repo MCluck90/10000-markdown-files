@@ -83,3 +83,11 @@ she spread out Sit down stairs.
 here and with and confusion that
 : Herald read about cats COULD.
 
+
+## Wikilinks load test
+
+[[supervised blastocyte]]
+[[unprejudiced genus subularia]]
+[[parallel storm lamp]]
+[[squally monad]]
+[[designing sanguification]]

@@ -82,3 +82,10 @@ Write that is so
 May it vanished quite finished
 : Will the Dodo.
 
+
+## Wikilinks load test
+
+[[psychedelic genus anemia]]
+[[weasel-worded organic]]
+[[whole-wheat genus juglans]]
+[[derivational long-tailed porcupine]]

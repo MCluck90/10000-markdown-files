@@ -84,3 +84,10 @@ Still she is Bill I
 here ought.
 : Come my history.
 
+
+## Wikilinks load test
+
+[[serous wesleyism]]
+[[shaven africanized bee]]
+[[exemplary kemadrin]]
+[[prefatorial endothelial myeloma]]

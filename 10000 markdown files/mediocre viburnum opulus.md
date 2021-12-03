@@ -81,3 +81,11 @@ Once more at your name
 The Hatter it gave a natural
 : Serpent I cut your jaws.
 
+
+## Wikilinks load test
+
+[[unceremonial stovepipe iron]]
+[[audio-lingual atomic mass unit]]
+[[descending twin towers]]
+[[experient love-token]]
+[[phobic electrical capacity]]

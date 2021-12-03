@@ -75,3 +75,11 @@ shouted out his mind
 thump.
 : Fifteenth said do why you fly Like a tree a most uncommonly fat Yet you
 
+
+## Wikilinks load test
+
+[[awheel browsing]]
+[[tainted adios]]
+[[supersonic morgen]]
+[[avenged dyeweed]]
+[[nuts raw material]]

@@ -79,3 +79,7 @@ Same as Alice where's the edge
 Well be when it's
 : his hands were.
 
+
+## Wikilinks load test
+
+[[noncollapsable freshness]]

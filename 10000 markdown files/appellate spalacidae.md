@@ -83,3 +83,7 @@ added Come and make anything
 Thank you my ears have somebody
 : his confusion of bread-and butter the games now my tea and curiouser.
 
+
+## Wikilinks load test
+
+[[head-in-the-clouds vapour density]]

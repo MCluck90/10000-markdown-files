@@ -85,3 +85,8 @@ Are you must I may stand
 Always lay the beak Pray
 : about them bitter and conquest.
 
+
+## Wikilinks load test
+
+[[myrmecophilous parqueterie]]
+[[surgical hematolysis]]

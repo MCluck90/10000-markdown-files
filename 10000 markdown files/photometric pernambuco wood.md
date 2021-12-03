@@ -80,3 +80,7 @@ Very soon fetch me
 Hand it put the
 : To begin.
 
+
+## Wikilinks load test
+
+[[re-entrant combat neurosis]]

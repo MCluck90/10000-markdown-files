@@ -92,3 +92,10 @@ Be what.
 Pat.
 : Hold your walk.
 
+
+## Wikilinks load test
+
+[[uncouth swan river everlasting]]
+[[shitless plasmablast]]
+[[earlyish suttee]]
+[[abroach shell ginger]]

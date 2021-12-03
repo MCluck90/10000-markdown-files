@@ -84,3 +84,8 @@ Who is narrow escape.
 YOU.
 : Pat.
 
+
+## Wikilinks load test
+
+[[sabre-toothed lobscuse]]
+[[horrid mysoline]]

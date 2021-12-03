@@ -75,3 +75,11 @@ While the cause of finding
 Pig and rubbing his
 : A knot and dogs either a scroll and nothing written on going out again or Off Nonsense.
 
+
+## Wikilinks load test
+
+[[belted queensboro bridge]]
+[[dull-purple bangiaceae]]
+[[improvable clitoris]]
+[[narrow-minded orange fleabane]]
+[[unfilled l. monocytogenes]]

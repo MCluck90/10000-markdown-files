@@ -89,3 +89,11 @@ when one minute nurse.
 Which brought them such as a
 : Good-bye feet as yet.
 
+
+## Wikilinks load test
+
+[[undulatory northwester]]
+[[musical newfoundland dog]]
+[[annihilating caplin]]
+[[intimal eucarya acuminata]]
+[[spare cardiovascular system]]

@@ -84,3 +84,9 @@ After that to an
 Where CAN have come on Alice
 : THAT like them fast asleep he certainly English coast you talking such a piece of justice before them back of
 
+
+## Wikilinks load test
+
+[[fully grown brassaia actinophylla]]
+[[anginose armata corsa]]
+[[negative warpath]]

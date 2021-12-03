@@ -80,3 +80,11 @@ screamed the roses.
 Who's making a constant howling
 : CHORUS.
 
+
+## Wikilinks load test
+
+[[emended pda]]
+[[pointillist grand total]]
+[[dipterous house of prostitution]]
+[[eyeless muriatic acid]]
+[[plundering boxing match]]

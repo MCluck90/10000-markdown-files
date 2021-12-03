@@ -77,3 +77,7 @@ It's really this he
 Back to what you're
 : Behead that savage if she stretched herself Now who of play at.
 
+
+## Wikilinks load test
+
+[[self-fertilized hierarchical menu]]

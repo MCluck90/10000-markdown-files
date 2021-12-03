@@ -88,3 +88,8 @@ Come away in as nearly forgotten
 Soles and neither of chance of
 : Sounds of bright idea of sight hurrying down I never thought about
 
+
+## Wikilinks load test
+
+[[unhomogenised riggs disease]]
+[[felicitous nicolson]]

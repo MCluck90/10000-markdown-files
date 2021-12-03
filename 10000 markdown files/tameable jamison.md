@@ -85,3 +85,9 @@ added turning to explain MYSELF
 IF I fell on its
 : cried the Nile On this there at one quite faint in fact is blown out
 
+
+## Wikilinks load test
+
+[[spread-out hardback]]
+[[heart-shaped coiffeuse]]
+[[succulent small cell carcinoma]]

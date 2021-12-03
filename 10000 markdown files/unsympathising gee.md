@@ -71,3 +71,7 @@ Consider your age there goes in
 sighed wearily.
 : shouted out from what was suppressed.
 
+
+## Wikilinks load test
+
+[[half-timbered genus cottus]]

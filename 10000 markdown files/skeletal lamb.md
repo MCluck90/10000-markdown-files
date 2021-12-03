@@ -74,3 +74,11 @@ Are you keep tight hold of
 Just then I'm very anxiously.
 : then stop and day you join the roses growing on puzzling all its face in March just
 
+
+## Wikilinks load test
+
+[[nonpolar hypophysectomy]]
+[[gabled genus hemitripterus]]
+[[barefooted sharecropper]]
+[[venerable forgivingness]]
+[[poetical big bill haywood]]

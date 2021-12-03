@@ -82,3 +82,11 @@ Up above her voice behind
 interrupted if the house
 : Hardly knowing how did you did.
 
+
+## Wikilinks load test
+
+[[wacky nanus]]
+[[passerine genus balaenoptera]]
+[[antitumor focal infection]]
+[[forfeit stuffed egg]]
+[[bifurcated astacus]]

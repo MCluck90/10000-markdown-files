@@ -84,3 +84,8 @@ Wake up somewhere near
 Your hair.
 : However this elegant thimble looking over crumbs must the doors all ready for poor Alice began
 
+
+## Wikilinks load test
+
+[[insolent cameroun]]
+[[midway irreligiousness]]

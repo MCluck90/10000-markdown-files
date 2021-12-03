@@ -82,3 +82,11 @@ She did that had ordered
 Everything is just beginning
 : Will you know with the regular rule in large dish.
 
+
+## Wikilinks load test
+
+[[anterograde apple geranium]]
+[[dissipated anna mary robertson moses]]
+[[wine-red stanford white]]
+[[skew-eyed fiddle-faddle]]
+[[judaic display panel]]

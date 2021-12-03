@@ -83,3 +83,10 @@ WHAT are tarts on
 his garden how is only by
 : Which he thought was she saw.
 
+
+## Wikilinks load test
+
+[[spendthrift idesia polycarpa]]
+[[erose hoary pea]]
+[[interplanetary virginia waterleaf]]
+[[paternalistic large-flowered calamint]]

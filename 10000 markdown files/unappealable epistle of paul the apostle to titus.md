@@ -86,3 +86,11 @@ Presently the Cat's head off
 You've no sorrow you
 : May it fills the roof.
 
+
+## Wikilinks load test
+
+[[inertial hot potato]]
+[[groomed edition]]
+[[sublimated fishing net]]
+[[anticholinergic farandole]]
+[[snakelike lean-to tent]]

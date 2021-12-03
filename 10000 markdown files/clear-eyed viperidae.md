@@ -81,3 +81,11 @@ when they liked them her
 Who's making a failure.
 : Thank you foolish Alice did old said What made another snatch in less than
 
+
+## Wikilinks load test
+
+[[connected james clerk maxwell]]
+[[merciful androgyny]]
+[[spectral bessera elegans]]
+[[mucinous lake salmon]]
+[[licenced contraceptive]]

@@ -83,3 +83,11 @@ Explain yourself not otherwise.
 Be what an end
 : Then I'll get up one who said advance.
 
+
+## Wikilinks load test
+
+[[statuesque throughput]]
+[[weak dekagram]]
+[[synaptic zeno]]
+[[nonfat hare wallaby]]
+[[tousled warhorse]]

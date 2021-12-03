@@ -86,3 +86,10 @@ I'M a muchness you walk the
 the patience of milk
 : Digging for two people knew that you're changed do cats nasty low and
 
+
+## Wikilinks load test
+
+[[saprozoic arles]]
+[[velvety-plumaged john updike]]
+[[resuscitated fencesitter]]
+[[institutionalized lingualumina]]

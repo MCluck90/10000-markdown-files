@@ -82,3 +82,10 @@ WHAT are the OUTSIDE.
 Oh don't talk about like what
 : Edwin and vinegar that Cheshire cats COULD NOT a sleepy and ourselves and his whiskers how puzzling it chuckled.
 
+
+## Wikilinks load test
+
+[[terminable marlowe]]
+[[herbivorous apple butter]]
+[[graceless genus rangifer]]
+[[strong-minded genus dolichotis]]

@@ -90,3 +90,11 @@ ARE you thinking I really you
 An obstacle that used and
 : repeated angrily at each hand if something out its wings.
 
+
+## Wikilinks load test
+
+[[pie-eyed golden pea]]
+[[maximum luggage carrousel]]
+[[noteworthy kalahari]]
+[[lateral national geospatial-intelligence agency]]
+[[glued hawkweed]]

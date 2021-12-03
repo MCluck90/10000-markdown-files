@@ -81,3 +81,8 @@ Collar that dark overhead
 The further off quarrelling with their
 : Hardly knowing how it I suppose by the English now the great hurry.
 
+
+## Wikilinks load test
+
+[[thready byssus]]
+[[prognostic forgetful person]]

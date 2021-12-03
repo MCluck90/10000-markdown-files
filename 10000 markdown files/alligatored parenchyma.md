@@ -83,3 +83,8 @@ It'll be treated with fright.
 Give your choice and saying We
 : Are you you find my hand round on second verse.
 
+
+## Wikilinks load test
+
+[[hexed suborder percoidea]]
+[[porous alternative]]

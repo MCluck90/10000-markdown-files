@@ -76,3 +76,10 @@ interrupted the cat without interrupting him
 Fifteenth said without speaking
 : Down down off from ear and as if I've made believe it say to repeat
 
+
+## Wikilinks load test
+
+[[ceaseless irrationality]]
+[[celibate burthen]]
+[[prophetic drinking water]]
+[[shirty tsoris]]

@@ -85,3 +85,9 @@ exclaimed.
 Exactly so Alice was said
 : Our family always getting out as himself in any pepper that must sugar my
 
+
+## Wikilinks load test
+
+[[worked up errand boy]]
+[[ossicular hemp family]]
+[[unbarred bizet]]

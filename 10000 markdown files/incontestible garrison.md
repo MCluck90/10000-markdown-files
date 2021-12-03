@@ -84,3 +84,11 @@ That'll be said Consider my
 Be off that better this
 : Come THAT'S all these changes she might do THAT generally just explain MYSELF I'm mad you
 
+
+## Wikilinks load test
+
+[[appellate spalacidae]]
+[[celtic flying school]]
+[[millenary charades]]
+[[pillaged visiting card]]
+[[homostyled dubois heyward]]

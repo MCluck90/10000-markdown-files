@@ -83,3 +83,10 @@ Ahem.
 CHORUS.
 : Suddenly she hastily for Mabel.
 
+
+## Wikilinks load test
+
+[[most table rapping]]
+[[cleanable monocular vision]]
+[[feminist smooth plane]]
+[[scant shiah islam]]

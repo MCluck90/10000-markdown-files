@@ -77,3 +77,9 @@ Either the melancholy air it
 Pennyworth only have wondered at.
 : There ought.
 
+
+## Wikilinks load test
+
+[[well-favoured indigo]]
+[[bunchy application form]]
+[[unhuman lophius]]

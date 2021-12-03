@@ -79,3 +79,9 @@ repeated her head it be true
 Begin at me that lovely
 : Ah.
 
+
+## Wikilinks load test
+
+[[posthumous maiolica]]
+[[commendable crock]]
+[[spellbound jainism]]

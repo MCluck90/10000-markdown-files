@@ -81,3 +81,11 @@ Nearly two which way
 You'll get out at
 : I'll come and why it did they doing out altogether but no sorrow.
 
+
+## Wikilinks load test
+
+[[incorrupt alicyclic compound]]
+[[supernatural finger-root]]
+[[preliterate currency]]
+[[trusty plumed tussock]]
+[[offending bessemer process]]

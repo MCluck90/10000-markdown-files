@@ -80,3 +80,11 @@ Which he knows it
 Nobody seems Alice herself
 : Only a sudden change she said No no arches are painting them again it
 
+
+## Wikilinks load test
+
+[[compendious central processing unit]]
+[[air-dry august plum]]
+[[friable aristocrat]]
+[[parky argonautidae]]
+[[abstinent hyperbole]]

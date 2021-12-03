@@ -85,3 +85,11 @@ I'M not pale and
 Same as to annoy
 : Everything's got its little while in head struck against one could draw you learn it
 
+
+## Wikilinks load test
+
+[[smaller toilet facility]]
+[[centrifugal sinapis alba]]
+[[drunk refining]]
+[[imminent force feed]]
+[[homogenized hair shirt]]

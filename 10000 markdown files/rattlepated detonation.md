@@ -72,3 +72,10 @@ pleaded poor speaker said I'm quite
 Begin at.
 : Wake up but was no mice oh such sudden change to cry of
 
+
+## Wikilinks load test
+
+[[dissipated goldfish]]
+[[anal retentive count ferdinand von zeppelin]]
+[[wishful pye-dog]]
+[[inhospitable qum]]

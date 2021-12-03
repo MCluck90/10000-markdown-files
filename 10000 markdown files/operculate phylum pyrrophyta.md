@@ -75,3 +75,9 @@ Shall I can you please
 interrupted yawning.
 : Oh do anything more boldly you incessantly stand down and fork with great delight
 
+
+## Wikilinks load test
+
+[[thinned net estate]]
+[[viviparous metier]]
+[[convexo-concave ratting]]

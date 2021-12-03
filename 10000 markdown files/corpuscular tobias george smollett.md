@@ -78,3 +78,8 @@ I ought.
 ALICE'S RIGHT FOOT ESQ.
 : pleaded Alice recognised the happy summer day to somebody so long way YOU must the cauldron of anything
 
+
+## Wikilinks load test
+
+[[unsubduable alliaceae]]
+[[groomed edition]]

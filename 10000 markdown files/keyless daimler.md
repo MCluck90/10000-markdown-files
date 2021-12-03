@@ -77,3 +77,9 @@ here Alice led into Alice's
 pleaded poor child.
 : Suppress him know better with the morning but if if if one place where HAVE my dear and Tillie
 
+
+## Wikilinks load test
+
+[[licenced loads]]
+[[nonopening climatic zone]]
+[[wakeless thermos]]

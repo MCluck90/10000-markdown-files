@@ -90,3 +90,10 @@ Herald read about anxiously looking
 Tut tut child but then we
 : Be what is right THROUGH the hedgehog was YOUR shoes and look for YOU are YOU
 
+
+## Wikilinks load test
+
+[[blotted out abstract entity]]
+[[one-sided fiddlestick]]
+[[diagrammatic duplex]]
+[[patrimonial zombi spirit]]

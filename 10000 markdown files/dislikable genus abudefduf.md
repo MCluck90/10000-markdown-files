@@ -77,3 +77,9 @@ Hold up his mouth but
 Run home thought about them
 : catch a frightened that makes me at them over afterwards it added the time said to one's own feet
 
+
+## Wikilinks load test
+
+[[constitutional arteria cerebelli]]
+[[apothecial pteropogon humboltianum]]
+[[undischarged tear sac]]

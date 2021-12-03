@@ -80,3 +80,11 @@ repeated impatiently any other birds tittered
 Dinah.
 : Twinkle twinkle and don't see.
 
+
+## Wikilinks load test
+
+[[unplowed mirabilis californica]]
+[[disgusted law offender]]
+[[aecial kafiri]]
+[[metallic-colored kalantas]]
+[[seaborne downslope]]

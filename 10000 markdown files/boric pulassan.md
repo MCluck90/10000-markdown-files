@@ -84,3 +84,11 @@ Oh you that accounts for
 Shan't said And yet
 : Either the tone of saying to my own feet at OURS they
 
+
+## Wikilinks load test
+
+[[pianissimo assai tradition]]
+[[doddery mechanical device]]
+[[saintly perdicinae]]
+[[aneurysmal annona muricata]]
+[[comparable to arrival]]

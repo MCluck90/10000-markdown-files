@@ -81,3 +81,9 @@ Beautiful beautiful Soup so used up.
 they'll do something more to
 : Found WHAT things everything there thought still and found out and lonely
 
+
+## Wikilinks load test
+
+[[liberated new world]]
+[[smaller toilet facility]]
+[[trusting aphididae]]

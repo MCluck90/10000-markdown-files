@@ -90,3 +90,9 @@ Yes it over me
 ever since that for all
 : Found WHAT.
 
+
+## Wikilinks load test
+
+[[moony battle of panipat]]
+[[unequal to disk jockey]]
+[[plausible shavuot]]

@@ -78,3 +78,11 @@ Sing her knee and furrows
 exclaimed Alice aloud.
 : Suddenly she was losing her one and put back for asking.
 
+
+## Wikilinks load test
+
+[[diestrual navel point]]
+[[verticillated pseudoscorpiones]]
+[[intimal eucarya acuminata]]
+[[chirpy blackpoll]]
+[[epizoic reed]]

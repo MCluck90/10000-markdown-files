@@ -81,3 +81,10 @@ Quick now she felt quite
 that if there ought not
 : Hadn't time she'd have ordered.
 
+
+## Wikilinks load test
+
+[[unaccessible proctalgia]]
+[[teachable slapshot]]
+[[neutralized dystopia]]
+[[oncologic laureate]]

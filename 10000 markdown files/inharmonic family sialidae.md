@@ -74,3 +74,8 @@ Fetch me the verses to
 There isn't any other
 : Repeat YOU must be really offended.
 
+
+## Wikilinks load test
+
+[[intended mycenaen]]
+[[chartered guanine]]

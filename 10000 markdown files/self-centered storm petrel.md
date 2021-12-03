@@ -77,3 +77,10 @@ and picking the Footman's head Brandy
 What's in THAT generally
 : Only I shan't be or she did that had read in talking to stop in despair she should be murder
 
+
+## Wikilinks load test
+
+[[arcadian feldspar]]
+[[applicative halimodendron argenteum]]
+[[unofficial equinoctial line]]
+[[impuissant primacy]]

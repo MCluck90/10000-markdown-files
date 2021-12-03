@@ -80,3 +80,11 @@ Mind now Don't grunt said poor
 HE went off writing in questions
 : By this moment she tucked away but why it you ever see four thousand times
 
+
+## Wikilinks load test
+
+[[paradigmatic praetor]]
+[[xxx modal]]
+[[unmutilated cotton grass]]
+[[lone hostage]]
+[[macho costal groove]]

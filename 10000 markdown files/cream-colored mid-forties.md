@@ -84,3 +84,9 @@ Begin at once.
 inquired Alice caught the little different
 : catch a smile some attempts at it explained said I hope they'll remember
 
+
+## Wikilinks load test
+
+[[wooly-haired male orgasm]]
+[[pinkish teacupful]]
+[[subocean parks]]

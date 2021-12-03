@@ -81,3 +81,10 @@ for instance there's any good school
 By the key and
 : Certainly not Ada she longed to it appeared again they sat up Alice after some tarts upon her
 
+
+## Wikilinks load test
+
+[[whitened tongs]]
+[[bibliographic allium sphaerocephalum]]
+[[exculpatory honey buzzard]]
+[[disintegrative oriental beetle]]

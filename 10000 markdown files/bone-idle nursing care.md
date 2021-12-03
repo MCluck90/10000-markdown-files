@@ -81,3 +81,10 @@ Even the exact shape
 he hasn't got no
 : was this as its wings.
 
+
+## Wikilinks load test
+
+[[aimless ranee]]
+[[loose-fitting rocco marciano]]
+[[epizoic addiction]]
+[[behind-the-scenes family paridae]]

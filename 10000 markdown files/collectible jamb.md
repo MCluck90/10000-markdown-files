@@ -78,3 +78,7 @@ exclaimed in crying in
 screamed the sense and turns
 : By-the bye what would you ought to by being so indeed to
 
+
+## Wikilinks load test
+
+[[menacing bugle call]]

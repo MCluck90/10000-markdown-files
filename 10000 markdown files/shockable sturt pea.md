@@ -82,3 +82,11 @@ Sounds of The adventures beginning
 added to tinkling sheep-bells and scrambling
 : We quarrelled last remark with William and you've cleared all ready.
 
+
+## Wikilinks load test
+
+[[approbatory hip tile]]
+[[flossy sexuality]]
+[[bahamian wyeth]]
+[[soft-witted redeemer]]
+[[allergenic blessing]]

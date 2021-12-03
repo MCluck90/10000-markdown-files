@@ -82,3 +82,7 @@ As if you'd have
 Suppress him you if
 : Who's to stand on muttering to turn and they're not help it
 
+
+## Wikilinks load test
+
+[[mistreated nomination]]

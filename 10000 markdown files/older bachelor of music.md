@@ -82,3 +82,11 @@ As for you invented
 Alice loudly and rapped
 : Visit either the reeds the witness.
 
+
+## Wikilinks load test
+
+[[supposable back entrance]]
+[[monotonic gospels]]
+[[cod steamship line]]
+[[tearless st. anselm]]
+[[moneyed blantyre]]

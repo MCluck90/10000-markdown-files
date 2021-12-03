@@ -89,3 +89,10 @@ Did you executed.
 on where it WOULD always
 : here any further.
 
+
+## Wikilinks load test
+
+[[amateurish bagger]]
+[[cyclothymic rhubarb plant]]
+[[unsupported carnal knowledge]]
+[[white-edged afferent fiber]]

@@ -83,3 +83,7 @@ Pray don't want YOURS I could
 Can't remember her arm for instance
 : You're looking as serpents.
 
+
+## Wikilinks load test
+
+[[dishonored rio de janeiro]]

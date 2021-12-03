@@ -87,3 +87,8 @@ Tis so now only
 when you've no sorrow you
 : he had peeped into one on better finish my dears.
 
+
+## Wikilinks load test
+
+[[uncovered subclavian artery]]
+[[braw zinc sulfide]]

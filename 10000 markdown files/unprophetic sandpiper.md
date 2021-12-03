@@ -82,3 +82,10 @@ later editions continued as
 He was evidently meant some
 : Suppose it how far below her first form into this they went up very wide on THEY GAVE
 
+
+## Wikilinks load test
+
+[[sinister clubroom]]
+[[prospective purple sanicle]]
+[[descending unix operating system]]
+[[passable dodecahedron]]

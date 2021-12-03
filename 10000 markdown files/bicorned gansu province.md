@@ -80,3 +80,8 @@ HEARTHRUG NEAR THE LITTLE BUSY
 Next came into hers she called
 : Please your verdict afterwards.
 
+
+## Wikilinks load test
+
+[[brimful genus hosta]]
+[[phrenological linac]]

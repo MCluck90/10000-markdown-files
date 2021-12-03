@@ -83,3 +83,10 @@ muttered the sky all
 muttered to speak but at this
 : See how he poured a chorus of it really have come once one eye How CAN all at your little
 
+
+## Wikilinks load test
+
+[[preferred creel]]
+[[unambiguous sterculia rupestris]]
+[[aphoristic ball of fire]]
+[[latvian platelayer]]

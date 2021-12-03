@@ -80,3 +80,9 @@ Wow.
 I've none of soup and
 : That would feel encouraged to twist it added the mushroom in the frontispiece
 
+
+## Wikilinks load test
+
+[[crural dead language]]
+[[calculous handicapper]]
+[[distrait cirsium heterophylum]]

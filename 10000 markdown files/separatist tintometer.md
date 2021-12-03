@@ -75,3 +75,8 @@ cried the sky all sorts
 Begin at having tea
 : Nobody asked.
 
+
+## Wikilinks load test
+
+[[unpalatable mariposa tulip]]
+[[amidship pretence]]

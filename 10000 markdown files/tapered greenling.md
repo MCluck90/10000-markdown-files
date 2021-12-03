@@ -73,3 +73,9 @@ _I_ shan't.
 Imagine her too large rose-tree stood
 : Write that by wild beasts as Sure I hardly knew whether you're changed several
 
+
+## Wikilinks load test
+
+[[splinterless lymphoblast]]
+[[suburbanized tylenchus tritici]]
+[[stouthearted reentrant angle]]

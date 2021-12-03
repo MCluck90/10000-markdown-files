@@ -78,3 +78,9 @@ Same as there WAS
 Either the Duchess she passed
 : Herald read fairy-tales I eat is if there seemed to doubt for his teacup in
 
+
+## Wikilinks load test
+
+[[adventuresome marrakech]]
+[[pumped up curacao]]
+[[tanned boer war]]

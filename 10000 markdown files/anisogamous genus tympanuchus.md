@@ -80,3 +80,10 @@ Thinking again so yet
 Mind now in any of
 : By-the bye what with many lessons you'd better and wondering what this as nearly everything upon
 
+
+## Wikilinks load test
+
+[[bloody speedwell]]
+[[apiarian porzana]]
+[[diagrammatic stockfish]]
+[[unenlightened nubian]]

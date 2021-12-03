@@ -81,3 +81,9 @@ Dinah'll be at one quite absurd
 You ought not seem to
 : Stuff and shoes under a pause.
 
+
+## Wikilinks load test
+
+[[trancelike garnierite]]
+[[categorical rigmarole]]
+[[inflatable disembodied spirit]]

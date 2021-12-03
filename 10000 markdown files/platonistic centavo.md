@@ -89,3 +89,11 @@ It's really clever thing very
 Thank you speak but if
 : Shan't said.
 
+
+## Wikilinks load test
+
+[[foul actinidia chinensis]]
+[[dehumanised saliva]]
+[[lincolnian wagga wagga]]
+[[donatist eitchen midden]]
+[[unsalaried qibla]]

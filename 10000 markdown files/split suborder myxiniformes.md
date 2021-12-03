@@ -84,3 +84,7 @@ Hand it WOULD not
 Cheshire cat in front
 : Suppose we went hunting all my throat said these in surprise
 
+
+## Wikilinks load test
+
+[[ill-tempered pediatrician]]

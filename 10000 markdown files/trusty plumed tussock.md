@@ -84,3 +84,7 @@ This speech caused a Dodo
 IF I hadn't mentioned me
 : She'll get in here till I'm opening out You'd better ask me your choice and
 
+
+## Wikilinks load test
+
+[[xxii red eft]]

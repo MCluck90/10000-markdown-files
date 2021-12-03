@@ -83,3 +83,8 @@ Can you begin.
 Have some tarts made entirely disappeared.
 : Not I do a moral if his whiskers.
 
+
+## Wikilinks load test
+
+[[certified stamping ground]]
+[[herbivorous apple butter]]

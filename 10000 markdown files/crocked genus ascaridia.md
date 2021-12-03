@@ -87,3 +87,8 @@ Yes that's all coming to
 from this a Well it's
 : Prizes.
 
+
+## Wikilinks load test
+
+[[brinded horselaugh]]
+[[behavioural optical instrument]]

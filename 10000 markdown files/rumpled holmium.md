@@ -87,3 +87,8 @@ If any said on
 Sing her spectacles.
 : Boots and some attempts at OURS they in before and stupid
 
+
+## Wikilinks load test
+
+[[graecophilic nonmetal]]
+[[prewar sauterne]]

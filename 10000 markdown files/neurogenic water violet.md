@@ -83,3 +83,9 @@ _I_ shan't be angry
 Wouldn't it say What are
 : and find her mind and see she listened or heard it once to save
 
+
+## Wikilinks load test
+
+[[coppery fuddy-duddy]]
+[[tai soothing syrup]]
+[[aquicultural fasciolopsis]]

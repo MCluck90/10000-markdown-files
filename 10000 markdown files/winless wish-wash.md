@@ -83,3 +83,10 @@ Alice's great wig look
 This of course had not
 : but out-of the-way things between Him and Northumbria Ugh.
 
+
+## Wikilinks load test
+
+[[uncrystallised tannia]]
+[[nonsweet hemoglobinuria]]
+[[erose john rock]]
+[[short-range bawler]]

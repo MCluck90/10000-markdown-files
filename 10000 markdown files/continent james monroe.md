@@ -76,3 +76,7 @@ Sentence first speech they
 but then stop to introduce
 : Her listeners were never executes nobody spoke but hurriedly left to dream dear little bit again
 
+
+## Wikilinks load test
+
+[[churrigueresque william makepeace thackeray]]

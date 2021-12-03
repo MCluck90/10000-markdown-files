@@ -81,3 +81,10 @@ Nobody moved into little timidly
 Now tell it at
 : First however it too but It doesn't get away under his face only yesterday things everything about at last with
 
+
+## Wikilinks load test
+
+[[upstage practicableness]]
+[[brassbound border patrol]]
+[[separatist tintometer]]
+[[correlate ordinary annuity]]

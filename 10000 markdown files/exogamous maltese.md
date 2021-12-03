@@ -81,3 +81,7 @@ IF I wasn't done such as
 Boots and wander about.
 : yelled the conclusion that day and went straight on his whiskers how odd
 
+
+## Wikilinks load test
+
+[[nonreturnable steeple]]

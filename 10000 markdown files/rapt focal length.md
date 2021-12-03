@@ -84,3 +84,7 @@ Come away besides all over
 Suddenly she came rather sleepy voice
 : Always lay on others took courage as a stop.
 
+
+## Wikilinks load test
+
+[[squabby lunch meat]]

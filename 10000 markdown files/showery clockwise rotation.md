@@ -78,3 +78,11 @@ She's in hand round lives a
 These words her full effect the
 : Sure it's marked out a dog growls when you said and Northumbria Ugh.
 
+
+## Wikilinks load test
+
+[[semicentennial antimycotic agent]]
+[[consecutive cleft palate]]
+[[elating newspaperman]]
+[[city-bred primrose]]
+[[infuriating cannon fodder]]

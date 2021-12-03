@@ -80,3 +80,8 @@ SAID I suppose.
 Are their tails fast
 : Pig.
 
+
+## Wikilinks load test
+
+[[interstellar percophidae]]
+[[sympetalous susan sontag]]

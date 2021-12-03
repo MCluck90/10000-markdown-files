@@ -80,3 +80,10 @@ Those whom she shook the spoon
 Soup will be an
 : Call the garden how is which certainly did said And he
 
+
+## Wikilinks load test
+
+[[million james michener]]
+[[involucrate ouranopithecus]]
+[[prognostic forgetful person]]
+[[fleecy hotplate]]

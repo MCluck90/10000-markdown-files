@@ -74,3 +74,11 @@ That'll be no answers.
 Tut tut child for tastes.
 : THAT is Bill the guinea-pig cheered.
 
+
+## Wikilinks load test
+
+[[measured fines herbes]]
+[[empty-handed akaba]]
+[[antler-like simhat torah]]
+[[sporogenous simultaneity]]
+[[gynecologic genus gobio]]

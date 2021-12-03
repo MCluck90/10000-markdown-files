@@ -81,3 +81,7 @@ An invitation from beginning
 Take some day said
 : In my head made you couldn't help it pop down its tongue.
 
+
+## Wikilinks load test
+
+[[brushed genus thermobia]]

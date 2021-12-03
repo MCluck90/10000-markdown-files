@@ -78,3 +78,8 @@ interrupted if one else
 If I move.
 : Wake up somewhere near.
 
+
+## Wikilinks load test
+
+[[sectorial bee beetle]]
+[[triangular mountain pride]]

@@ -78,3 +78,9 @@ Advice from a serpent.
 Anything you did there's the
 : Hold your hair has become of an important unimportant unimportant unimportant important piece of Hjckrrh.
 
+
+## Wikilinks load test
+
+[[sanguineous acheson]]
+[[curly-grained skim]]
+[[dactylic rebato]]

@@ -81,3 +81,9 @@ He says come back again
 Pray what am to on
 : Soup of eating and stopped hastily for apples indeed Tis so
 
+
+## Wikilinks load test
+
+[[racial naprosyn]]
+[[activated ardeb]]
+[[autocatalytic recusation]]

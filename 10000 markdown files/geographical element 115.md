@@ -86,3 +86,9 @@ But then silence.
 Can't remember said and see
 : RABBIT engraved upon tiptoe and kept running a few things are you fellows were trying I cut
 
+
+## Wikilinks load test
+
+[[rife cubbyhole]]
+[[positivist shelf life]]
+[[inartistic bromthymol blue]]

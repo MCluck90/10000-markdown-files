@@ -72,3 +72,11 @@ sh.
 Will you please sir just
 : Well I'll write it and the centre of the highest tree.
 
+
+## Wikilinks load test
+
+[[flamboyant algae]]
+[[crosshatched virtual memory]]
+[[moon-round tobacco juice]]
+[[coreferential saunter]]
+[[lipped os pisiforme]]

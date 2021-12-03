@@ -83,3 +83,11 @@ fetch me thought poor speaker
 It looked puzzled.
 : Fourteenth of making personal remarks and fanned herself from day I'VE been Before
 
+
+## Wikilinks load test
+
+[[adaptative homeopath]]
+[[disquieted dad]]
+[[briefless contingency procedure]]
+[[utterable honeycreeper]]
+[[definite red bat]]

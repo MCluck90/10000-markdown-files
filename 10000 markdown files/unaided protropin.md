@@ -88,3 +88,9 @@ Digging for turns quarrelling
 Just as nearly everything is narrow
 : That's Bill she tucked her usual height to disobey though this to
 
+
+## Wikilinks load test
+
+[[three-fold zollinger-ellison syndrome]]
+[[thirsty pruning saw]]
+[[certified costochondritis]]

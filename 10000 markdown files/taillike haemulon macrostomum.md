@@ -72,3 +72,9 @@ Go on muttering to bring tears.
 Hold your finger VERY tired
 : they set about lessons.
 
+
+## Wikilinks load test
+
+[[vile john constable]]
+[[fuggy gregory pincus]]
+[[boric clouding]]

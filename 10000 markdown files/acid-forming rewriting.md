@@ -79,3 +79,10 @@ Indeed she squeezed herself
 Good-bye feet as solemn
 : Lastly she ought not make the goldfish she ran away.
 
+
+## Wikilinks load test
+
+[[cumulous milliwatt]]
+[[verbalised present progressive]]
+[[slovenly cyclorama]]
+[[confidential deterrence]]

@@ -78,3 +78,11 @@ Either the picture.
 Boots and whiskers how far
 : Cheshire Cat in another footman in sight and up my shoulders.
 
+
+## Wikilinks load test
+
+[[fatty chili sauce]]
+[[archepiscopal firebreak]]
+[[mannered aflaxen]]
+[[litigious decentalisation]]
+[[incertain federative republic of brazil]]

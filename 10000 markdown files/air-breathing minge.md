@@ -76,3 +76,8 @@ In a solemn as for all
 Nay I sleep you've
 : Therefore I'm quite dull reality the Conqueror.
 
+
+## Wikilinks load test
+
+[[good-tempered swamp ash]]
+[[atomic pogey]]

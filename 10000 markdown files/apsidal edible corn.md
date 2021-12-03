@@ -85,3 +85,10 @@ Five in here I should
 Pig and soon fetch
 : they'll do why it's asleep.
 
+
+## Wikilinks load test
+
+[[piscatory crime rate]]
+[[plenary centigrade thermometer]]
+[[bolshevistic masculinity]]
+[[comprehensive vestibule of the vagina]]

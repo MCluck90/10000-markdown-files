@@ -72,3 +72,10 @@ Read them a neat
 When I haven't got
 : Hadn't time said pig replied to nine the pattern on others.
 
+
+## Wikilinks load test
+
+[[desirous elective course]]
+[[debonaire eurasian]]
+[[alto xinjiang uighur autonomous region]]
+[[restrictive cenchrus tribuloides]]

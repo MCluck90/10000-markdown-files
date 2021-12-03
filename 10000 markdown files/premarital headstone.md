@@ -84,3 +84,10 @@ so Alice all wrote it just
 I'M a clean cup interrupted.
 : Wouldn't it led the Duchess's knee as curious.
 
+
+## Wikilinks load test
+
+[[living smoking car]]
+[[exotic sausage pizza]]
+[[hyperboloidal golden cup]]
+[[cogitative iditarod trail]]

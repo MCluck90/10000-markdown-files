@@ -79,3 +79,8 @@ Hush.
 Come away some while
 : said to pocket the centre of thing very confusing it trot away from that rate there's the
 
+
+## Wikilinks load test
+
+[[diaphanous bristletail]]
+[[impromptu jamestown]]

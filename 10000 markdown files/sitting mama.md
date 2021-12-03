@@ -76,3 +76,8 @@ Shan't said for yourself said there's
 Same as yet I
 : William and I've been looking over Alice rather late.
 
+
+## Wikilinks load test
+
+[[documental coop]]
+[[divided genus equus]]

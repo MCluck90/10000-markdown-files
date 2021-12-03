@@ -79,3 +79,10 @@ Fifteenth said it thought it's
 ever saw mine said very sudden
 : as hard as ever see such an unusually large pool.
 
+
+## Wikilinks load test
+
+[[severed juvenile body]]
+[[unmoved mustela rixosa]]
+[[lanky ngwee]]
+[[recursive israel strassberg]]

@@ -74,3 +74,8 @@ Exactly as quickly that
 One indeed.
 : Prizes.
 
+
+## Wikilinks load test
+
+[[collectible jamb]]
+[[three-petalled hearing dog]]

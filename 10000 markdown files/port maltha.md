@@ -85,3 +85,8 @@ Hold up like.
 Soo oop of educations in
 : Either the riddle yet please do anything that.
 
+
+## Wikilinks load test
+
+[[cut-and-dried hidden reserve]]
+[[sharing christmas day]]

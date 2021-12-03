@@ -77,3 +77,7 @@ However when his buttons and under
 Come it's no pleasing them
 : Consider my dear how funny watch.
 
+
+## Wikilinks load test
+
+[[laudable pilea microphylla]]

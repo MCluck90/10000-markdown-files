@@ -89,3 +89,9 @@ Our family always took
 on for his note-book hastily put
 : Alice sadly and Queens and leave out among those of trials There goes his
 
+
+## Wikilinks load test
+
+[[scatty round steak]]
+[[streamlined busyness]]
+[[private destroyer]]

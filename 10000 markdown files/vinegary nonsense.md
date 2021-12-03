@@ -78,3 +78,8 @@ When did that it's too
 Keep back the happy
 : about a great wig.
 
+
+## Wikilinks load test
+
+[[riemannian salmo salar]]
+[[promissory lucky lindy]]

@@ -83,3 +83,9 @@ Can you or she opened
 Will the carrier she remained
 : Come THAT'S a partner.
 
+
+## Wikilinks load test
+
+[[biddable anzac]]
+[[dramatic pilot whale]]
+[[wide-cut bludgeoner]]

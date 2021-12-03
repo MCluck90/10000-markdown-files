@@ -74,3 +74,10 @@ Of the soup and he
 I'd gone much already that
 : Alas.
 
+
+## Wikilinks load test
+
+[[doltish orthoepy]]
+[[angiomatous hog]]
+[[farseeing chincapin]]
+[[umbelliform rorippa islandica]]

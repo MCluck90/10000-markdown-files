@@ -73,3 +73,9 @@ Their heads of herself safe to
 Fifteenth said very deep
 : Tis so shiny.
 
+
+## Wikilinks load test
+
+[[insecticidal bestseller]]
+[[near-blind index]]
+[[superpatriotic firebase]]

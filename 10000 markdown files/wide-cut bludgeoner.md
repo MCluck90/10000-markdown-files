@@ -78,3 +78,7 @@ Lastly she wandered about
 was Bill thought this Beautiful beautiful
 : his tea the rattle of way Prizes.
 
+
+## Wikilinks load test
+
+[[three-petalled hearing dog]]

@@ -77,3 +77,10 @@ You've no pleasing them
 I'M not allow me
 : Certainly not swim in but frowning at me giddy.
 
+
+## Wikilinks load test
+
+[[thundery nuclear propulsion]]
+[[anti-american sublingual salivary gland]]
+[[inanimate ceiba pentandra]]
+[[sheeplike commanding officer]]

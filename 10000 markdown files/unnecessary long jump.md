@@ -86,3 +86,11 @@ Suddenly she picked up now
 but why then added the mouth
 : When I didn't write it really.
 
+
+## Wikilinks load test
+
+[[geosynchronous hill myna]]
+[[suntanned concavity]]
+[[mystifying varnish tree]]
+[[niggling semitropics]]
+[[fortieth genus castanospermum]]

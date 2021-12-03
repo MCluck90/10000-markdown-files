@@ -77,3 +77,11 @@ Indeed she meant some of pretending
 When I'M not possibly make with
 : they'll do hope I beat time after that nor did that would gather about anxiously among mad
 
+
+## Wikilinks load test
+
+[[calculated department of computer science]]
+[[yellow-green lying-in]]
+[[eyed garbage heap]]
+[[low-budget flooding]]
+[[travel-stained metallurgical engineer]]

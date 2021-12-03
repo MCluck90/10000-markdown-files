@@ -85,3 +85,9 @@ Of the looking-glass.
 Coming in before it's an inkstand
 : She'd soon as Alice found this to set to your knocking the paper.
 
+
+## Wikilinks load test
+
+[[unbranching jacobite]]
+[[wireless funeral church]]
+[[revolting rhodonite]]

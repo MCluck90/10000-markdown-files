@@ -76,3 +76,8 @@ Hadn't time that done thought
 RABBIT engraved upon them even
 : Two lines.
 
+
+## Wikilinks load test
+
+[[icelandic-speaking le douanier rousseau]]
+[[preconceived cole porter]]

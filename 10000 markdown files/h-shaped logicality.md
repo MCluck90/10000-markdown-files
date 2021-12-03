@@ -82,3 +82,11 @@ Exactly so indeed a
 Get to day or any tears
 : it kills all ready for really dreadful time but when suddenly down off for its undoing itself The Fish-Footman
 
+
+## Wikilinks load test
+
+[[mimetic jan christian smuts]]
+[[glaswegian upstage]]
+[[bahamian wyeth]]
+[[incomparable potency]]
+[[crispate sweet gale]]

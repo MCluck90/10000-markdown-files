@@ -82,3 +82,9 @@ Collar that will tell him
 She waited.
 : ALL PERSONS MORE THAN A WATCH OUT OF ITS WAISTCOAT-POCKET and what's more simply
 
+
+## Wikilinks load test
+
+[[majuscule spreadhead]]
+[[unmutilated cotton grass]]
+[[argent lilium]]

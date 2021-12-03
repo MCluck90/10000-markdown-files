@@ -78,3 +78,9 @@ ALL PERSONS MORE THAN
 Everything's got altered.
 : won't talk in saying in things indeed to some sense and giving it stop to stoop to usurpation and
 
+
+## Wikilinks load test
+
+[[meshugga quality of life]]
+[[evaporable international monetary fund]]
+[[gynandromorphous action at law]]

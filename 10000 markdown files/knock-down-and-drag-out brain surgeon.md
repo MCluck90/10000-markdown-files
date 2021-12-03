@@ -84,3 +84,7 @@ then a tree.
 To begin lessons the
 : Pat.
 
+
+## Wikilinks load test
+
+[[choky blueweed]]

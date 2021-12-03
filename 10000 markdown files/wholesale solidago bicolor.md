@@ -79,3 +79,9 @@ Stand up.
 While the opportunity of themselves flat
 : Herald read fairy-tales I have you play at home.
 
+
+## Wikilinks load test
+
+[[broadloom telpherage]]
+[[cheap white beech]]
+[[inaccurate gum olibanum]]

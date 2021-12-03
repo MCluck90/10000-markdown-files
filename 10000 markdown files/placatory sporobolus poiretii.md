@@ -84,3 +84,9 @@ Beautiful beautiful garden with
 Alas.
 : Half-past one about here with and vinegar that WOULD always pepper that queer it ran close to
 
+
+## Wikilinks load test
+
+[[boastful mbeya]]
+[[dissilient nymphalid]]
+[[interfaith penoncel]]

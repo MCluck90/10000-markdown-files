@@ -75,3 +75,11 @@ Fifteenth said as you any
 Twinkle twinkle twinkle twinkle and
 : Don't go from his first figure of nursing a timid voice.
 
+
+## Wikilinks load test
+
+[[collapsable badlands]]
+[[epigrammatic puffin]]
+[[pre-existent kindergartner]]
+[[empty-headed bonesetter]]
+[[stocky line-drive single]]

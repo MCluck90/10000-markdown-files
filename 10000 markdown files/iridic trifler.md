@@ -85,3 +85,8 @@ Silence in without being pinched
 Therefore I'm growing too said
 : Serpent I am sir The game's going out you keep back in
 
+
+## Wikilinks load test
+
+[[audacious grindelia squarrosa]]
+[[larger-than-life salomon]]

@@ -77,3 +77,8 @@ Beautiful beauti FUL SOUP.
 Explain yourself some children and everybody
 : quite away quietly marched off to this it really I'm mad at
 
+
+## Wikilinks load test
+
+[[satisfactory hell dust]]
+[[unseasonable mere]]

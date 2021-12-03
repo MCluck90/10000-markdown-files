@@ -79,3 +79,7 @@ wow.
 Would YOU and put em up
 : persisted.
 
+
+## Wikilinks load test
+
+[[vile john constable]]

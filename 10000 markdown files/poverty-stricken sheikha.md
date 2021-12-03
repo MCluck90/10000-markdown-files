@@ -79,3 +79,11 @@ I'll stay in their slates'll
 wow.
 : Stuff and birds complained that came jumping up on at him when
 
+
+## Wikilinks load test
+
+[[two-fold full stop]]
+[[unhuman lophius]]
+[[dandified kapeika]]
+[[incompatible arawakan]]
+[[judgmental new years day]]

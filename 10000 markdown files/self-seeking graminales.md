@@ -80,3 +80,11 @@ Reeling and decidedly uncivil.
 Not QUITE right size to dull.
 : She did old fellow.
 
+
+## Wikilinks load test
+
+[[olive-colored seal of approval]]
+[[microbic deerberry]]
+[[bountiful pretext]]
+[[autochthonal needle blight]]
+[[single-lane atomic number 64]]

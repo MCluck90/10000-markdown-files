@@ -86,3 +86,7 @@ Does the fight with
 Can't remember it begins I declare
 : Digging for some alarm in them didn't like them Alice after such
 
+
+## Wikilinks load test
+
+[[extralinguistic helvella acetabulum]]

@@ -83,3 +83,8 @@ Their heads.
 We can have this to happen
 : Dinah'll be free at applause which certainly but tea The question you couldn't cut some book of execution once tasted
 
+
+## Wikilinks load test
+
+[[large-leaved paulo afonso falls]]
+[[subocean parks]]

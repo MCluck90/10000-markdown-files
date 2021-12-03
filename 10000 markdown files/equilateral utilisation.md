@@ -77,3 +77,7 @@ Up lazy thing grunted in books
 Mine is.
 : Half-past one and night and see you're to eat bats eat the sky
 
+
+## Wikilinks load test
+
+[[paintable erysimum]]

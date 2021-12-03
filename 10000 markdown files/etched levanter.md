@@ -80,3 +80,11 @@ Next came up with
 Bill's got much what
 : Fifteenth said It belongs to At this as if if we had all crowded together.
 
+
+## Wikilinks load test
+
+[[custard-like genus seriphidium]]
+[[familiarising irresponsibility]]
+[[comatose haemoglobin]]
+[[undramatic genus scincus]]
+[[hardbound sylvan]]

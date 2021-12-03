@@ -71,3 +71,11 @@ exclaimed.
 Boots and beasts and I'll give
 : HEARTHRUG NEAR THE BOOTS AND SHOES.
 
+
+## Wikilinks load test
+
+[[linnaean integrator]]
+[[conjoined robert james fischer]]
+[[yellow-gray ming]]
+[[antisemitic humber bridge]]
+[[unconstrained anemic anoxia]]

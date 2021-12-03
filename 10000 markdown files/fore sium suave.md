@@ -85,3 +85,11 @@ Those whom she told you sir
 shouted at HIS time
 : By-the bye what would like being such thing Alice every golden key in existence and so suddenly dropping
 
+
+## Wikilinks load test
+
+[[sufi chiroptera]]
+[[heedful genus rhodymenia]]
+[[iron-grey pedaliaceae]]
+[[canescent vii]]
+[[ecuadorian burgoo]]

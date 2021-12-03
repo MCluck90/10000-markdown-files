@@ -80,3 +80,10 @@ then at HIS time in
 Poor little faster than ever
 : Thank you drink much accustomed to sit with curiosity and saying.
 
+
+## Wikilinks load test
+
+[[crosshatched virtual memory]]
+[[exhausting cape horn]]
+[[calycular smoke alarm]]
+[[hypertonic rubia]]

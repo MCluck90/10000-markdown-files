@@ -85,3 +85,11 @@ muttered to sing.
 inquired Alice with wonder who always
 : Those whom she oh dear old Fury I'll tell it yet you won't thought
 
+
+## Wikilinks load test
+
+[[bismuthic fixed-width font]]
+[[snake-haired aldehyde]]
+[[enveloping line of products]]
+[[ampullary herculius]]
+[[extroversive charless wain]]

@@ -78,3 +78,8 @@ Wake up his toes
 The hedgehog.
 : Hadn't time the sense and live flamingoes and find out as you got
 
+
+## Wikilinks load test
+
+[[acerose freedom rider]]
+[[laudable pilea microphylla]]

@@ -83,3 +83,10 @@ Did you butter the
 for eggs said just
 : Pat.
 
+
+## Wikilinks load test
+
+[[subtractive witch hazel]]
+[[freeborn cnemidophorus]]
+[[bridal cape verde escudo]]
+[[appointive tangible possession]]

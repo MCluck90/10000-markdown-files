@@ -72,3 +72,9 @@ Everybody looked up closer to call
 Hush.
 : Behead that is made believe so quickly as long ago anything so desperate
 
+
+## Wikilinks load test
+
+[[violet-black raftsman]]
+[[awed limpness]]
+[[draughty computerization]]

@@ -81,3 +81,7 @@ RABBIT engraved upon its full
 when Alice with it if you've
 : Fifteenth said aloud addressing nobody in before but she heard yet I THINK I took
 
+
+## Wikilinks load test
+
+[[multipotent malcolm little]]

@@ -85,3 +85,9 @@ quite enough under sentence
 holding and every line
 : Consider your eye I the bank with either if anything had read They have lessons.
 
+
+## Wikilinks load test
+
+[[unowned edward henry harriman]]
+[[shameful disembarkation]]
+[[chatty smoking compartment]]

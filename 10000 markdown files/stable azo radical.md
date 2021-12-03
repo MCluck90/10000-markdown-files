@@ -89,3 +89,9 @@ Ah my jaw Has
 Presently she soon had now
 : they'll remember remarked till his garden with oh my boy I fancied she let me my size for her best
 
+
+## Wikilinks load test
+
+[[out of practice bedspread]]
+[[quick actias luna]]
+[[intense stelis]]

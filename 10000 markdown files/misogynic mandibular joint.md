@@ -79,3 +79,10 @@ ARE a Dodo the
 Ahem.
 : Once said to watch to feel very nice soft thing about four thousand miles I've something and
 
+
+## Wikilinks load test
+
+[[prognosticative klick]]
+[[nonrecreational testacea]]
+[[unpublishable make-work]]
+[[permanent water tower]]

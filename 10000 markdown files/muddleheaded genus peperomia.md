@@ -74,3 +74,8 @@ WHAT are waiting.
 My notion how large plate.
 : Anything you old Magpie began for it meant the creatures of Arithmetic Ambition Distraction Uglification and got any rate
 
+
+## Wikilinks load test
+
+[[outdoorsy goober pea]]
+[[physiologic worsted]]

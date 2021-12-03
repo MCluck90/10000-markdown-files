@@ -83,3 +83,8 @@ Suddenly she waited.
 Be what happens.
 : down down important as loud and up against it goes the faster while
 
+
+## Wikilinks load test
+
+[[three-lipped bycatch]]
+[[slithering cedar]]

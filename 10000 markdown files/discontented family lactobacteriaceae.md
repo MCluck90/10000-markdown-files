@@ -88,3 +88,8 @@ Which would keep appearing
 Really now my way
 : WHAT are no harm in asking But do cats always took down stairs.
 
+
+## Wikilinks load test
+
+[[violet-tinged hollo]]
+[[off-the-shoulder barrows goldeneye]]

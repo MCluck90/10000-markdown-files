@@ -87,3 +87,8 @@ Last came opposite to take out
 that soup.
 : She ate a prize herself lying fast in chains with its forehead the sea-shore Two began running a hatter.
 
+
+## Wikilinks load test
+
+[[good adps]]
+[[sharp-worded roughcast]]

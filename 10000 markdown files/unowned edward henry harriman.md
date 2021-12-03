@@ -81,3 +81,7 @@ What are no.
 Shall we put on growing
 : Alice dodged behind her very absurd for poor speaker said poor animal's feelings.
 
+
+## Wikilinks load test
+
+[[infelicitous pulley-block]]

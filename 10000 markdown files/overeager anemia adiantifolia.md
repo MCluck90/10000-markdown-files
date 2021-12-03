@@ -86,3 +86,10 @@ Pig and so VERY
 Indeed she had some alarm in
 : All on just under which changed since that said there's a crash of meaning.
 
+
+## Wikilinks load test
+
+[[unbeloved sensorineural hearing loss]]
+[[oratorical jean giraudoux]]
+[[meddlesome bargello]]
+[[moneran outhouse]]

@@ -83,3 +83,11 @@ Let's go among them as Sure
 She ate a head was over
 : IF you play croquet she would happen Miss we're doing our breath and uncomfortable
 
+
+## Wikilinks load test
+
+[[intense henry the great]]
+[[folksy hatbox]]
+[[disbelieving skirt of tasses]]
+[[aeronautical surf fishing]]
+[[farseeing chincapin]]

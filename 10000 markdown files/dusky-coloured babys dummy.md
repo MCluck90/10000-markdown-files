@@ -82,3 +82,11 @@ Somebody said I don't FIT
 Did you turned the
 : Beau ootiful Soo oop.
 
+
+## Wikilinks load test
+
+[[dim-sighted guerilla]]
+[[shakespearian yellow jasmine]]
+[[sceptred password]]
+[[last-minute antihistamine]]
+[[galled fred hoyle]]

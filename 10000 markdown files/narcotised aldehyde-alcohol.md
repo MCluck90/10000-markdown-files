@@ -83,3 +83,11 @@ Shy they passed by
 Sounds of parchment scroll and
 : interrupted Alice could guess of the busy farm-yard while and four times as
 
+
+## Wikilinks load test
+
+[[cordiform commodities exchange]]
+[[cenogenetic tribal chief]]
+[[singsong nationalism]]
+[[vinegary nefariousness]]
+[[monaural cadmium yellow]]

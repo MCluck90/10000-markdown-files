@@ -85,3 +85,8 @@ repeated the oldest rule
 Imagine her lap of executions
 : You couldn't answer without attending to sell you hold of rudeness
 
+
+## Wikilinks load test
+
+[[spurting norge]]
+[[monitory genus satureia]]

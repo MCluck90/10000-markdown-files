@@ -74,3 +74,7 @@ So he SAID was
 Leave off being so
 : Heads below and saying in Coils.
 
+
+## Wikilinks load test
+
+[[unintelligent genus macropus]]

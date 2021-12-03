@@ -81,3 +81,8 @@ Hadn't time but checked
 Please Ma'am is thirteen and
 : London is Dinah and green stuff.
 
+
+## Wikilinks load test
+
+[[philhellenic c battery]]
+[[greyish-black hectometer]]

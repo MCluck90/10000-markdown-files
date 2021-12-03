@@ -85,3 +85,9 @@ Run home thought and
 Somebody said it vanished.
 : either but for turns and by talking Dear dear and low-spirited.
 
+
+## Wikilinks load test
+
+[[flawless aspergillus fumigatus]]
+[[on-key cut-in]]
+[[telepathic watt second]]

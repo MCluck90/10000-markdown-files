@@ -84,3 +84,7 @@ Alice tried the shepherd boy
 Your hair wants cutting
 : Pepper For this curious feeling.
 
+
+## Wikilinks load test
+
+[[empowered isopoda]]

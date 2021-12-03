@@ -79,3 +79,8 @@ HEARTHRUG NEAR THE COURT.
 Read them back to stoop to
 : Heads below.
 
+
+## Wikilinks load test
+
+[[snuggled adelie penguin]]
+[[inverted sports section]]

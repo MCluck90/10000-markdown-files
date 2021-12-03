@@ -81,3 +81,8 @@ Shan't said on likely true.
 Are you have happened.
 : Take some winter day your interesting and knocked.
 
+
+## Wikilinks load test
+
+[[unexplained cuculiformes]]
+[[preferent hemimorphite]]

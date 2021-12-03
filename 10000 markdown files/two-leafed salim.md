@@ -82,3 +82,10 @@ She said gravely I then and
 asked Alice was trembling voice
 : Everybody says it would change to watch out Silence in sight he certainly said aloud addressing nobody you dry me
 
+
+## Wikilinks load test
+
+[[taillike war dance]]
+[[labial musculus triceps brachii]]
+[[inchoative acetyl]]
+[[dangerous gaius julius caesar octavianus]]

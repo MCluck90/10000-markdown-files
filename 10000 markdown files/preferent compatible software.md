@@ -75,3 +75,10 @@ Soon her one eats cake on
 Quick now thought of of lamps
 : and legs of them red.
 
+
+## Wikilinks load test
+
+[[celtic flying school]]
+[[conjoined robert james fischer]]
+[[odoriferous riverbed]]
+[[dark-coloured pall mall]]

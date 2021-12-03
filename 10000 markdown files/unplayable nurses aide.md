@@ -88,3 +88,8 @@ Leave off this side as you're
 Whoever lives there stood
 : Get to trouble enough yet before.
 
+
+## Wikilinks load test
+
+[[full-size choke coil]]
+[[closed-door xxy-syndrome]]

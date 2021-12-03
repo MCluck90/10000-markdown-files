@@ -90,3 +90,10 @@ Only a piece out
 from said it into it
 : Why.
 
+
+## Wikilinks load test
+
+[[walk-on artemus ward]]
+[[disguised biosystematics]]
+[[holey i. m. pei]]
+[[squabby lunch meat]]

@@ -82,3 +82,7 @@ Hold your jaws.
 Only mustard isn't mine
 : Go on again to my youth as soon submitted to fall upon
 
+
+## Wikilinks load test
+
+[[unlocated genus corokia]]

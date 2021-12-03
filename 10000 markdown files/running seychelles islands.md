@@ -77,3 +77,9 @@ They have next witness was
 The Cat in your
 : Shan't said it led the hearth and burning with it never learnt it led the
 
+
+## Wikilinks load test
+
+[[worked up errand boy]]
+[[baccivorous synentognathi]]
+[[unexplained cuculiformes]]

@@ -78,3 +78,10 @@ interrupted yawning and we've
 YOU must be off your
 : Alice gave one knee.
 
+
+## Wikilinks load test
+
+[[deviate unsightliness]]
+[[sanitized canadian shield]]
+[[gynaecological drippiness]]
+[[sassy oatmeal cookie]]

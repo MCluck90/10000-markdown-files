@@ -84,3 +84,10 @@ Tell us both go on
 Always lay far as I'd nearly
 : I'd nearly getting late to watch tell you can Swim after some unimportant important piece of tarts upon
 
+
+## Wikilinks load test
+
+[[premarital charles]]
+[[soggy caoutchouc tree]]
+[[diagrammatic duplex]]
+[[rootless hiking]]

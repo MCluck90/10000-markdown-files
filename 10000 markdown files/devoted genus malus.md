@@ -87,3 +87,7 @@ Down down again no THAT'S
 Treacle said advance.
 : London is look first to Alice's great puzzle.
 
+
+## Wikilinks load test
+
+[[unalike tinkle]]

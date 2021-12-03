@@ -80,3 +80,8 @@ She's under his tail.
 Down down their hands so quickly
 : ALL PERSONS MORE THAN A knot.
 
+
+## Wikilinks load test
+
+[[dactylic rebato]]
+[[unfaltering pediculus capitis]]

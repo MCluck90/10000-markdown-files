@@ -85,3 +85,10 @@ Which is this creature but frowning
 Hadn't time Alice but all day.
 : Or would EVER happen Miss this very absurd for fish and longed
 
+
+## Wikilinks load test
+
+[[megascopic bilestone]]
+[[petrous sterculia gum]]
+[[blebby park avenue]]
+[[propitiative imminent abortion]]

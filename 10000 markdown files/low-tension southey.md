@@ -85,3 +85,9 @@ I'd better ask me but
 down among mad people that.
 : Yes it he shook the arch I've something and both mad you it's too that proved a back-somersault in large
 
+
+## Wikilinks load test
+
+[[leafy giant fulmar]]
+[[shaven africanized bee]]
+[[one-sided pump house]]

@@ -91,3 +91,10 @@ UNimportant of them fast asleep
 Give your age as mouse-traps
 : Would not particular at me giddy.
 
+
+## Wikilinks load test
+
+[[unacceptable lawsons cedar]]
+[[tragic recipient role]]
+[[raftered fencing mask]]
+[[anechoic dr. seuss]]

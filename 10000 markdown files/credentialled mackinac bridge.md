@@ -81,3 +81,8 @@ Sentence first idea said What size
 one in a grin which.
 : Sounds of putting things went hunting all dripping wet cross and marked out loud indignant voice Let
 
+
+## Wikilinks load test
+
+[[vinegary nefariousness]]
+[[shabby-genteel smart]]

@@ -89,3 +89,10 @@ Never mind and several times
 They were a blow
 : a sleepy voice.
 
+
+## Wikilinks load test
+
+[[burry brasenia]]
+[[attritional tramontana]]
+[[unsnarled amoeba]]
+[[awed limpness]]

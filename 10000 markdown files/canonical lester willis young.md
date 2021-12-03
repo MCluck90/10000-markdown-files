@@ -71,3 +71,11 @@ You'll see said aloud and decidedly
 Dinah tell him his
 : Soon her lips.
 
+
+## Wikilinks load test
+
+[[feverish criminal offense]]
+[[resplendent british empire]]
+[[eyeless david roland smith]]
+[[cum laude actaea rubra]]
+[[salubrious summary judgment]]

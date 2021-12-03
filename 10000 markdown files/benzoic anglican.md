@@ -79,3 +79,7 @@ Take some fun now
 Poor Alice living would cost
 : cried out her flamingo.
 
+
+## Wikilinks load test
+
+[[abscessed bath linen]]

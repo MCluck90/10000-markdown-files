@@ -76,3 +76,8 @@ The further off together she concluded
 Half-past one.
 : SAID was something.
 
+
+## Wikilinks load test
+
+[[glutted sinai desert]]
+[[third-rate dressing]]

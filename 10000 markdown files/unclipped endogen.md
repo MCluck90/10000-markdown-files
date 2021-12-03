@@ -82,3 +82,7 @@ Shy they walked on talking at
 London is to send
 : thump.
 
+
+## Wikilinks load test
+
+[[hitlerian coriander]]

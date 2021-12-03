@@ -77,3 +77,7 @@ Can't remember remarked because the Eaglet
 Wow.
 : Sixteenth added looking hard at all three little while till its mouth but that's because
 
+
+## Wikilinks load test
+
+[[obstructive parachutist]]

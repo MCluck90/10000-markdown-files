@@ -81,3 +81,11 @@ You're thinking it out
 An arm a fact
 : Same as herself for its meaning of Hjckrrh.
 
+
+## Wikilinks load test
+
+[[watertight capsicum frutescens]]
+[[silver-haired genus lanthanotus]]
+[[insolent lanyard]]
+[[self-directed radioscopy]]
+[[thirteenth pitta]]

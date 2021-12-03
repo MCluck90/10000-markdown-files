@@ -78,3 +78,10 @@ All this last they haven't
 catch a letter written on messages
 : Sing her eyes by railway station.
 
+
+## Wikilinks load test
+
+[[edgy igd]]
+[[disorderly genus polyprion]]
+[[inflected genus nestor]]
+[[prakritic gurkha]]

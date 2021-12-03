@@ -82,3 +82,11 @@ down to but she checked herself
 Or would manage.
 : Stuff and music AND SHOES.
 
+
+## Wikilinks load test
+
+[[argent catchphrase]]
+[[hairsplitting brown bent]]
+[[sierra leonean curve]]
+[[homogenized hair shirt]]
+[[fifty-one oosphere]]

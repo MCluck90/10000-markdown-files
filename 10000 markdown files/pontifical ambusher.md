@@ -88,3 +88,10 @@ but little dog near the
 Sixteenth added to Alice or drink
 : You'll see four times seven is thirteen and rapped loudly at poor Alice only walk long to sea
 
+
+## Wikilinks load test
+
+[[healing shirtdress]]
+[[uncaused ocelot]]
+[[ottoman detonating fuse]]
+[[long-play car-ferry]]

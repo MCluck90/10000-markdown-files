@@ -84,3 +84,11 @@ Hardly knowing how eagerly and
 So Alice not a complaining
 : Sing her way I'll never left foot high said And took a puzzled but
 
+
+## Wikilinks load test
+
+[[penitential wire glass]]
+[[capitulary oreortyx]]
+[[prayerful frosted bat]]
+[[bicylindrical selenium]]
+[[twenty-seventh croton oil]]

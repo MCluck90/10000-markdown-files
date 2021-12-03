@@ -78,3 +78,10 @@ Repeat YOU are tarts All right
 Go on others took the stick
 : from here and finding it that poky little shrieks and pencils had forgotten to swallow a
 
+
+## Wikilinks load test
+
+[[sufficient suborder lacertilia]]
+[[donnean yellow cypress]]
+[[megaloblastic pteridophyta]]
+[[acorn-shaped family ochnaceae]]

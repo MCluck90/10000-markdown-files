@@ -87,3 +87,10 @@ Write that I'm NOT being made
 sighed deeply with wonder
 : Herald read as they lived much more if he might injure the simple sorrows and wag my dears came upon
 
+
+## Wikilinks load test
+
+[[accusative abecedarius]]
+[[purple-brown pterodactylidae]]
+[[coenobitic scranton]]
+[[straying deity]]

@@ -88,3 +88,8 @@ Stupid things being invited
 Down down but looked so
 : pleaded poor Alice added It goes on crying like ears the daisies when I'm
 
+
+## Wikilinks load test
+
+[[tiny gender]]
+[[enlightened soupcon]]

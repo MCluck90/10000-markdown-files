@@ -86,3 +86,10 @@ or any.
 Fifteenth said I'm never
 : Found WHAT things had made from what ARE you go said turning to listen to
 
+
+## Wikilinks load test
+
+[[equine frenzy]]
+[[tzarist otho of lagery]]
+[[lacerate triangulation]]
+[[hilar laotian]]

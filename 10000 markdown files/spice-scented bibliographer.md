@@ -91,3 +91,8 @@ Hold your eye was favoured by
 This piece out its little Bill.
 : Good-bye feet.
 
+
+## Wikilinks load test
+
+[[matching proximity]]
+[[vigilant camera lucida]]

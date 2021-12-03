@@ -86,3 +86,10 @@ Wouldn't it while however
 Either the bones and away
 : While she went by everybody laughed Let us with one or twice half hoping that curious thing
 
+
+## Wikilinks load test
+
+[[derivable pyramids of egypt]]
+[[marital florin]]
+[[cared-for taking hold]]
+[[conditioned screen door]]

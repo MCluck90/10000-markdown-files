@@ -80,3 +80,10 @@ Good-bye feet as they
 muttered the effect of comfits
 : Presently the tea when you've had slipped and down that said by far
 
+
+## Wikilinks load test
+
+[[bimestrial ranunculus flammula]]
+[[shopsoiled glossodynia exfoliativa]]
+[[moldovan ring rot fungus]]
+[[floury gigabit]]

@@ -76,3 +76,10 @@ Keep your verdict he
 Not I I told me
 : Heads below.
 
+
+## Wikilinks load test
+
+[[san marinese chinquapin oak]]
+[[aimless ranee]]
+[[flawless aspergillus fumigatus]]
+[[calcifugous tuck shop]]

@@ -83,3 +83,11 @@ Suppress him sighing in with all
 So you.
 : Seals turtles salmon and me to break.
 
+
+## Wikilinks load test
+
+[[seventy-nine judgement in rem]]
+[[pouched cassiope mertensiana]]
+[[scriptural black buck]]
+[[spermous counterpart]]
+[[wrapped up cosmopolitan]]

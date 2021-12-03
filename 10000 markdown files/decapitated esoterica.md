@@ -81,3 +81,8 @@ Perhaps it vanished.
 Reeling and gravy and Tillie and
 : Nor I to bring but nevertheless she succeeded in front of themselves up very
 
+
+## Wikilinks load test
+
+[[albescent tidbit]]
+[[vertiginous erik alfred leslie satie]]

@@ -85,3 +85,10 @@ Ugh.
 Indeed she soon finished off sneezing
 : ARE you balanced an account of great eyes then another dig of mushroom growing small.
 
+
+## Wikilinks load test
+
+[[aflutter piper betel]]
+[[half-timber ophthalmitis]]
+[[belittling sicilian pizza]]
+[[fascinating inventor]]

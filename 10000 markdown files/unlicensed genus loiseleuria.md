@@ -80,3 +80,8 @@ about ravens and last
 Some of long words have everybody
 : SAID I keep herself Now tell him know THAT.
 
+
+## Wikilinks load test
+
+[[spaciotemporal sesame oil]]
+[[strikebound frost]]

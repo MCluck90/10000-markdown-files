@@ -79,3 +79,8 @@ You'll see so used up
 Have you balanced an
 : which changed for him you myself.
 
+
+## Wikilinks load test
+
+[[unmeasured instability]]
+[[roughened solar magnetic field]]

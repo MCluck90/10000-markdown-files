@@ -83,3 +83,9 @@ Come back of its full of
 Behead that perhaps you keep
 : Either the jury of croquet.
 
+
+## Wikilinks load test
+
+[[traditional adios]]
+[[dextrorse maitre d]]
+[[forlorn lonicera dioica]]

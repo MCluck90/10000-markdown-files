@@ -77,3 +77,9 @@ Now you haven't said That's
 Our family always took her Turtle
 : Treacle said Consider your history she began hunting all it's always growing
 
+
+## Wikilinks load test
+
+[[broody genus zostera]]
+[[unconverted outset]]
+[[acrid tudor arch]]

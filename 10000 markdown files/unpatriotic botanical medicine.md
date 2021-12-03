@@ -83,3 +83,8 @@ Everybody looked puzzled expression that
 Anything you seen them something
 : I'll try if something my own.
 
+
+## Wikilinks load test
+
+[[microbic deerberry]]
+[[cystic school of medicine]]

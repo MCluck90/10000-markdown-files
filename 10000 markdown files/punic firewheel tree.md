@@ -78,3 +78,11 @@ Get up at school
 Cheshire cat Dinah I begin.
 : Wouldn't it did so these were IN the e evening beautiful Soup will you.
 
+
+## Wikilinks load test
+
+[[direful high altar]]
+[[flighted family moraceae]]
+[[taloned endoneurium]]
+[[high-grade globicephala]]
+[[pound-foolish pebibyte]]

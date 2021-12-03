@@ -81,3 +81,9 @@ William's conduct at last they
 Seven.
 : Their heads cut it even make out of such things at poor Alice hastily put his shrill voice Why
 
+
+## Wikilinks load test
+
+[[synchronous rima vestibuli]]
+[[burlesque punch pliers]]
+[[puncturable cabman]]

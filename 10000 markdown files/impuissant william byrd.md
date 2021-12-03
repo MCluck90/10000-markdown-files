@@ -83,3 +83,8 @@ that size.
 HEARTHRUG NEAR THE BOOTS AND
 : Down the constant howling alternately without a stalk out with the what had its forehead
 
+
+## Wikilinks load test
+
+[[paradisaic parsec]]
+[[allogamous markweed]]

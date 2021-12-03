@@ -83,3 +83,10 @@ Very uncomfortable.
 Bill's place with it
 : Dinah'll miss me for.
 
+
+## Wikilinks load test
+
+[[unresolved eptatretus]]
+[[easterly pteridospermae]]
+[[eyed garbage heap]]
+[[accredited fructidor]]

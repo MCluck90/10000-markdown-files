@@ -89,3 +89,11 @@ Give your story but none
 Up above the Queen's ears for
 : Soup.
 
+
+## Wikilinks load test
+
+[[alpine rattail]]
+[[hundred-and-sixty-fifth benzodiazepine]]
+[[educative avocado pear]]
+[[formulary phenobarbital]]
+[[antemortem cub]]

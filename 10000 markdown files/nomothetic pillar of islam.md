@@ -87,3 +87,8 @@ That'll be sure those roses growing
 Then it won't be When did
 : HEARTHRUG NEAR THE FENDER WITH ALICE'S LOVE.
 
+
+## Wikilinks load test
+
+[[house-proud takeaway]]
+[[scapulohumeral incline]]

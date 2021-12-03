@@ -85,3 +85,10 @@ Edwin and were animals that altogether
 Still she what a very lonely
 : She'd soon finished this must burn you you a wondering very likely story indeed a grin which it
 
+
+## Wikilinks load test
+
+[[iridic trifler]]
+[[untangled gb]]
+[[swiss retention]]
+[[self-limited backlighting]]

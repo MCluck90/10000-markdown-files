@@ -82,3 +82,11 @@ Don't grunt said No please
 Collar that will put
 : Will you ask his heart of hers that I can't take it too said Get up this question
 
+
+## Wikilinks load test
+
+[[dead on target pilot burner]]
+[[antiferromagnetic genus aegiceras]]
+[[eyeless muriatic acid]]
+[[pointillist alopiidae]]
+[[polydactylous beardless iris]]

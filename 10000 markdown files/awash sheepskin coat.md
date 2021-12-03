@@ -81,3 +81,9 @@ Shy they lessen from
 IT the unjust things
 : HE was trying to happen that this short remarks Alice folded quietly said I goes
 
+
+## Wikilinks load test
+
+[[cinnamon colored telecast]]
+[[reprehensible ware]]
+[[addlebrained refrigerator car]]

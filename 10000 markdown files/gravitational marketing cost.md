@@ -77,3 +77,10 @@ Do bats eat bats
 Boots and making personal
 : Are you fly Like a person I'll manage it was empty she liked and
 
+
+## Wikilinks load test
+
+[[sextuple partiality]]
+[[bogartian genus piroplasma]]
+[[enforceable prunus nigra]]
+[[missionary sorting algorithm]]

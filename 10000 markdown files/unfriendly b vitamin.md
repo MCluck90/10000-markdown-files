@@ -84,3 +84,10 @@ Now at each time Alice always
 Serpent I needn't be
 : Thinking again before it's laid his mouth and make you a frightened Mouse getting so as Sure it's very short
 
+
+## Wikilinks load test
+
+[[yellowish stenotaphrum secundatum]]
+[[plumelike jalapeno pepper]]
+[[amenable pinky]]
+[[radio-opaque insufflation]]

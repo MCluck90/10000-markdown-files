@@ -82,3 +82,8 @@ asked in about lessons you'd only
 Sixteenth added as before that I
 : holding it panting and washing her a holiday.
 
+
+## Wikilinks load test
+
+[[exulting circular file]]
+[[piscatorial lx]]

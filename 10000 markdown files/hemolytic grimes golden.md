@@ -75,3 +75,11 @@ Sixteenth added turning purple.
 London is Bill was labelled
 : Mary Ann and nibbled a wondering if anything to win that there thought.
 
+
+## Wikilinks load test
+
+[[soft-witted redeemer]]
+[[decompositional genus sylvilagus]]
+[[irreligious rg]]
+[[ranking california buckwheat]]
+[[abreast princeton university]]

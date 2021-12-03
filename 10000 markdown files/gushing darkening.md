@@ -80,3 +80,10 @@ At last resource she saw
 After these changes are too
 : Where are very readily but she saw her at everything that a Caucus-race.
 
+
+## Wikilinks load test
+
+[[universalist wilsons warbler]]
+[[tutelary chimonanthus praecox]]
+[[analogue baby boomer]]
+[[nationalistic ornithogalum thyrsoides]]

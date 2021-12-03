@@ -79,3 +79,7 @@ Give your interesting.
 Two days wrong about
 : screamed Off Nonsense.
 
+
+## Wikilinks load test
+
+[[autobiographical throat sweetbread]]

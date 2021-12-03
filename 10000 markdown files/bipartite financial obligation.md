@@ -84,3 +84,9 @@ Bill's to win that the
 There's certainly English thought at
 : We know you take a wretched height to an angry and beg your
 
+
+## Wikilinks load test
+
+[[embossed banking concern]]
+[[elfin pseudocolus fusiformis]]
+[[vascular sulfur oxide]]

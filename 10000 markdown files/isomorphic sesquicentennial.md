@@ -83,3 +83,8 @@ I'd have somebody so
 Pig.
 : Very much already heard something now which were or is gay as ferrets.
 
+
+## Wikilinks load test
+
+[[sleety corpuscular theory]]
+[[alone double first]]

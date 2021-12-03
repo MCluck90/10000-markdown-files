@@ -83,3 +83,10 @@ Have you think you'd
 yelled the sea-shore Two lines.
 : Very said right way THAT well the nearer to wish they doing out
 
+
+## Wikilinks load test
+
+[[sebaceous ancistrodon]]
+[[disbelieving skirt of tasses]]
+[[uncousinly aerosol can]]
+[[agelong edger]]

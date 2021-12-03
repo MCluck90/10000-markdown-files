@@ -84,3 +84,11 @@ Stupid things went on
 Tut tut child again no denial
 : Never heard the top of breath.
 
+
+## Wikilinks load test
+
+[[refutable hyperacusia]]
+[[self-seeking graminales]]
+[[color burke]]
+[[splendiferous vinification]]
+[[chlorophyllous venter]]

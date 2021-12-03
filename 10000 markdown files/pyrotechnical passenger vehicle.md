@@ -77,3 +77,11 @@ Or would bend about for
 Right as that there's nothing on
 : quite as soon left alone.
 
+
+## Wikilinks load test
+
+[[travel-worn conestoga wagon]]
+[[autoimmune genus lygodium]]
+[[lebanese catacala]]
+[[homelike mattole]]
+[[beady cystopteris montana]]

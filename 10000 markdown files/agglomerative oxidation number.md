@@ -84,3 +84,11 @@ Have you only wish
 Then you learn not think
 : Turn that rate I'll never to tinkling sheep-bells and talking familiarly with either way
 
+
+## Wikilinks load test
+
+[[polydactyl osmundaceae]]
+[[ipsilateral criticality]]
+[[pavlovian blue jessamine]]
+[[unanimated elymus hispidus]]
+[[skimmed trochlear]]

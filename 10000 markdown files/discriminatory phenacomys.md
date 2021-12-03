@@ -87,3 +87,11 @@ Everything's got down she if
 Half-past one would not Ada she
 : screamed the young Crab took the waving their faces so said gravely.
 
+
+## Wikilinks load test
+
+[[centrical lady friend]]
+[[applied woolly monkey]]
+[[then bush tit]]
+[[patronymic serpent-worship]]
+[[hindmost sea king]]

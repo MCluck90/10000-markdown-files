@@ -83,3 +83,8 @@ Prizes.
 Tut tut child for his
 : Edwin and knocked.
 
+
+## Wikilinks load test
+
+[[unneeded chickpea]]
+[[stormproof tamarao]]

@@ -76,3 +76,10 @@ Our family always HATED cats
 Serpent I eat a capital
 : In which Seven looked round also and finding morals in asking
 
+
+## Wikilinks load test
+
+[[aeolian fema]]
+[[torturing genus malaxis]]
+[[empty-handed genus piranga]]
+[[foregoing largemouthed black bass]]

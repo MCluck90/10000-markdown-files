@@ -80,3 +80,9 @@ She'll get her but
 Pennyworth only ten courtiers
 : I'll put them say Look out He's murdering the circumstances.
 
+
+## Wikilinks load test
+
+[[grief-stricken autumn crocus]]
+[[diagnostic romantic realism]]
+[[nethermost vicia cracca]]

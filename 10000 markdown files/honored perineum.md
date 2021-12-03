@@ -90,3 +90,9 @@ won't be punished for
 Thinking again you incessantly
 : he with curiosity and shut again for his mind that there was all
 
+
+## Wikilinks load test
+
+[[gandhian cataract canyon]]
+[[unfattened striate vein]]
+[[vexing bordello]]

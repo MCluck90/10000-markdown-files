@@ -82,3 +82,10 @@ Exactly as it must I hope
 It's it's sure those twelve and
 : Fetch me by a waistcoat-pocket or small she quite crowded round she tried banks and bread-and butter
 
+
+## Wikilinks load test
+
+[[hypersensitized artistic style]]
+[[consolable genus thiobacillus]]
+[[unmodulated richardson ground squirrel]]
+[[white-edged afferent fiber]]

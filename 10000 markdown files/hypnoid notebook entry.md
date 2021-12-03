@@ -80,3 +80,11 @@ Stolen.
 so much of cherry-tart custard pine-apple
 : Consider your places ALL.
 
+
+## Wikilinks load test
+
+[[compassionate operations]]
+[[sane sea boat]]
+[[corporeal centrocercus]]
+[[black-coated tetrao]]
+[[colourless phloem]]

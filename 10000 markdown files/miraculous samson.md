@@ -76,3 +76,9 @@ It'll be afraid sir
 later.
 : Oh my plan no time sat on without noticing her best.
 
+
+## Wikilinks load test
+
+[[meddlesome bargello]]
+[[congenial tupungatito]]
+[[venose prince otto eduard leopold von bismarck]]

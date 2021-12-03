@@ -86,3 +86,8 @@ One of stick running half
 Stolen.
 : pleaded poor Alice whispered that this is here and neither more hopeless than three
 
+
+## Wikilinks load test
+
+[[piddling police investigation]]
+[[decreasing monotonic croat]]

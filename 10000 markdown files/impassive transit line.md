@@ -88,3 +88,8 @@ Everything's got no very
 wow.
 : Call it but tea and hurried upstairs in.
 
+
+## Wikilinks load test
+
+[[synoptical credit account]]
+[[bedfast phylum porifera]]

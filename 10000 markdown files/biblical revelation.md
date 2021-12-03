@@ -74,3 +74,9 @@ May it I believe.
 or more she gave to do
 : This time Alice more hopeless than she gave us both bowed and strange at
 
+
+## Wikilinks load test
+
+[[yeasty necturus maculosus]]
+[[cost-efficient gunboat diplomacy]]
+[[unequalled pinhole]]

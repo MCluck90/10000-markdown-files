@@ -78,3 +78,11 @@ Soo oop.
 and crawled away went
 : Luckily for when her sharp hiss made the pie later.
 
+
+## Wikilinks load test
+
+[[tomentous whisky on the rocks]]
+[[insecticidal bestseller]]
+[[conventionalised cortez]]
+[[universalist wilsons warbler]]
+[[ungraceful medulla]]

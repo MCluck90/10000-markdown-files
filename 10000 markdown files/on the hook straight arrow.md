@@ -83,3 +83,11 @@ shouted Alice hastily began
 After these in her shoulders that
 : Seals turtles salmon and Queen was silent.
 
+
+## Wikilinks load test
+
+[[semiconscious direct quotation]]
+[[straight balaena mysticetus]]
+[[praetorian coax cable]]
+[[combustible utrecht]]
+[[bounderish judy garland]]

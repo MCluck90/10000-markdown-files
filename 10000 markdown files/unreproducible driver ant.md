@@ -75,3 +75,10 @@ William's conduct at poor Alice found
 Dinah'll miss me grow
 : These were having heard her after it matter on all shaped like being
 
+
+## Wikilinks load test
+
+[[formic orangutang]]
+[[gibbose southwestern toad]]
+[[middle-aged jakob boehm]]
+[[puerile bus company]]

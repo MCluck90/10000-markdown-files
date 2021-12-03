@@ -79,3 +79,11 @@ Does YOUR opinion said
 Give your age knew who
 : Alas.
 
+
+## Wikilinks load test
+
+[[tart opera star]]
+[[unbroken bedwetter]]
+[[carthaginian retail]]
+[[middle larix lyallii]]
+[[sinhala knut pedersen]]

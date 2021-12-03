@@ -80,3 +80,8 @@ ARE OLD FATHER WILLIAM
 wow.
 : Ugh.
 
+
+## Wikilinks load test
+
+[[instant gutter]]
+[[tall-stalked slothfulness]]

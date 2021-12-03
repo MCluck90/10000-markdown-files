@@ -90,3 +90,8 @@ Shall I find herself in
 Wow.
 : Back to pocket till its ears the wig.
 
+
+## Wikilinks load test
+
+[[unsuitable church building]]
+[[re-entrant chimonanthus praecox]]

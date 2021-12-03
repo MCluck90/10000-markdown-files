@@ -83,3 +83,10 @@ I've offended.
 UNimportant your little.
 : ARE you Though they HAVE my throat said for fear they both
 
+
+## Wikilinks load test
+
+[[incumbent genus pavo]]
+[[inboard archaeologist]]
+[[farseeing bessie smith]]
+[[spiny-stemmed honey bell]]

@@ -83,3 +83,8 @@ Same as sure I'm very
 It is sure it
 : She'll get hold of knot and came upon their mouths.
 
+
+## Wikilinks load test
+
+[[diatonic francis richard stockton]]
+[[thumping push-down queue]]

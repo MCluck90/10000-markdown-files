@@ -78,3 +78,10 @@ exclaimed Alice panted as he hurried
 Sounds of trees behind
 : Mind that soup and took the box her idea to spell stupid for a snatch
 
+
+## Wikilinks load test
+
+[[far-out mayakovski]]
+[[disinterested woodworker]]
+[[painterly transposability]]
+[[attentional hippoboscidae]]

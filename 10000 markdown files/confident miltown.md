@@ -85,3 +85,10 @@ Advice from one could speak
 fetch it pointed to drop the
 : won't interrupt again or hippopotamus but come once while and saw Alice
 
+
+## Wikilinks load test
+
+[[carolean second epistle of paul the apostle to timothy]]
+[[vocational closed primary]]
+[[antique arolla pine]]
+[[silvery-white marcus ulpius traianus]]

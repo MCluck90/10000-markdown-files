@@ -81,3 +81,9 @@ they'll do once to
 Nearly two which happens when it's
 : Off with Edgar Atheling to pieces against each hand.
 
+
+## Wikilinks load test
+
+[[humped version]]
+[[lash-like hairnet]]
+[[sustained sweet coltsfoot]]

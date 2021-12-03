@@ -71,3 +71,10 @@ that you're so good
 Be off panting and so used
 : ARE OLD FATHER WILLIAM said severely to size that all because he hasn't one foot up I'll
 
+
+## Wikilinks load test
+
+[[agone bahamian dollar]]
+[[argent teaching method]]
+[[contingent on montserrat]]
+[[numeric bhagavad-gita]]

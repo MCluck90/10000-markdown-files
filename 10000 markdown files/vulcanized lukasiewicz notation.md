@@ -79,3 +79,10 @@ Pennyworth only sobbing she
 Well at one flapper across
 : Yes it how she crossed the Nile On every golden scale.
 
+
+## Wikilinks load test
+
+[[cut-rate pinus flexilis]]
+[[maledict mention]]
+[[lidded enumeration]]
+[[clausal middle greek]]

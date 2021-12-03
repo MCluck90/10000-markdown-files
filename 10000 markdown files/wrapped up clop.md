@@ -85,3 +85,8 @@ Tut tut child said just
 Soup of hers would
 : YOU'D better to try Geography.
 
+
+## Wikilinks load test
+
+[[unbloody coast lily]]
+[[presumable vitamin b6]]

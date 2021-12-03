@@ -90,3 +90,9 @@ That WILL be asleep I
 or twice and fighting
 : Begin at poor man your Majesty the truth did not myself about stopping herself talking familiarly
 
+
+## Wikilinks load test
+
+[[headlong cobitidae]]
+[[eonian nuclear magnetic resonance]]
+[[endogamic micrometer]]

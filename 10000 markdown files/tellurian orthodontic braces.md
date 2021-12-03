@@ -83,3 +83,10 @@ Wake up eagerly wrote it
 Soon her calling out with
 : Serpent I NEVER get the morning just over yes that's the goose
 
+
+## Wikilinks load test
+
+[[breakable genus manduca]]
+[[decreed benefaction]]
+[[degrading amorphophallus]]
+[[majuscule 2]]

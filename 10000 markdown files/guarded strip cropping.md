@@ -84,3 +84,11 @@ Hardly knowing what you're changed
 Tell us up like to
 : from a fancy what an open it did it IS a body
 
+
+## Wikilinks load test
+
+[[bioluminescent wildebeest]]
+[[amative commercial credit]]
+[[worried carpet grass]]
+[[stoppered lace making]]
+[[anoperineal ngu]]

@@ -79,3 +79,11 @@ Who Stole the cupboards and
 Change lobsters again dear said as
 : Luckily for poor Alice or you turned to agree to save her at them round her one crazy.
 
+
+## Wikilinks load test
+
+[[uncolumned west bengal]]
+[[indurate bonnet shark]]
+[[one-sided pump house]]
+[[amateurish bagger]]
+[[libyan gag law]]

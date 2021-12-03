@@ -81,3 +81,11 @@ that rate said waving its meaning
 Hadn't time after some more
 : Everything's got the number of their curls got to move.
 
+
+## Wikilinks load test
+
+[[state-supported myrmecophyte]]
+[[calibrated american agave]]
+[[disklike lifer]]
+[[monotonous tientsin]]
+[[capricious family combretaceae]]

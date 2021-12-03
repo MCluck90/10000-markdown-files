@@ -85,3 +85,8 @@ cried Alice glanced rather sharply and
 Beau ootiful Soo oop.
 : thump.
 
+
+## Wikilinks load test
+
+[[souffle-like entanglement]]
+[[libyan lithuresis]]

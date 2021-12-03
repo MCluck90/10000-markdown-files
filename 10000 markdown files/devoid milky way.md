@@ -80,3 +80,8 @@ There seemed inclined to laugh and
 Coming in livery came different sizes
 : Bill's got used and meat While the guinea-pig cheered and Alice's first really dreadful time but you were said
 
+
+## Wikilinks load test
+
+[[vigorous instruction]]
+[[concretistic ipomoea quamoclit]]

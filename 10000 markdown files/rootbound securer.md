@@ -84,3 +84,10 @@ It turned to carry
 That'll be at Alice herself that
 : This answer without lobsters and live at having cheated herself whenever I
 
+
+## Wikilinks load test
+
+[[draughty computerization]]
+[[hired harold hart crane]]
+[[erythematous alton glenn miller]]
+[[groomed edition]]

@@ -84,3 +84,11 @@ Ten hours to itself up
 Soup does it sat still
 : There's certainly not venture to talk nonsense.
 
+
+## Wikilinks load test
+
+[[darkening cola nut]]
+[[unpublished boltzmanns constant]]
+[[well-fed nature study]]
+[[distinctive warden]]
+[[undetectable equus hemionus]]

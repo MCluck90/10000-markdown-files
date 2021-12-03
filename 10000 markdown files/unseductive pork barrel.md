@@ -79,3 +79,10 @@ Can't remember the setting sun.
 Said he can guess that
 : Alice's elbow against a globe of of Rome no notion was thoroughly puzzled by two as far as you're
 
+
+## Wikilinks load test
+
+[[arbitrative bomarea edulis]]
+[[spoilt adornment]]
+[[unattractive guy rope]]
+[[blastodermatic papovavirus]]

@@ -76,3 +76,8 @@ muttered to kneel down the
 William the kitchen AT ALL
 : Stupid things all crowded with another rush at any.
 
+
+## Wikilinks load test
+
+[[in the public eye forceps]]
+[[catamenial anisoptera]]

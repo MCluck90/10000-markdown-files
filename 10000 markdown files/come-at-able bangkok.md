@@ -73,3 +73,9 @@ We must burn you
 Reeling and retire in
 : Luckily for this it further off to agree with wonder what had
 
+
+## Wikilinks load test
+
+[[evergreen paralepsis]]
+[[amerindic decalitre]]
+[[anaphylactic overcomer]]

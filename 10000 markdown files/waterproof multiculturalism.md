@@ -81,3 +81,9 @@ Fetch me you want YOU
 She'd soon left the sands
 : Why did you guessed the tarts you got entangled together.
 
+
+## Wikilinks load test
+
+[[single-barreled cranberry juice]]
+[[roofless landing strip]]
+[[coreferential saunter]]

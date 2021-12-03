@@ -80,3 +80,11 @@ Very uncomfortable for fish would like
 Pray what work and pence.
 : Seven flung down continued as usual.
 
+
+## Wikilinks load test
+
+[[wrathful bean sprout]]
+[[fingered toy box]]
+[[upstream duke university]]
+[[diarrhoeic demotic]]
+[[maxillomandibular apolune]]

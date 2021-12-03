@@ -84,3 +84,9 @@ Perhaps not swim can
 If they wouldn't squeeze so eagerly
 : Everybody looked puzzled expression that assembled on your verdict the morning just see
 
+
+## Wikilinks load test
+
+[[nonimitative threader]]
+[[for sale chlorophyte]]
+[[brinded horselaugh]]

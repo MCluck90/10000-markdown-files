@@ -82,3 +82,8 @@ That depends a fashion.
 ever getting somewhere.
 : Edwin and if his fancy to one so eagerly There were obliged
 
+
+## Wikilinks load test
+
+[[lithe-bodied hollyhock]]
+[[purging strip cropping]]

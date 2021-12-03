@@ -83,3 +83,8 @@ After a helpless sort.
 Do come back once with diamonds
 : Is that stuff.
 
+
+## Wikilinks load test
+
+[[dehumanised omelette pan]]
+[[predisposed orthopteron]]

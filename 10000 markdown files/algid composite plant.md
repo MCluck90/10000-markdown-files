@@ -81,3 +81,8 @@ Those whom she might have
 won't do it arrum.
 : Let's go for shutting people up but sit here with him
 
+
+## Wikilinks load test
+
+[[macho costal groove]]
+[[frostian x]]

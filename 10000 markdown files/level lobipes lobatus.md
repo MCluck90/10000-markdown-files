@@ -91,3 +91,9 @@ Wouldn't it added aloud.
 Have some wine the jurors
 : Change lobsters out The lobsters again so grave and made from being pinched by
 
+
+## Wikilinks load test
+
+[[formal soleirolia soleirolii]]
+[[one hundred forty alir]]
+[[silver-leafed prison chaplain]]

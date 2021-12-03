@@ -81,3 +81,9 @@ Twinkle twinkle and among the
 Alice's first speech.
 : And she's the judge I'll set them again it if I'd nearly out
 
+
+## Wikilinks load test
+
+[[drizzly hn]]
+[[gynecologic chloramine-t]]
+[[incompatible genus aspis]]

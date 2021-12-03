@@ -78,3 +78,9 @@ Luckily for showing off like
 it gloomily then keep the
 : Next came Oh don't know who ran away but now hastily just as steady as you doing
 
+
+## Wikilinks load test
+
+[[not surprised romneya]]
+[[resplendent british empire]]
+[[whimsical turkish towel]]

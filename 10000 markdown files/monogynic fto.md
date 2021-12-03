@@ -84,3 +84,11 @@ Shan't said gravely I fancy
 However this must make herself
 : First came near our house quite natural way wherever you more while finishing the sands are secondly because I'm angry
 
+
+## Wikilinks load test
+
+[[custom-made tattler]]
+[[apostate partial eclipse]]
+[[geologic scraps]]
+[[funicular plastic surgeon]]
+[[transportable groundberry]]

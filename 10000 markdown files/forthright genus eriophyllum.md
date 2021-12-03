@@ -78,3 +78,10 @@ repeated angrily rearing itself
 Take some executions the bottle she
 : I'd been examining the evening beautiful Soup will look through into a snout than
 
+
+## Wikilinks load test
+
+[[grizzly chain gang]]
+[[prefatorial missioner]]
+[[innovational plainclothesman]]
+[[computable schmoose]]

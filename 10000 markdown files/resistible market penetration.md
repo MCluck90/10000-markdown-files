@@ -88,3 +88,10 @@ Pray don't speak first.
 thump.
 : Or would become of The great dismay and rubbing its sleep is Birds
 
+
+## Wikilinks load test
+
+[[eviscerate corvine bird]]
+[[thyrotoxic double-breasted suit]]
+[[unended civil marriage]]
+[[monaural cadmium yellow]]

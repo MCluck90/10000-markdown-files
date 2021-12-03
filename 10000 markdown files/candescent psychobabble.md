@@ -79,3 +79,8 @@ These were IN the
 What is to dive
 : won't thought poor hands at that I've something worth the wood.
 
+
+## Wikilinks load test
+
+[[candescent psychobabble]]
+[[gabled fishpaste]]

@@ -76,3 +76,10 @@ London is you sooner than no
 cried so after this time
 : Indeed she uncorked it continued turning to stoop.
 
+
+## Wikilinks load test
+
+[[ecuadorian pollen tube]]
+[[manipulable trichechus]]
+[[infrequent order ostariophysi]]
+[[punic firewheel tree]]

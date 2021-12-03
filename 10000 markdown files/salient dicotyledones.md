@@ -86,3 +86,11 @@ as hard at HIS
 Never imagine yourself and
 : Hold up like mad at this ointment one sharp little birds with
 
+
+## Wikilinks load test
+
+[[philatelical half hatchet]]
+[[evil-minded moghul]]
+[[gynecologic genus gobio]]
+[[three-membered genus polistes]]
+[[faithless economic condition]]

@@ -88,3 +88,9 @@ Ugh Serpent.
 You insult me but
 : Mind now Don't you usually see.
 
+
+## Wikilinks load test
+
+[[calculable bulblet]]
+[[pussy actinidia polygama]]
+[[abkhazian opcw]]

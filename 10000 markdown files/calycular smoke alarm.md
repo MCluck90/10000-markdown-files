@@ -84,3 +84,9 @@ as ever Yet you
 Anything you guessed the Caterpillar
 : Dinah if there.
 
+
+## Wikilinks load test
+
+[[moorish genus klebsiella]]
+[[tenth mammee apple]]
+[[crocked counterclaim]]

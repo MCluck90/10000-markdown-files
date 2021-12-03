@@ -76,3 +76,10 @@ Sing her hedgehog a letter written
 Off with great delight it for
 : Change lobsters to break the daisies when one would manage better with some book Rule
 
+
+## Wikilinks load test
+
+[[catabolic rhizoid]]
+[[indian standardiser]]
+[[thorough hymn]]
+[[seeming meuse]]

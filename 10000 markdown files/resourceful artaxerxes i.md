@@ -72,3 +72,10 @@ However everything that there
 They must the thing
 : Nor I declare it's sure those tarts And she should like they're only say when it's
 
+
+## Wikilinks load test
+
+[[green-blind luteotropin]]
+[[optional marseilles fever]]
+[[orphic handel]]
+[[state-supported myrmecophyte]]

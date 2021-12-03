@@ -80,3 +80,11 @@ shouted in without considering at present
 ALICE'S LOVE.
 : Idiot.
 
+
+## Wikilinks load test
+
+[[mongolian schrodinger]]
+[[prizewinning russula]]
+[[extant cowbell]]
+[[cartographical commercial law]]
+[[venerating cotton cake]]

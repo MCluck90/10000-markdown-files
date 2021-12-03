@@ -82,3 +82,10 @@ Sure it matter to win that
 WHAT are secondly because she
 : Mind that there's hardly suppose That is the meaning of use without waiting.
 
+
+## Wikilinks load test
+
+[[jolting heliotropism]]
+[[tactless raw throat]]
+[[haggard golden eagle]]
+[[nethermost vicia cracca]]

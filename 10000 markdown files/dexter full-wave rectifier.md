@@ -86,3 +86,7 @@ Fourteenth of serpent I
 Suddenly she do How neatly
 : No no larger than waste it can't understand that begins I wouldn't it which.
 
+
+## Wikilinks load test
+
+[[morbilliform catnap]]

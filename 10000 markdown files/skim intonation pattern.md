@@ -81,3 +81,8 @@ Just at poor speaker said
 Everybody looked so severely
 : Off Nonsense.
 
+
+## Wikilinks load test
+
+[[twenty-two genus tropaeolum]]
+[[collect ringworm cassia]]

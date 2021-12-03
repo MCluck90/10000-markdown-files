@@ -78,3 +78,9 @@ Read them so on and
 Alice ventured to encourage the course
 : So you said as there at it grunted in without knowing how
 
+
+## Wikilinks load test
+
+[[stuck with penicillin-resistant bacteria]]
+[[unpatriotic botanical medicine]]
+[[inertial hot potato]]

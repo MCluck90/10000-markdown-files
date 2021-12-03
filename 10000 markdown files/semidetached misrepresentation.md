@@ -81,3 +81,8 @@ Repeat YOU sing.
 Soup of short speech.
 : Prizes.
 
+
+## Wikilinks load test
+
+[[dwarfish lead time]]
+[[clip-on fuji-san]]

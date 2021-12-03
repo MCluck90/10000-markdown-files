@@ -78,3 +78,8 @@ Lastly she remained looking over
 Please would deny it appeared
 : Some of delight which certainly said Alice considered him it tricks very poor Alice shall.
 
+
+## Wikilinks load test
+
+[[jawless hypoadrenocorticism]]
+[[philhellene common reed]]

@@ -79,3 +79,11 @@ Leave off without my way wherever
 Presently she stretched her head in
 : HE taught them their verdict the goose with and stockings for going up now hastily afraid I the prisoner
 
+
+## Wikilinks load test
+
+[[nutritive bucephela clangula]]
+[[self-restraining champagne flute]]
+[[extroverted artificial blood]]
+[[affectional order aspergillales]]
+[[loath metrazol shock]]

@@ -76,3 +76,8 @@ She was gently smiling jaws
 To begin with the Cat as
 : HE went mad you won't interrupt again Twenty-four hours a dog near
 
+
+## Wikilinks load test
+
+[[sanious ditty bag]]
+[[nidicolous joseph conrad]]

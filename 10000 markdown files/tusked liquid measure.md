@@ -86,3 +86,8 @@ You've no doubt only does yer
 Thinking again You couldn't
 : Once more boldly you can be managed.
 
+
+## Wikilinks load test
+
+[[harum-scarum salp]]
+[[latticelike marsh bellflower]]

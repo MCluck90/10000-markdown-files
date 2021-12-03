@@ -86,3 +86,9 @@ It all else for
 You're enough yet it
 : Stolen.
 
+
+## Wikilinks load test
+
+[[nearby states rights democratic party]]
+[[catamenial nellie ross]]
+[[eurasiatic megatheriidae]]

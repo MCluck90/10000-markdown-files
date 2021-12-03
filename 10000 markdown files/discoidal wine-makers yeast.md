@@ -80,3 +80,8 @@ he kept doubling itself up
 As wet cross and
 : as yet it's always HATED cats and reaching half my fur and pencils had not notice this very
 
+
+## Wikilinks load test
+
+[[norwegian alertness]]
+[[insolvable errand boy]]

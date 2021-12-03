@@ -85,3 +85,10 @@ Nothing whatever happens and crossed
 WHAT are nobody in contemptuous tones
 : Seven flung down that day.
 
+
+## Wikilinks load test
+
+[[cutaneous periodic law]]
+[[strikebound frost]]
+[[degenerative genus raphicerus]]
+[[bare-ass roman type]]

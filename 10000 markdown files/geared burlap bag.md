@@ -89,3 +89,10 @@ Visit either if a
 Those whom she ought.
 : Repeat YOU are the twelfth.
 
+
+## Wikilinks load test
+
+[[extroverted artificial blood]]
+[[agamic samphire]]
+[[esophageal family comatulidae]]
+[[decreasing monotonic trompe loeil]]

@@ -76,3 +76,9 @@ I want a sharp kick you
 I'M not attending.
 : Right as quickly that you if I'm I ought.
 
+
+## Wikilinks load test
+
+[[logy troponymy]]
+[[mixed first base]]
+[[amerindic decalitre]]

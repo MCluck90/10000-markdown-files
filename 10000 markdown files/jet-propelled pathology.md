@@ -82,3 +82,7 @@ Let this ointment one
 catch hold of execution.
 : It's enough.
 
+
+## Wikilinks load test
+
+[[off-color angina]]

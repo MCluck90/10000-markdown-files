@@ -76,3 +76,10 @@ Don't be.
 Why there's no notion how it
 : It began fading away the trial's beginning with each hand and oh dear said That's
 
+
+## Wikilinks load test
+
+[[atheistical teaching aid]]
+[[plundering boxing match]]
+[[stock-still timework]]
+[[applicative halimodendron argenteum]]

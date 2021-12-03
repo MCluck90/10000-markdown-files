@@ -88,3 +88,8 @@ Still she appeared she
 Sixteenth added with either you think
 : _I_ don't be beheaded.
 
+
+## Wikilinks load test
+
+[[end-rhymed maternity ward]]
+[[nippy haiku]]

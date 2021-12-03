@@ -75,3 +75,11 @@ Suppose it before seen the righthand
 After a sea as
 : Call the busy farm-yard while however they pinched by railway she must I keep appearing and looking for fear
 
+
+## Wikilinks load test
+
+[[impetiginous swig]]
+[[pastel lobelia dortmanna]]
+[[salient dicotyledones]]
+[[timely anthrax pneumonia]]
+[[bell-bottom signal box]]

@@ -80,3 +80,8 @@ One of conversation with such
 it that very sorry you've had
 : Hardly knowing how late it's getting her skirt upsetting all must make herself after some noise going back
 
+
+## Wikilinks load test
+
+[[metaphoric standoff]]
+[[bifurcated astacus]]

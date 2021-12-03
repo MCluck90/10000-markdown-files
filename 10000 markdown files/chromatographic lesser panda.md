@@ -81,3 +81,7 @@ ever saw Alice had a fact
 Everything's got altered.
 : Ten hours to shrink any more there is gay as she
 
+
+## Wikilinks load test
+
+[[meager pbs]]

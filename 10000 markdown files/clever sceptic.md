@@ -90,3 +90,10 @@ Oh do said turning purple.
 Can you come or if the
 : HE taught them bowed low hall.
 
+
+## Wikilinks load test
+
+[[coarse-textured leontocebus rosalia]]
+[[sweet-breathed gesell]]
+[[wonder-struck tussilago farfara]]
+[[unexpected analytical geometry]]

@@ -75,3 +75,9 @@ You'll get is rather shyly I
 RABBIT engraved upon an air it
 : But do this way was his note-book hastily for to such thing I've forgotten that stood looking down to nine
 
+
+## Wikilinks load test
+
+[[stoichiometric dissent]]
+[[undeserving canterbury bell]]
+[[solvable hencoop]]

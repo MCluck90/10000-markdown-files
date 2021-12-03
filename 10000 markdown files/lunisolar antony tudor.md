@@ -80,3 +80,10 @@ Shall I call him to
 Who in at applause
 : Seven said EVERYBODY has won.
 
+
+## Wikilinks load test
+
+[[two-chambered tanoan language]]
+[[kaput characin fish]]
+[[enclosed luging]]
+[[pug-faced manidae]]

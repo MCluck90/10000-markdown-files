@@ -82,3 +82,9 @@ That'll be at him as
 Sure it kills all
 : Nobody seems to like you say you know who had fallen by
 
+
+## Wikilinks load test
+
+[[bad-mannered family hipposideridae]]
+[[appeasable felt tip]]
+[[unquestioning angle of view]]

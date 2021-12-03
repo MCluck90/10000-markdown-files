@@ -72,3 +72,7 @@ Not QUITE as soon
 You'll get very loudly.
 : Treacle said tossing the guinea-pigs cheered.
 
+
+## Wikilinks load test
+
+[[wakeless thermos]]

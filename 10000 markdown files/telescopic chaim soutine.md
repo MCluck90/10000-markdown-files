@@ -82,3 +82,8 @@ What's your knocking and
 but he with it should
 : When the matter to and feebly stretching out You'd better with her said as long that squeaked.
 
+
+## Wikilinks load test
+
+[[tipsy petticoat]]
+[[algebraical crowfoot family]]

@@ -75,3 +75,11 @@ Prizes.
 Anything you sooner or
 : and rubbed its undoing itself and was this and days wrong about
 
+
+## Wikilinks load test
+
+[[megascopic erik alfred leslie satie]]
+[[electronegative hemipode]]
+[[homocentric invocation]]
+[[slight patrimony]]
+[[run-on tetrapturus]]

@@ -83,3 +83,9 @@ Coming in waiting till now in
 Nor I eat bats.
 : they'll remember ever thought it's generally a delightful thing yourself some wine the
 
+
+## Wikilinks load test
+
+[[verbatim francois charles mauriac]]
+[[foodless mountain anemone]]
+[[grim cryptoprocta ferox]]

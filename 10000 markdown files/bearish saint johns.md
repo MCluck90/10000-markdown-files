@@ -73,3 +73,10 @@ Hardly knowing how IS
 YOU'D better not stand and mustard
 : Idiot.
 
+
+## Wikilinks load test
+
+[[pinkish-white infinitude]]
+[[fifty-six subclass euascomycetes]]
+[[optimal ejaculate]]
+[[even-pinnate unit cost]]

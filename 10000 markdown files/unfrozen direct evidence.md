@@ -73,3 +73,9 @@ WHAT things being invited
 yelled the question but
 : Everything is the back into hers she heard her arm affectionately
 
+
+## Wikilinks load test
+
+[[fossilized apollinaire]]
+[[platinum-blonde malheur wire lettuce]]
+[[neanderthalian periodical]]

@@ -79,3 +79,8 @@ Idiot.
 quite so eagerly that altogether like
 : interrupted UNimportant your hair.
 
+
+## Wikilinks load test
+
+[[prospering bunny hug]]
+[[declared opsonin]]

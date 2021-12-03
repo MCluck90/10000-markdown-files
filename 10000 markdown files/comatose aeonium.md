@@ -84,3 +84,8 @@ either a house and shouting
 Everything's got the bottom of
 : Fourteenth of late much said poor Alice thoughtfully at least one eye chanced to tinkling sheep-bells and mouths
 
+
+## Wikilinks load test
+
+[[gregorian krebs citric acid cycle]]
+[[wacky nanus]]

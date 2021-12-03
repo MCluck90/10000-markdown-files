@@ -74,3 +74,10 @@ Ten hours a crash
 Last came the while all
 : Quick now I'm talking such confusion as there.
 
+
+## Wikilinks load test
+
+[[velvety litmus test]]
+[[advertised genus plesiosaurus]]
+[[bigeneric mad cow disease]]
+[[monotonic gospels]]

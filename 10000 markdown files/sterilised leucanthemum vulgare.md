@@ -87,3 +87,11 @@ Which is of what o'clock
 Twinkle twinkle twinkle twinkle twinkle
 : Good-bye feet ran away.
 
+
+## Wikilinks load test
+
+[[liberalistic metasequoia]]
+[[bacciferous heterocercal fin]]
+[[diaphanous bristletail]]
+[[foiled lemon zest]]
+[[sweetheart punchayet]]

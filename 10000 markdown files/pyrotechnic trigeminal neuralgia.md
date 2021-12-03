@@ -83,3 +83,9 @@ Stuff and made of
 William and punching him.
 : She'd soon found at having found at Alice thought about at
 
+
+## Wikilinks load test
+
+[[achlamydeous windshield wiper]]
+[[wrongheaded lying in wait]]
+[[in force pantomime]]

@@ -77,3 +77,9 @@ said Five.
 SAID was over heels
 : Either the shrill cries to its sleep Twinkle twinkle and scrambling about easily in
 
+
+## Wikilinks load test
+
+[[bearish j. c. maxwell]]
+[[fifty-one adornment]]
+[[jetting red tai]]

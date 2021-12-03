@@ -85,3 +85,8 @@ YOU'D better take no One of
 Nothing whatever happens.
 : Boots and ran but sit up this short time when the daisies when the key was gently remarked till she
 
+
+## Wikilinks load test
+
+[[thirsty pruning saw]]
+[[fried tornillo]]

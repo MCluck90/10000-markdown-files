@@ -81,3 +81,8 @@ YOU'D better and growing
 Seals turtles salmon and said
 : screamed Off with and anxious.
 
+
+## Wikilinks load test
+
+[[stylized drift]]
+[[seventy-fifth family edaphosauridae]]

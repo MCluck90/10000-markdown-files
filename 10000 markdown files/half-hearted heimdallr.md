@@ -70,3 +70,10 @@ Still she tried.
 Soup.
 : said that done that you walk a sky-rocket.
 
+
+## Wikilinks load test
+
+[[overemotional inattention]]
+[[beamy lachrymal gland]]
+[[fresh james]]
+[[unpublishable dead march]]

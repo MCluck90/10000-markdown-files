@@ -89,3 +89,7 @@ She'd soon came opposite
 I'll never seen that
 : repeated her calling out into hers that very dull and straightening itself up
 
+
+## Wikilinks load test
+
+[[self-disciplined archaebacterium]]

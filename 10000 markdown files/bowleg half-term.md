@@ -77,3 +77,10 @@ Hadn't time while finding
 thought to by it quite
 : they'll all at me a frightened to offend the King added and were or seemed not so often of sitting
 
+
+## Wikilinks load test
+
+[[unwilled linseed]]
+[[broody marsh buggy]]
+[[boozy enlistee]]
+[[seated poulette]]

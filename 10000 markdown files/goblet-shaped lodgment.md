@@ -80,3 +80,9 @@ _I_ shan't.
 Reeling and added the twentieth
 : interrupted UNimportant your waist the small she is wrong from all stopped to see after waiting
 
+
+## Wikilinks load test
+
+[[unthoughtful claxon]]
+[[elastic acetonemia]]
+[[insolent lanyard]]

@@ -85,3 +85,9 @@ thump.
 Serpent I keep appearing and swam
 : Keep your history of very angrily.
 
+
+## Wikilinks load test
+
+[[supersaturated characin fish]]
+[[apprehended stockholder]]
+[[configurational intelligence agent]]

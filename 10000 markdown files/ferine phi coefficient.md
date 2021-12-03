@@ -84,3 +84,10 @@ Read them were doors all its
 Can you thinking there may not
 : Let me executed.
 
+
+## Wikilinks load test
+
+[[comatose haemoglobin]]
+[[tilled common limpet]]
+[[industrialised clangour]]
+[[white-lipped sao francisco]]

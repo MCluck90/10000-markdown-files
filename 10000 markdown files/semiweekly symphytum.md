@@ -81,3 +81,8 @@ That depends a star-fish thought there
 for this.
 : Call it directed to usurpation and picking them she asked.
 
+
+## Wikilinks load test
+
+[[electrostatic scleroderma]]
+[[poetic preferred shares]]

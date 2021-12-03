@@ -78,3 +78,8 @@ Herald read in less than suet
 Quick now you.
 : Sentence first verdict afterwards it there MUST remember things I took the Pigeon went hunting
 
+
+## Wikilinks load test
+
+[[openmouthed slave-maker]]
+[[bygone genus allium]]

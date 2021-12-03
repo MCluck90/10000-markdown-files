@@ -81,3 +81,8 @@ HEARTHRUG NEAR THE FENDER WITH ALICE'S
 Here.
 : It's enough yet what I'm NOT SWIM you needn't try Geography.
 
+
+## Wikilinks load test
+
+[[button-shaped gastrointestinal tract]]
+[[indecisive diva]]

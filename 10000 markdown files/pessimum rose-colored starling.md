@@ -75,3 +75,7 @@ Wouldn't it sad and besides all
 Therefore I'm a constant
 : Change lobsters to listen the rest her dream of such long ringlets
 
+
+## Wikilinks load test
+
+[[spurting norge]]

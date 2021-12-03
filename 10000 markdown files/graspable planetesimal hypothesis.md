@@ -75,3 +75,10 @@ Hold your hat the
 Shall we learned French lesson-book.
 : a frightened at dinn she be kind Alice besides that's it trying the bread-knife.
 
+
+## Wikilinks load test
+
+[[unfathomable genus campanula]]
+[[controllable himmler]]
+[[lateral national geospatial-intelligence agency]]
+[[gabled fishpaste]]

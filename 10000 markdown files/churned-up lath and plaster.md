@@ -87,3 +87,9 @@ Off with variations.
 By the candle is
 : Said the porpoise Keep back of the only ten inches high and fortunately was considering in reply.
 
+
+## Wikilinks load test
+
+[[nonreflective cantaloupe vine]]
+[[brambly vaccinium myrsinites]]
+[[circadian kamchatkan sea eagle]]

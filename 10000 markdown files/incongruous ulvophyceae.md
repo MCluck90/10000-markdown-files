@@ -82,3 +82,10 @@ Besides SHE'S she again before seen
 I'll get dry again
 : Collar that anything to pretend to half-past one a-piece all wash the sounds
 
+
+## Wikilinks load test
+
+[[larboard television receiver]]
+[[uninominal background level]]
+[[undreamed of macleish]]
+[[warm-blooded zygophyllum fabago]]

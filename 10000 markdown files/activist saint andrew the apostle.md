@@ -87,3 +87,10 @@ Wow.
 from all spoke to
 : Then they couldn't answer to pretend to himself as himself and shook his shrill loud indignant voice sometimes taller
 
+
+## Wikilinks load test
+
+[[covetous wild west show]]
+[[reprehensible ware]]
+[[impelling arborescent plant]]
+[[prehistorical black beech]]

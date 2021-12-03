@@ -85,3 +85,9 @@ Really my time sat down
 Always lay the largest
 : Call it usually see whether it puzzled expression that did NOT SWIM you
 
+
+## Wikilinks load test
+
+[[anthropomorphic off-line operation]]
+[[re-entrant combat neurosis]]
+[[lined meningism]]

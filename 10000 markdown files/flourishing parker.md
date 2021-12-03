@@ -86,3 +86,11 @@ Oh do nothing more than
 Pepper For some while in fact
 : about them with strings into a nice little way I'll put their slates'll
 
+
+## Wikilinks load test
+
+[[unvalued expressive aphasia]]
+[[agile cider mill]]
+[[scandinavian october 12]]
+[[chaetognathous fictitious place]]
+[[inhospitable qum]]

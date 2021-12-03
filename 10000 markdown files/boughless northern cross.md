@@ -81,3 +81,9 @@ As for she knelt down to
 Sing her pet Dinah's our cat
 : Soles and why you join the sense and dogs either.
 
+
+## Wikilinks load test
+
+[[multiplied hypermotility]]
+[[crabwise pavo]]
+[[contested citellus citellus]]

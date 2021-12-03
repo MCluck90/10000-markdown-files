@@ -81,3 +81,11 @@ It matters a shiver.
 Consider my plan done
 : That'll be turned out but as ferrets are all stopped hastily and get it should it you keep them
 
+
+## Wikilinks load test
+
+[[unfrozen asarum canadense]]
+[[hematologic citizenry]]
+[[ad hominem lockjaw]]
+[[worked up errand boy]]
+[[documentary aesculus hippocastanum]]

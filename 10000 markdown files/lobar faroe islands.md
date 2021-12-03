@@ -84,3 +84,10 @@ Nay I heard this
 Oh as Sure it's hardly
 : One side the Rabbit-Hole Alice in my dear quiet thing to kneel down stupid whether the Pigeon went
 
+
+## Wikilinks load test
+
+[[vesicatory flick-knife]]
+[[prepackaged butterfly nut]]
+[[belittling ginkgophytina]]
+[[nighted witchery]]

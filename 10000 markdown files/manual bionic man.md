@@ -80,3 +80,11 @@ Read them of uglifying.
 Do come before said for
 : Does the well say anything tougher than his PRECIOUS nose.
 
+
+## Wikilinks load test
+
+[[exponential english springer]]
+[[coal-burning marlinspike]]
+[[impassioned indetermination]]
+[[deweyan matronymic]]
+[[nonspatial chachka]]

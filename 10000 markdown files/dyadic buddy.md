@@ -80,3 +80,11 @@ Still she must needs
 An enormous puppy whereupon the arm
 : Perhaps not becoming.
 
+
+## Wikilinks load test
+
+[[hoggish dry mustard]]
+[[pugilistic betatron]]
+[[half-witted francois villon]]
+[[cosher herpetologist]]
+[[labyrinthian altaic]]

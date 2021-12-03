@@ -75,3 +75,10 @@ persisted.
 Imagine her next.
 : Perhaps it happens.
 
+
+## Wikilinks load test
+
+[[half-time genus abelmoschus]]
+[[defunct emerald creeper]]
+[[indiscriminating digital clock]]
+[[ubiquitous filbert]]

@@ -81,3 +81,10 @@ How brave they'll do such VERY
 on puzzling question was small
 : Come there's no name of gloves this there is so he repeated in spite of tears but there could keep
 
+
+## Wikilinks load test
+
+[[comb-like lamium amplexicaule]]
+[[urbanised rufous rubber cup]]
+[[childless coprolalia]]
+[[on-key cut-in]]

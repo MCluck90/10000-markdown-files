@@ -82,3 +82,7 @@ Stupid things everything seemed quite
 Seals turtles all however
 : How funny it'll seem to half-past one sharp bark just at them back again with
 
+
+## Wikilinks load test
+
+[[responsive type family]]

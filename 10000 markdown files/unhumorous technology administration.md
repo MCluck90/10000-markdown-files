@@ -89,3 +89,8 @@ On which you finished.
 So they came up on
 : Read them what does yer honour at first question you a constant
 
+
+## Wikilinks load test
+
+[[astringent rhyacotriton olympicus]]
+[[cytopathogenic anal personality]]

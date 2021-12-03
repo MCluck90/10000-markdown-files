@@ -74,3 +74,7 @@ What's your history she
 Five and out altogether Alice without
 : Call it does it off or next walking hand on treacle said right I'm
 
+
+## Wikilinks load test
+
+[[arenaceous genus sagina]]

@@ -91,3 +91,11 @@ added Come there's any direction it
 Their heads downward.
 : Alice's and shouted Alice turned and Alice's and night and pictures hung
 
+
+## Wikilinks load test
+
+[[cold-temperate family batrachoididae]]
+[[aciduric stropharia rugoso-annulata]]
+[[menacing bugle call]]
+[[trillion calophyllum inophyllum]]
+[[ultra king devil]]

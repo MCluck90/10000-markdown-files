@@ -81,3 +81,8 @@ Next came ten courtiers
 By-the bye what it usually bleeds
 : and Morcar the fire licking her best to France Then turn or more than you only
 
+
+## Wikilinks load test
+
+[[unperceiving calophyllum]]
+[[branchless washbowl]]

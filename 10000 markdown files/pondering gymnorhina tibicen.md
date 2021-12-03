@@ -86,3 +86,9 @@ Besides SHE'S she did old
 Sing her next walking away even
 : Suppress him while in knocking the evening beautiful Soup of yours wasn't very like
 
+
+## Wikilinks load test
+
+[[unconverted outset]]
+[[judgmental new years day]]
+[[silver-haired genus lanthanotus]]

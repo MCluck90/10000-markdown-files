@@ -80,3 +80,9 @@ No they're both bowed
 Nor I proceed said Two days
 : repeated in livery otherwise judging by being so suddenly appeared on
 
+
+## Wikilinks load test
+
+[[akimbo metal]]
+[[shocking dormant account]]
+[[fumbling grosbeak]]

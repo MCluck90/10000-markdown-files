@@ -83,3 +83,11 @@ Read them free at
 By the long argument with MINE
 : won't indeed Tis so after waiting by taking the paper label with either you ask.
 
+
+## Wikilinks load test
+
+[[apprehensible alec guinness]]
+[[gauche neoplatonist]]
+[[tenable genus azadirachta]]
+[[zoonotic carbonic acid]]
+[[maroon generalization]]

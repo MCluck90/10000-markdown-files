@@ -88,3 +88,10 @@ Serpent.
 repeated her hand in
 : Here put one can't be.
 
+
+## Wikilinks load test
+
+[[free-soil helladic culture]]
+[[besotted eminent domain]]
+[[innoxious botheration]]
+[[unelaborate genus chalcis]]

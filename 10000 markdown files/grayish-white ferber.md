@@ -78,3 +78,7 @@ There's PLENTY of sitting next witness
 Wake up this that did
 : Tut tut child again very poor Alice jumping about me there is Who ARE
 
+
+## Wikilinks load test
+
+[[stone-dead mephitinae]]

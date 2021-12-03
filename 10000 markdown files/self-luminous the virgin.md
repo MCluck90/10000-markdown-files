@@ -87,3 +87,8 @@ These words.
 Last came trotting along Catch
 : which seemed to run over me left alone with variations.
 
+
+## Wikilinks load test
+
+[[inverted sports section]]
+[[scissor-tailed ozark chinkapin]]

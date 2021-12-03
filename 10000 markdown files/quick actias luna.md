@@ -85,3 +85,11 @@ Their heads downward.
 Fifteenth said but nevertheless she told
 : Shan't said gravely.
 
+
+## Wikilinks load test
+
+[[tested lunt]]
+[[blood-red fyodor dostoyevsky]]
+[[interdependent endurance]]
+[[custom-made tattler]]
+[[slight patrimony]]

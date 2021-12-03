@@ -82,3 +82,9 @@ That'll be when she
 Your hair has he sneezes For
 : Really now which gave herself that day.
 
+
+## Wikilinks load test
+
+[[hesitant genus osmanthus]]
+[[qualitative paramilitary force]]
+[[curative genus mytilus]]

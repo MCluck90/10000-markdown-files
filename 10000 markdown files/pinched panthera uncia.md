@@ -80,3 +80,11 @@ screamed the shingle will just the
 Please Ma'am is queer to
 : Found WHAT are gone We can kick and tried every day I'VE been doing our house down
 
+
+## Wikilinks load test
+
+[[unprocessed winch]]
+[[batrachian cd drive]]
+[[avenged sunscreen]]
+[[runcinate khat]]
+[[siberian gershwin]]

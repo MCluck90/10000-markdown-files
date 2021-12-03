@@ -73,3 +73,11 @@ a funny watch to measure herself
 IF I growl the refreshments.
 : Or would die.
 
+
+## Wikilinks load test
+
+[[crural dead language]]
+[[mind-blowing woodshed]]
+[[subsidized algorithmic program]]
+[[buff-coloured denotation]]
+[[overlooking solar dish]]

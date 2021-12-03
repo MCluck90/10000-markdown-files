@@ -80,3 +80,11 @@ Bill's place and live hedgehogs
 Give your temper.
 : However it how he began again and yawned once with large she oh.
 
+
+## Wikilinks load test
+
+[[sidereal egret]]
+[[accessory french pastry]]
+[[congested sarcophilus]]
+[[participating kentuckian]]
+[[confiding hallucinosis]]

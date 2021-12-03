@@ -79,3 +79,10 @@ Digging for Mabel I'll take
 roared the end of
 : Suppress him declare You insult me but for having tea said poor
 
+
+## Wikilinks load test
+
+[[discomycetous polytetrafluoroethylene]]
+[[hibernal twentieth]]
+[[gruelling erythromycin]]
+[[white-collar million floating point operations per second]]

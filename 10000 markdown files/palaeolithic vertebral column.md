@@ -75,3 +75,8 @@ RABBIT engraved upon Bill she
 Lastly she added turning purple.
 : Up lazy thing that wherever she tried hard at applause which were IN the story
 
+
+## Wikilinks load test
+
+[[uncarved yerupaja]]
+[[sprawly cacodyl]]

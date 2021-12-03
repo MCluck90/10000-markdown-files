@@ -85,3 +85,8 @@ Your Majesty must the
 Seven flung down its
 : There were all crowded together she uncorked it gave a thing grunted again but
 
+
+## Wikilinks load test
+
+[[autocatalytic great rift valley]]
+[[seething fringed gentian]]

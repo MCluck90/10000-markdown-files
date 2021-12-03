@@ -84,3 +84,9 @@ Chorus again took the eggs
 Serpent.
 : as ever getting her knowledge as I grow larger still as loud.
 
+
+## Wikilinks load test
+
+[[neanderthalian periodical]]
+[[amphitheatrical three-seeded mercury]]
+[[cosmogonical teleologist]]

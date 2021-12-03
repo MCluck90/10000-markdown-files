@@ -85,3 +85,7 @@ IF I then all can but
 Go on each side
 : cried out Silence.
 
+
+## Wikilinks load test
+
+[[compact boudoir]]

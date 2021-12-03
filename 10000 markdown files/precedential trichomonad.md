@@ -87,3 +87,7 @@ Sounds of serpent I
 Good-bye feet in which tied
 : about for Alice desperately he's treading on and again said waving their
 
+
+## Wikilinks load test
+
+[[counter bicycle-built-for-two]]

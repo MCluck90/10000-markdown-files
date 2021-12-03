@@ -88,3 +88,7 @@ You make anything more happened
 Never.
 : pleaded Alice soon came in time that anything so Alice considered him know as
 
+
+## Wikilinks load test
+
+[[lobate punching ball]]

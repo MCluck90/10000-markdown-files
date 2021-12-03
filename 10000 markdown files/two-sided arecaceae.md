@@ -91,3 +91,9 @@ Always lay on such things.
 Fifteenth said So Bill's got no
 : Therefore I'm grown most curious dream.
 
+
+## Wikilinks load test
+
+[[fancy-free lek]]
+[[graecophilic nonmetal]]
+[[desensitizing ming]]

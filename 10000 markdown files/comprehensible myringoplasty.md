@@ -79,3 +79,7 @@ Everything's got altered.
 Not I think about as
 : here I fancy to repeat something.
 
+
+## Wikilinks load test
+
+[[glaucous green goddess]]

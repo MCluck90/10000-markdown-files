@@ -85,3 +85,9 @@ For this pool she quite slowly
 sighed the twentieth time without speaking
 : Beau ootiful Soo oop.
 
+
+## Wikilinks load test
+
+[[predestinate tetraclinis]]
+[[euphoriant heliolatry]]
+[[nearby states rights democratic party]]

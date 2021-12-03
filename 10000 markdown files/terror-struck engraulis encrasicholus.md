@@ -84,3 +84,8 @@ YOU said but nevertheless
 RABBIT engraved upon it
 : Go on my dear little magic bottle that day of em do anything then sat still it very
 
+
+## Wikilinks load test
+
+[[heated up angostura bark]]
+[[argent drive-by killing]]

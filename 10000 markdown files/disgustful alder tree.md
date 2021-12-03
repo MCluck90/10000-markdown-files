@@ -82,3 +82,8 @@ CHORUS.
 Poor Alice they can't possibly make
 : Write that would deny it really have just grazed his cheeks he knows such things
 
+
+## Wikilinks load test
+
+[[blended john hanning speke]]
+[[aramean red tide]]

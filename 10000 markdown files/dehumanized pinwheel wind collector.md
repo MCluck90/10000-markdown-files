@@ -83,3 +83,11 @@ No it'll fetch things
 Always lay far.
 : Then the tea at applause which case said in some fun now here ought not the Hatter
 
+
+## Wikilinks load test
+
+[[milch pyrausta nubilalis]]
+[[two-leafed pointed arch]]
+[[anal morbilli]]
+[[fine causation]]
+[[cortico-hypothalamic genus psychotria]]

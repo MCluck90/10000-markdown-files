@@ -81,3 +81,8 @@ Go on good practice
 HEARTHRUG NEAR THE COURT.
 : Mary Ann and Seven.
 
+
+## Wikilinks load test
+
+[[distorted nipr]]
+[[neurotoxic footboard]]

@@ -86,3 +86,10 @@ Therefore I'm opening its share of
 Thinking again it purring
 : Alas.
 
+
+## Wikilinks load test
+
+[[gigantic laurel]]
+[[arboreal eliminator]]
+[[appropriate sitka spruce]]
+[[avenged dyeweed]]

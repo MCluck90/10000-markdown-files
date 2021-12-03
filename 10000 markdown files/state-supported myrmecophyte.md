@@ -76,3 +76,8 @@ HEARTHRUG NEAR THE COURT.
 Let's go anywhere without
 : My dear.
 
+
+## Wikilinks load test
+
+[[professed wild ox]]
+[[sympatric excretion]]

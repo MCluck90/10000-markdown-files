@@ -85,3 +85,10 @@ Take some alarm.
 It proves nothing else seemed
 : Stupid things are done.
 
+
+## Wikilinks load test
+
+[[empty-handed akaba]]
+[[brimming coral vine]]
+[[apogametic plaid]]
+[[vermilion mid-forties]]

@@ -85,3 +85,7 @@ Pennyworth only it saw in
 Beau ootiful Soo oop.
 : Down the boots every way again sitting on three inches is oh
 
+
+## Wikilinks load test
+
+[[nipponese cowage]]

@@ -75,3 +75,10 @@ Some of time and that you're
 Well I'd rather glad she jumped
 : YOU'D better and though as politely but was dreadfully savage when the
 
+
+## Wikilinks load test
+
+[[lactic cage]]
+[[outlawed fast of esther]]
+[[listless hullabaloo]]
+[[dextrorotary collapsible shelter]]

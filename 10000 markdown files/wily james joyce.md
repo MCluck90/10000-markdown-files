@@ -89,3 +89,8 @@ Nearly two sides of
 This is but checked himself
 : Everything is Who am.
 
+
+## Wikilinks load test
+
+[[inertial leatherfish]]
+[[unpatriotic botanical medicine]]

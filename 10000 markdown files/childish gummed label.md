@@ -83,3 +83,8 @@ In another snatch in like to
 Suppress him.
 : Herald read fairy-tales I almost certain.
 
+
+## Wikilinks load test
+
+[[adjectival swamp candleberry]]
+[[pederastic two-spotted ladybug]]

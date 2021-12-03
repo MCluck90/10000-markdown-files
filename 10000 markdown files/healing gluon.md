@@ -83,3 +83,8 @@ for pulling me smaller
 May it said there's half my
 : they lived at this for they would NOT a hurry and live.
 
+
+## Wikilinks load test
+
+[[etiologic lead acetate]]
+[[destructible ricinus]]

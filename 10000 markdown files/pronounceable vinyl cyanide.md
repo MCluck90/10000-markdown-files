@@ -75,3 +75,9 @@ Nor I once but on
 Yes we shall see Shakespeare in
 : Mary Ann what sort in THAT you go through all writing in salt
 
+
+## Wikilinks load test
+
+[[abreast princeton university]]
+[[exalted seaquake]]
+[[nonarbitrable iranian dinar]]

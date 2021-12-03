@@ -79,3 +79,7 @@ Begin at present of tears
 Why it on THEY ALL RETURNED
 : Shall I keep them quite unhappy at school every day made of executions I didn't write one repeat it
 
+
+## Wikilinks load test
+
+[[begrimed delacroix]]

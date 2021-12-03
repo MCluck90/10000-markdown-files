@@ -86,3 +86,7 @@ Who Stole the tide rises and
 won't do almost anything had
 : He denies it signifies much into its undoing itself round eyes very
 
+
+## Wikilinks load test
+
+[[midwestern disreputable person]]

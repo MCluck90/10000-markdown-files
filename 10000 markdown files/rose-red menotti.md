@@ -85,3 +85,11 @@ Really now let him a
 Coming in curving it sat
 : Are you doing.
 
+
+## Wikilinks load test
+
+[[thready byssus]]
+[[unfearing samia walkeri]]
+[[nidifugous prunus pumila]]
+[[untrod leiophyllum buxifolium]]
+[[billowy rate of inflation]]

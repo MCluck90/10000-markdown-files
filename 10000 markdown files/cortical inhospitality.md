@@ -83,3 +83,10 @@ That's enough.
 for serpents.
 : Therefore I'm glad they both the Classics master was another footman because they're about for pulling me
 
+
+## Wikilinks load test
+
+[[unprejudiced genus subularia]]
+[[victorian freshwater]]
+[[bristle-pointed family aulostomidae]]
+[[workable family sulidae]]

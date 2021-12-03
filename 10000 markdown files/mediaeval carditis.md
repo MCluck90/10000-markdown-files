@@ -84,3 +84,11 @@ Hush.
 Behead that squeaked.
 : inquired Alice severely.
 
+
+## Wikilinks load test
+
+[[lackluster erica tetralix]]
+[[naturalized light circuit]]
+[[lowbrowed soft-shell clam]]
+[[isolable pussys-paw]]
+[[mysophobic grand duchy of luxembourg]]

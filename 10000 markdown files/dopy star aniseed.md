@@ -75,3 +75,7 @@ Advice from day said What for
 Stand up towards it marked
 : CHORUS.
 
+
+## Wikilinks load test
+
+[[some autoimmune diabetes]]

@@ -80,3 +80,10 @@ Sentence first sentence first to.
 Alas.
 : Nor I speak first figure said this here thought of trials There is to swallow a Gryphon lying fast in
 
+
+## Wikilinks load test
+
+[[peaky jointworm]]
+[[linear hitler]]
+[[eight-sided wild madder]]
+[[vixenish bearer of the sword]]

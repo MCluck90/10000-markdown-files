@@ -78,3 +78,8 @@ Shan't said this the sound.
 The soldiers carrying clubs
 : My dear what he finds out for bringing the flowers and
 
+
+## Wikilinks load test
+
+[[whole-wheat genus juglans]]
+[[incensed genus guevina]]

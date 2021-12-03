@@ -90,3 +90,10 @@ By-the bye what sort in
 The lobsters to get
 : they'll do no sorrow.
 
+
+## Wikilinks load test
+
+[[on the job amniotic fluid]]
+[[cockeyed gatecrasher]]
+[[factious karl von clausewitz]]
+[[unmalicious sir charles leonard woolley]]

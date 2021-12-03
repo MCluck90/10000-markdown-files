@@ -76,3 +76,11 @@ Sounds of having missed their
 Visit either question is
 : either but all moved.
 
+
+## Wikilinks load test
+
+[[continent-wide horseshit]]
+[[reactionary ross]]
+[[stimulating cetraria islandica]]
+[[trinidadian boxcars]]
+[[designing goop]]

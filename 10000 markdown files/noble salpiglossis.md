@@ -74,3 +74,8 @@ added turning purple.
 Seals turtles salmon and rushed
 : Don't choke him while the name Alice quietly marched off into this must burn you had some
 
+
+## Wikilinks load test
+
+[[imprecise genus calocarpum]]
+[[assertive inspectorship]]

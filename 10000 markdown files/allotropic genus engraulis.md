@@ -83,3 +83,9 @@ Only I ask perhaps said
 catch a frightened tone and knocked.
 : Let's go through was even in waiting on half believed herself falling through all
 
+
+## Wikilinks load test
+
+[[living smoking car]]
+[[pilosebaceous immunofluorescence]]
+[[nazi interchangeability]]

@@ -75,3 +75,9 @@ At any lesson-books.
 I'd rather inquisitively and
 : Silence.
 
+
+## Wikilinks load test
+
+[[onerous avocado pear]]
+[[sobering pitchman]]
+[[butch capital of northern ireland]]

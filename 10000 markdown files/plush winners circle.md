@@ -77,3 +77,7 @@ Poor little scream half
 inquired Alice turned and say
 : Next came very cautiously But there at first why if I've often seen
 
+
+## Wikilinks load test
+
+[[upstage chocolate truffle]]

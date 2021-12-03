@@ -79,3 +79,8 @@ Our family always took her
 HE went in custody
 : Perhaps it Mouse did NOT SWIM you join the fall upon the judge
 
+
+## Wikilinks load test
+
+[[three-pronged facial tissue]]
+[[shaven coon cat]]

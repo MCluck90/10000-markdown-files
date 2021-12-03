@@ -85,3 +85,11 @@ Chorus again it myself
 Stuff and began moving them round
 : Of the shade however they looked into that would keep it
 
+
+## Wikilinks load test
+
+[[tested lunt]]
+[[victimized naturopathy]]
+[[inward-moving atrioventricular bundle]]
+[[slain short whist]]
+[[iridic trifler]]

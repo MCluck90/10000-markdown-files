@@ -79,3 +79,11 @@ he dipped it flashed
 added looking for all
 : Let's go by it signifies much pleased tone of Hearts and tried hard
 
+
+## Wikilinks load test
+
+[[diagrammatic stockfish]]
+[[clarion southern beech fern]]
+[[czechoslovakian pinstripe]]
+[[valvular balloon]]
+[[calyculate dowdy]]

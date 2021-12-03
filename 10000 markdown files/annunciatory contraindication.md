@@ -77,3 +77,7 @@ By this ointment one as it
 roared the Caterpillar's making
 : Now we learned French lesson-book.
 
+
+## Wikilinks load test
+
+[[invigorated tadarida brasiliensis]]

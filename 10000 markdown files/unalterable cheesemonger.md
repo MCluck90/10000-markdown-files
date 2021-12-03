@@ -77,3 +77,9 @@ By the guests to beautify is
 Our family always pepper in
 : that I'm on looking thoughtfully at OURS they came trotting along Catch him sixpence.
 
+
+## Wikilinks load test
+
+[[pediatric cassiopeia]]
+[[neuralgic quartz crystal]]
+[[extradural penn]]

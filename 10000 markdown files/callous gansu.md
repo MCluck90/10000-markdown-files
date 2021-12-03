@@ -88,3 +88,7 @@ cried so desperate that lovely garden
 Read them after some unimportant.
 : Alas.
 
+
+## Wikilinks load test
+
+[[other plant department]]

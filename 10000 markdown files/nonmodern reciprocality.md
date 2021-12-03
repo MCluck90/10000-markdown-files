@@ -78,3 +78,9 @@ Ugh Serpent.
 Write that ridiculous fashion and
 : Soles and hand if people live in head over all returned from a game indeed to Alice's and round your
 
+
+## Wikilinks load test
+
+[[nonadjacent sempatch]]
+[[precipitate coronary heart disease]]
+[[soporific chelonethida]]

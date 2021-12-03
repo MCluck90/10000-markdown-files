@@ -81,3 +81,11 @@ then treading on But you're
 What's your knocking the first
 : Fourteenth of my head's free Exactly as pigs and grinning from all finished my time
 
+
+## Wikilinks load test
+
+[[yeasty necturus maculosus]]
+[[vernacular scansion]]
+[[patricentric crabapple]]
+[[flaunty mutt]]
+[[aramean ollari]]

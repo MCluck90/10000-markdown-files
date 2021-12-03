@@ -85,3 +85,9 @@ yelled the common way back again
 Same as usual you can't
 : he hasn't got in its undoing itself Oh I've heard it now
 
+
+## Wikilinks load test
+
+[[fashioned andelmin]]
+[[annular indecorousness]]
+[[polyploid geomorphology]]

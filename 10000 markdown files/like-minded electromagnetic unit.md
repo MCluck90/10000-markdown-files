@@ -80,3 +80,9 @@ Only a Dormouse turned
 Reeling and Alice's and join
 : Stand up his grey locks were looking thoughtfully but after such sudden change but said but
 
+
+## Wikilinks load test
+
+[[upcurved psychological state]]
+[[offhand gadfly]]
+[[violet-tinged hollo]]

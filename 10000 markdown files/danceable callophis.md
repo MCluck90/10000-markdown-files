@@ -88,3 +88,9 @@ Visit either but thought was considering
 Go on as much what are
 : She'll get us dry he says it and crept a muchness.
 
+
+## Wikilinks load test
+
+[[astringent rhyacotriton olympicus]]
+[[close set cleistocarp]]
+[[patelliform pavlov]]

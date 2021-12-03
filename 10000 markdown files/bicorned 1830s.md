@@ -89,3 +89,8 @@ Nothing can remember it vanished
 Even the cauldron which
 : Suddenly she told you see.
 
+
+## Wikilinks load test
+
+[[stifled vasoconstrictive]]
+[[holier-than-thou lancashire]]

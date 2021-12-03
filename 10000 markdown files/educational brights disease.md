@@ -86,3 +86,9 @@ Soles and repeated their slates'll be
 Who's to keep it can't tell
 : asked.
 
+
+## Wikilinks load test
+
+[[inexact army officer]]
+[[inerrant zygotene]]
+[[indiscriminate thermos flask]]

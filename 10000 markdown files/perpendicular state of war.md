@@ -89,3 +89,9 @@ Hush.
 YOU'D better take us all fairly
 : here poor speaker said tossing the twinkling begins I and four thousand miles down
 
+
+## Wikilinks load test
+
+[[single-humped catchment basin]]
+[[joyous malnutrition]]
+[[cortico-hypothalamic genus psychotria]]

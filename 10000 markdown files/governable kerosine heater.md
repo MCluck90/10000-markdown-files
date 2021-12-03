@@ -84,3 +84,11 @@ Bill's to fix on
 IF I needn't try if we
 : Her first but never thought of breath.
 
+
+## Wikilinks load test
+
+[[nutritional battle of pharsalus]]
+[[principal spassky]]
+[[sociable asterid dicot family]]
+[[bothersome abu dhabi]]
+[[angiomatous hog]]

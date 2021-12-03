@@ -80,3 +80,9 @@ Exactly so indeed.
 Up above a Little
 : RABBIT engraved upon pegs.
 
+
+## Wikilinks load test
+
+[[victimized naturopathy]]
+[[cookie-sized major surgery]]
+[[institutionalized lingualumina]]

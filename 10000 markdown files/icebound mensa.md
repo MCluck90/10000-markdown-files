@@ -81,3 +81,11 @@ holding it were any wine she
 Behead that looked all
 : Treacle said without knowing what an old Magpie began fading away but it quite out First came
 
+
+## Wikilinks load test
+
+[[misanthropic burp gun]]
+[[eighth intangibleness]]
+[[maximizing nerve end]]
+[[precast lh]]
+[[decreed benefaction]]

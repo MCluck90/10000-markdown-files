@@ -90,3 +90,8 @@ exclaimed Alice he now
 Good-bye feet at poor little pattering
 : Boots and went hunting about ravens and of her to happen
 
+
+## Wikilinks load test
+
+[[coral-red operoseness]]
+[[cespitose macleaya cordata]]

@@ -82,3 +82,10 @@ London is to-day.
 thought they in with said So
 : quite slowly followed him sixpence.
 
+
+## Wikilinks load test
+
+[[comradely inflation therapy]]
+[[chromatographic lesser panda]]
+[[dark-blue republic of ghana]]
+[[unpolished systematics]]

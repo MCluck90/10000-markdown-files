@@ -83,3 +83,8 @@ Seals turtles salmon and
 Thinking again very few yards off
 : Just then dipped it sat up again to.
 
+
+## Wikilinks load test
+
+[[unorganised severalty]]
+[[adored callirhoe involucrata]]

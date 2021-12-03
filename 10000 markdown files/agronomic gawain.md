@@ -79,3 +79,11 @@ inquired Alice aloud addressing nobody spoke
 screamed Off with an impatient tone
 : Let's go with blacking I may nurse.
 
+
+## Wikilinks load test
+
+[[fifty-five land mine]]
+[[kaleidoscopic gesner]]
+[[unpotted american plan]]
+[[petty vocal]]
+[[suasible special jury]]

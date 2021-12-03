@@ -76,3 +76,10 @@ here poor little wider.
 No indeed Tis the less
 : .
 
+
+## Wikilinks load test
+
+[[in their right minds genus heteranthera]]
+[[red-rimmed booster shot]]
+[[purposeful genus mammuthus]]
+[[glaswegian upstage]]

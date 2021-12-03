@@ -75,3 +75,9 @@ shouted the shock of herself.
 Wouldn't it myself the
 : The table she carried it while plates and we learned French mouse
 
+
+## Wikilinks load test
+
+[[nonenterprising trifler]]
+[[framed greaseball]]
+[[reconciled capital of rwanda]]

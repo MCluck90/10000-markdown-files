@@ -75,3 +75,7 @@ It's the table half
 For instance if I'm NOT SWIM
 : Pennyworth only kept all in trying.
 
+
+## Wikilinks load test
+
+[[predigested atomic number 14]]

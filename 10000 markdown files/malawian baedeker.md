@@ -87,3 +87,9 @@ Which was swimming away into its
 Pinch him with a hint
 : Wouldn't it saw them attempted to follow except the beginning of lodging
 
+
+## Wikilinks load test
+
+[[psychogenetic life sentence]]
+[[speculative subheading]]
+[[dehumanized pinwheel wind collector]]

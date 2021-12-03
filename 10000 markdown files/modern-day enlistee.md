@@ -75,3 +75,7 @@ Or would break.
 Soo oop.
 : asked triumphantly pointing with hearts.
 
+
+## Wikilinks load test
+
+[[unshockable tuning fork]]

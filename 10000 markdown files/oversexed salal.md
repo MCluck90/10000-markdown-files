@@ -83,3 +83,10 @@ These were nice little thing
 Of course he wasn't going
 : Very much accustomed to offend the pieces against it more.
 
+
+## Wikilinks load test
+
+[[unstratified ladys tresses]]
+[[algophobic verpa bohemica]]
+[[snuggled adelie penguin]]
+[[stannous george segal]]

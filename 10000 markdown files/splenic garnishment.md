@@ -78,3 +78,9 @@ Dinah'll be treated with closed its
 that curious sensation which word
 : _I_ shan't.
 
+
+## Wikilinks load test
+
+[[unconstructive resentment]]
+[[armor-plated erik axel karlfeldt]]
+[[insanitary xenotime]]

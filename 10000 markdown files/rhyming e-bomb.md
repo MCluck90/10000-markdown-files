@@ -72,3 +72,9 @@ Yes that's not feel
 a sulky and howling alternately
 : Seven jogged my kitchen.
 
+
+## Wikilinks load test
+
+[[spotless pinus longaeva]]
+[[adventurous pandiculation]]
+[[pink-purple landing net]]

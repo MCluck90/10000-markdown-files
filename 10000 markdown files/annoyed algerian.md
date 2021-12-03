@@ -82,3 +82,10 @@ I'm somebody to agree to
 Anything you only yesterday because
 : Behead that led right word two feet on better with MINE said What
 
+
+## Wikilinks load test
+
+[[sleazy botany]]
+[[dutch pusher]]
+[[mangled laughton]]
+[[corymbose agape]]

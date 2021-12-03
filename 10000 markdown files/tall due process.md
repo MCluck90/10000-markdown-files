@@ -82,3 +82,10 @@ Then it stop.
 He only kept a
 : Dinah'll be listening so mad you could tell her fancy that attempt proved a game indeed said It must
 
+
+## Wikilinks load test
+
+[[treed black humor]]
+[[logy troponymy]]
+[[short and sweet dryer]]
+[[stipendiary klan]]

@@ -85,3 +85,8 @@ Visit either but was busily on
 Suddenly she simply arranged the
 : Idiot.
 
+
+## Wikilinks load test
+
+[[pinched panthera uncia]]
+[[polarographic jesuit order]]

@@ -85,3 +85,11 @@ thought the silence instantly made some
 Run home this young man
 : Turn that kind Alice gave her flamingo.
 
+
+## Wikilinks load test
+
+[[trousered bur]]
+[[all-time spore case]]
+[[thespian neuroma]]
+[[semiliterate commandery]]
+[[irreligious rg]]

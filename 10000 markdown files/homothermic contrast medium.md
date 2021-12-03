@@ -87,3 +87,7 @@ ALL PERSONS MORE than what
 HEARTHRUG NEAR THE SLUGGARD
 : Somebody said Five.
 
+
+## Wikilinks load test
+
+[[archidiaconal dds]]

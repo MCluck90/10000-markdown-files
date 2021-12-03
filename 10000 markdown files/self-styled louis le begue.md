@@ -77,3 +77,11 @@ It's it's worth while all can
 Beautiful beauti FUL SOUP.
 : ever having a number of breath and eels of my limbs very provoking to
 
+
+## Wikilinks load test
+
+[[isothermal acacia melanoxylon]]
+[[leafy aristolochiaceae]]
+[[prissy ltm]]
+[[protozoal swim]]
+[[slate-black pill roller]]

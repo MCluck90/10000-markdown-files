@@ -83,3 +83,7 @@ Alice's great wonder who will look
 Sentence first they made
 : So Alice looked down so far.
 
+
+## Wikilinks load test
+
+[[holophytic gore vidal]]

@@ -86,3 +86,8 @@ Ten hours I I said it
 a chrysalis you talking at
 : It looked up with my throat.
 
+
+## Wikilinks load test
+
+[[blotted out abstract entity]]
+[[bogartian genus piroplasma]]

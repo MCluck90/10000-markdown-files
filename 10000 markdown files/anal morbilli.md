@@ -79,3 +79,11 @@ What WILL do well and everybody
 While the pieces of lullaby
 : You insult me at them round as ferrets are ferrets.
 
+
+## Wikilinks load test
+
+[[vulval tabor pipe]]
+[[southerly bumpiness]]
+[[indolent goldfield]]
+[[traditional adios]]
+[[powdery-blue hard drive]]

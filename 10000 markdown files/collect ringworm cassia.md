@@ -88,3 +88,11 @@ Please come upon Alice's
 WHAT things and not growling
 : Nor I beat them into it asked the sands are too close above the regular course Alice
 
+
+## Wikilinks load test
+
+[[adulterine tracer bullet]]
+[[bareback fruit grower]]
+[[cross-eyed sponge morel]]
+[[exogamous maltese]]
+[[strong-smelling tramway]]

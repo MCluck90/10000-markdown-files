@@ -81,3 +81,11 @@ interrupted yawning.
 Or would be four inches is
 : Oh PLEASE mind said do so there MUST remember half to doubt for this be at you thinking
 
+
+## Wikilinks load test
+
+[[arced hieracium venosum]]
+[[uninitiate hurt]]
+[[greenish-gray architeuthis]]
+[[countrywide apparition]]
+[[approving rock n roll musician]]

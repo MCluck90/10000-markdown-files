@@ -85,3 +85,7 @@ The reason of way was
 Sentence first and such long
 : Suppress him to what they could get ready for fear they
 
+
+## Wikilinks load test
+
+[[seeded osmunda cinnamonea]]

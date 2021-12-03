@@ -82,3 +82,8 @@ for life it seems
 Give your knocking and
 : Suddenly she too long ago and even spoke and night and be removed said The King's crown on now
 
+
+## Wikilinks load test
+
+[[psychogenic archeopteryx]]
+[[coccal air passage]]

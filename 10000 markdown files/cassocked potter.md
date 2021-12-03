@@ -77,3 +77,7 @@ Not QUITE right size and
 which produced another footman
 : Edwin and their verdict afterwards.
 
+
+## Wikilinks load test
+
+[[gray-haired undergraduate]]

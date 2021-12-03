@@ -79,3 +79,10 @@ thought and one.
 This here lad.
 : They're dreadfully savage.
 
+
+## Wikilinks load test
+
+[[conditioned dune]]
+[[hydroponic temptingness]]
+[[scalloped family danaidae]]
+[[ex post facto variorum edition]]

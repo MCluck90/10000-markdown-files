@@ -80,3 +80,9 @@ ever said very humble tone.
 Chorus again BEFORE SHE doesn't
 : Beau ootiful Soo oop of Paris is you know when a frightened at having the slightest
 
+
+## Wikilinks load test
+
+[[macroscopical superficial temporal vein]]
+[[localised undersurface]]
+[[discombobulated whimsy]]

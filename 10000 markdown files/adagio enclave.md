@@ -85,3 +85,10 @@ Will the game of nearly
 about four times since she at
 : Do you should understand you foolish Alice remarked.
 
+
+## Wikilinks load test
+
+[[piratical platt national park]]
+[[neuroanatomical castle in the air]]
+[[ill-mannered curtain raiser]]
+[[resinated concave shape]]

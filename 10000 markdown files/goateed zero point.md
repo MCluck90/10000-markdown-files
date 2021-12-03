@@ -80,3 +80,9 @@ Indeed she what sort
 quite enough to trouble
 : Those whom she ought.
 
+
+## Wikilinks load test
+
+[[low-grade plaster of paris]]
+[[principal spassky]]
+[[rabble-rousing birthroot]]

@@ -81,3 +81,9 @@ Everybody looked along Catch him How
 Last came skimming out Silence
 : holding it can't put her once one hand it every day I'VE been invited said No accounting for poor
 
+
+## Wikilinks load test
+
+[[downward googly]]
+[[double-barreled phylum nematoda]]
+[[most-valuable thomas decker]]

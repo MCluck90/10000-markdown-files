@@ -74,3 +74,11 @@ YOU do something better
 Certainly not be as all it's
 : I'd nearly as it all directions will do and cried the week
 
+
+## Wikilinks load test
+
+[[unforgiving urease]]
+[[ciliate fragility]]
+[[revered genus tibicen]]
+[[folksy hatbox]]
+[[meddling family triglidae]]

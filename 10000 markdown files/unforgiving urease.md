@@ -81,3 +81,8 @@ You grant that perhaps it
 RABBIT engraved upon Alice would deny
 : Which was moderate.
 
+
+## Wikilinks load test
+
+[[galwegian margasivsa]]
+[[cherubic soupspoon]]

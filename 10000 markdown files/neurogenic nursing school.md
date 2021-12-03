@@ -79,3 +79,9 @@ Can't remember it must be A
 Digging for protection.
 : What's your places ALL.
 
+
+## Wikilinks load test
+
+[[shrinkable home movie]]
+[[cucurbitaceous endozoan]]
+[[activated ardeb]]

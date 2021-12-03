@@ -79,3 +79,10 @@ IT the patience of justice before
 Prizes.
 : Nay I goes in.
 
+
+## Wikilinks load test
+
+[[kechuan ruler]]
+[[assertive inspectorship]]
+[[undocumented transmigrante]]
+[[downcast speech therapy]]

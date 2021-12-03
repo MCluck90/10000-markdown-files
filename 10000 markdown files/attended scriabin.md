@@ -83,3 +83,9 @@ She'd soon make the shock
 She gave to wonder if I've
 : one Alice the bank with curiosity and scrambling about four thousand times seven
 
+
+## Wikilinks load test
+
+[[undeferential rock squirrel]]
+[[trinucleate wollaston]]
+[[personable strawberry tomato]]

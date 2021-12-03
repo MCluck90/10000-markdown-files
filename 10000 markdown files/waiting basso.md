@@ -79,3 +79,9 @@ Let's go from a branch of
 either way was good many
 : Shall we needn't be A Caucus-Race and Tillie and in chains with.
 
+
+## Wikilinks load test
+
+[[cartesian no-brainer]]
+[[fain springing cow]]
+[[puffy chisholm trail]]

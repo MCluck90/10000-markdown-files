@@ -78,3 +78,9 @@ Nor I wish they'd let
 was VERY nearly out loud as
 : down its tail.
 
+
+## Wikilinks load test
+
+[[euphonic snow line]]
+[[deadened pitocin]]
+[[ecologic stingaree-bush]]

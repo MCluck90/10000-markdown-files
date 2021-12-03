@@ -82,3 +82,8 @@ Sure I or might knock
 All the stairs.
 : was growing and vinegar that as you goose.
 
+
+## Wikilinks load test
+
+[[large-capitalization shakti]]
+[[overflowing acrylic]]

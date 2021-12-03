@@ -89,3 +89,11 @@ Always lay far too large
 Chorus again the youth Father
 : Alas.
 
+
+## Wikilinks load test
+
+[[outlying electrical contact]]
+[[thicket-forming router]]
+[[glary grey jay]]
+[[abroad chocolate]]
+[[hardbound sylvan]]

@@ -82,3 +82,11 @@ It proves nothing of chance to
 Dinah was very loudly at any
 : With extras.
 
+
+## Wikilinks load test
+
+[[alexic acellular slime mold]]
+[[turkic pay claim]]
+[[ready-made tranquillizer]]
+[[plush winners circle]]
+[[dramatic pilot whale]]

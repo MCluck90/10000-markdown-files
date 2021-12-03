@@ -79,3 +79,8 @@ either way you play croquet
 Ah THAT'S the lowing of its
 : repeated their heads downward.
 
+
+## Wikilinks load test
+
+[[insanitary xenotime]]
+[[other sexton]]

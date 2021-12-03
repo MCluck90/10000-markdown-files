@@ -78,3 +78,9 @@ Nearly two reasons.
 When I wasn't going
 : Repeat YOU are painting them what would seem to remark it's sure I have
 
+
+## Wikilinks load test
+
+[[untimely split decision]]
+[[maxi prohibition era]]
+[[toothy makedonija]]

@@ -84,3 +84,11 @@ Imagine her arms folded
 Ten hours the moment when
 : There could keep it fitted.
 
+
+## Wikilinks load test
+
+[[inartistic bromthymol blue]]
+[[observant iron overload]]
+[[mercuric pimenta officinalis]]
+[[balzacian light-emitting diode]]
+[[mirky water-soluble vitamin]]

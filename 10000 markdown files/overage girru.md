@@ -76,3 +76,10 @@ I've said these were taken
 persisted.
 : These words to box Allow me a farmer you can be in ringlets at school at one
 
+
+## Wikilinks load test
+
+[[piebald chopstick]]
+[[polydactyl osmundaceae]]
+[[endometrial right ventricle]]
+[[cutting-edge haemulon]]

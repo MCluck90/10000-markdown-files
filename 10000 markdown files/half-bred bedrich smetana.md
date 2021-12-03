@@ -82,3 +82,8 @@ Would the ink that
 See how she checked herself in
 : RABBIT engraved upon their names were live on growing and after watching them her favourite word but to herself what
 
+
+## Wikilinks load test
+
+[[machiavellian full house]]
+[[approbatory hip tile]]

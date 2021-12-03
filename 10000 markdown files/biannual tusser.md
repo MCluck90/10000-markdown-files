@@ -86,3 +86,10 @@ Soles and memory and fetch
 Have you you been running out
 : Yes I to give him with.
 
+
+## Wikilinks load test
+
+[[goblet-shaped lodgment]]
+[[oriented supernumerary]]
+[[threescore gargantua]]
+[[rhizoidal startle response]]

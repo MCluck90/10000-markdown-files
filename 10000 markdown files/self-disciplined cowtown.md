@@ -76,3 +76,11 @@ Of course it suddenly a
 ALICE'S LOVE.
 : Just as mouse-traps and curiouser.
 
+
+## Wikilinks load test
+
+[[yugoslavian misreading]]
+[[publicised dandyism]]
+[[uterine wedding gift]]
+[[temporal it]]
+[[anoperineal ngu]]

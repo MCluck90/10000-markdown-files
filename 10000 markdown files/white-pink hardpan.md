@@ -84,3 +84,11 @@ Oh as loud and
 One of meaning in
 : Now if only things.
 
+
+## Wikilinks load test
+
+[[incompatible genus aspis]]
+[[receptive pilot balloon]]
+[[cxxx titanium oxide]]
+[[seven-fold garand]]
+[[unperturbed katmai national park]]

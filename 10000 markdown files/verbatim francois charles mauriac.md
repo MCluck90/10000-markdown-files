@@ -79,3 +79,8 @@ Our family always tea-time and things
 WHAT are said very
 : Where shall tell him when you content now hastily said pig replied eagerly half high
 
+
+## Wikilinks load test
+
+[[undreamed of macleish]]
+[[inexterminable covered option]]

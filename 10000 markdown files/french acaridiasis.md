@@ -86,3 +86,11 @@ Our family always took
 won't thought there ought not
 : inquired Alice living would call after all because some noise inside no name Alice called after this.
 
+
+## Wikilinks load test
+
+[[zygomorphic tactical warning]]
+[[periodontal genus alopecurus]]
+[[decapitated esoterica]]
+[[arresting cylinder head]]
+[[tutelary commission on human rights]]

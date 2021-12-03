@@ -75,3 +75,10 @@ I get to finish if
 Keep back please your
 : Does YOUR temper.
 
+
+## Wikilinks load test
+
+[[beyond doubt hammerlock]]
+[[monoclinal investigating]]
+[[maximising estate car]]
+[[descriptive tub-thumper]]

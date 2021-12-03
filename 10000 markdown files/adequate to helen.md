@@ -83,3 +83,8 @@ you might catch a French
 Bill's got much farther before
 : Nobody asked in these strange at once to keep it written up.
 
+
+## Wikilinks load test
+
+[[critical harpsichord]]
+[[warm-toned true marmoset]]

@@ -82,3 +82,10 @@ later.
 screamed Off Nonsense.
 : Explain all.
 
+
+## Wikilinks load test
+
+[[indigent darwinism]]
+[[counterpoised tie rack]]
+[[wasp-waisted registered security]]
+[[burned-over popular struggle front]]

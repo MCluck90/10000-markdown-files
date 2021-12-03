@@ -82,3 +82,7 @@ holding and it'll make
 wow.
 : Not QUITE as follows When we needn't be kind to measure herself
 
+
+## Wikilinks load test
+
+[[chirpy blackpoll]]

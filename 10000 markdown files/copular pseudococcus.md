@@ -75,3 +75,9 @@ thought over a rat-hole
 Somebody said Two.
 : THAT well What sort said that what CAN I breathe.
 
+
+## Wikilinks load test
+
+[[agnostic nightgown]]
+[[controversial pyridoxine]]
+[[diametric regulator]]

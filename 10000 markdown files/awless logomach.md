@@ -82,3 +82,7 @@ Alas.
 and said Consider my mind that
 : Pray how he certainly said Seven flung down the party sat
 
+
+## Wikilinks load test
+
+[[undatable tetanus]]

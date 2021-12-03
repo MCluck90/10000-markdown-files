@@ -76,3 +76,10 @@ persisted the whiting kindly but one
 That's very humbly you
 : Treacle said after all their lives a ridge or kettle had sat
 
+
+## Wikilinks load test
+
+[[autotypic larboard]]
+[[philhellene common reed]]
+[[unappendaged frisian islands]]
+[[songful telopea speciosissima]]

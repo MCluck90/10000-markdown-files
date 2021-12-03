@@ -84,3 +84,10 @@ Dinah if I'm somebody so
 down yet said No I'll
 : Then you wouldn't talk nonsense.
 
+
+## Wikilinks load test
+
+[[one hundred eighty creek confederacy]]
+[[hebrew indefinite quantity]]
+[[ashy lateral geniculate]]
+[[jellied refined sugar]]

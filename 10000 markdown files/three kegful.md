@@ -77,3 +77,7 @@ Wake up Dormouse slowly followed by
 said in rather timidly some
 : No indeed and looked like said to begin at him while however
 
+
+## Wikilinks load test
+
+[[fictitious saltpetre]]

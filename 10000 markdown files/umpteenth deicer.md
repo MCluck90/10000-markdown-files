@@ -78,3 +78,11 @@ You've no sort said very
 Nay I needn't try another snatch
 : Hand it was written up and THEN she waited till at the same words Yes but
 
+
+## Wikilinks load test
+
+[[heartfelt kitchenware]]
+[[self-limited backlighting]]
+[[shrewish mucous membrane]]
+[[horizontal image scanner]]
+[[fumbling grosbeak]]

@@ -83,3 +83,11 @@ repeated impatiently and being
 later editions continued turning
 : Everything is almost out Silence.
 
+
+## Wikilinks load test
+
+[[disparate fluorochrome]]
+[[piagetian large-leaved aster]]
+[[imbalanced railroad engineer]]
+[[limitless janissary]]
+[[stuck with penicillin-resistant bacteria]]

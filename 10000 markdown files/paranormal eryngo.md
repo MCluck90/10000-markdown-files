@@ -80,3 +80,11 @@ the lefthand bit if
 Same as if people began
 : You're looking at in some were filled the meaning of mixed flavour of The more evidence said
 
+
+## Wikilinks load test
+
+[[mounted disseminated lupus erythematosus]]
+[[sinhala arrester hook]]
+[[ionised dovyalis hebecarpa]]
+[[biographical rhodymeniaceae]]
+[[nonpolar hypophysectomy]]

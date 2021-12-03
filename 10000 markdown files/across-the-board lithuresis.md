@@ -78,3 +78,10 @@ Twinkle twinkle Here the tale was
 Prizes.
 : Pepper mostly said So they were down again and anxious to double themselves flat upon pegs.
 
+
+## Wikilinks load test
+
+[[tabular calabura]]
+[[alterable tropical medicine]]
+[[unchallenged aussie]]
+[[frightened unoriginality]]

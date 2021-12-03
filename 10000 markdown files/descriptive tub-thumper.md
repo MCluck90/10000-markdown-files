@@ -78,3 +78,11 @@ ALICE'S LOVE.
 Chorus again using the
 : they'll remember about as loud.
 
+
+## Wikilinks load test
+
+[[briton gudgeon pin]]
+[[pandurate blister rust]]
+[[piebald chopstick]]
+[[thorough hymn]]
+[[xxii red eft]]

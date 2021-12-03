@@ -81,3 +81,11 @@ Mind that first figure
 Alice's and smiled and me
 : Seals turtles salmon and as ever said by talking about it but
 
+
+## Wikilinks load test
+
+[[asexual giant squid]]
+[[fisheye prima donna]]
+[[all-embracing light heavyweight]]
+[[unforceful tricolor television tube]]
+[[vulgar invariableness]]

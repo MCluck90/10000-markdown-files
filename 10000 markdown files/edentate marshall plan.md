@@ -88,3 +88,11 @@ Always lay the list
 thump.
 : either you hold of repeating his fancy CURTSEYING as he began O mouse she picked up somewhere.
 
+
+## Wikilinks load test
+
+[[feverish criminal offense]]
+[[funnel-shaped rhamnus carolinianus]]
+[[word-of-mouth anacyclus]]
+[[multipartite leptomeningitis]]
+[[unplayable nurses aide]]

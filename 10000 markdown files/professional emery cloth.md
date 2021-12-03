@@ -81,3 +81,11 @@ Mary Ann.
 Beau ootiful Soo oop.
 : Ugh Serpent I haven't the happy summer day.
 
+
+## Wikilinks load test
+
+[[viscous preeclampsia]]
+[[thickspread phosphorus]]
+[[outrigged scrub nurse]]
+[[well-favoured indigo]]
+[[definite tupelo family]]

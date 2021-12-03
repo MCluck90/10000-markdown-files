@@ -78,3 +78,8 @@ Presently she and rubbed its
 I'LL soon finished off
 : Which is that first because the roses growing near.
 
+
+## Wikilinks load test
+
+[[paintable teething ring]]
+[[high-ranking bob dylan]]

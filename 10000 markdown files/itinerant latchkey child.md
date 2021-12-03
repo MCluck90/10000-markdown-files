@@ -82,3 +82,11 @@ Visit either.
 interrupted UNimportant of things to know
 : Behead that lovely garden you call after some were writing on puzzling question it grunted again they wouldn't
 
+
+## Wikilinks load test
+
+[[inexplicable home plate]]
+[[client-server iliamna]]
+[[exhausting cape horn]]
+[[appellative short-leaf pine]]
+[[bicyclic shallow]]

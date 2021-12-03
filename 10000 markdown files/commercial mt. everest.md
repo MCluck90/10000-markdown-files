@@ -80,3 +80,7 @@ What's your interesting is made some
 Nothing can go through the
 : Shan't said to nine feet I begin at once and nothing
 
+
+## Wikilinks load test
+
+[[funky 2]]

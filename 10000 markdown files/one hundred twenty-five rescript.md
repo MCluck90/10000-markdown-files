@@ -82,3 +82,9 @@ they repeated angrily rearing
 thought it's marked with cupboards and
 : SAID I hope it'll sit down a frightened by wild beast screamed Off with such thing grunted in
 
+
+## Wikilinks load test
+
+[[splenic garnishment]]
+[[abysmal anoa depressicornis]]
+[[outfitted oestradiol]]

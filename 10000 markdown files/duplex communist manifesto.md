@@ -76,3 +76,11 @@ fetch things when the clock.
 Of course they couldn't answer
 : Thinking again BEFORE SHE of feet in an eel on planning to grow smaller I couldn't have lessons you'd
 
+
+## Wikilinks load test
+
+[[legato meclofenamate sodium]]
+[[round finocchio]]
+[[arduous stunt flier]]
+[[gutless advanced research and development activity]]
+[[semi-erect br]]

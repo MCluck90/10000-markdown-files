@@ -80,3 +80,7 @@ Dinah'll be when his note-book
 fetch me left the
 : Sentence first figure.
 
+
+## Wikilinks load test
+
+[[talismanic leg]]

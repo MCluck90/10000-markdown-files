@@ -74,3 +74,7 @@ Who's to read about it explained
 Does the entrance of
 : I'll fetch the moon and why do very melancholy words a railway station.
 
+
+## Wikilinks load test
+
+[[some autoimmune diabetes]]

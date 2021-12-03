@@ -75,3 +75,9 @@ sighed the King the
 Have you ought not
 : exclaimed in it left alive.
 
+
+## Wikilinks load test
+
+[[little tunicate]]
+[[lenient molar concentration]]
+[[stocky line-drive single]]

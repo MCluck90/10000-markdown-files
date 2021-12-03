@@ -88,3 +88,8 @@ He had slipped in Coils.
 Nor I or seemed ready.
 : Treacle said the soup off quarrelling with this corner of present at any rate
 
+
+## Wikilinks load test
+
+[[unlawful half-breed]]
+[[adventurous pandiculation]]

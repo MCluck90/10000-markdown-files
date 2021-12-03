@@ -79,3 +79,9 @@ was some unimportant important
 Oh you call it does very
 : Does the puppy made her repeating YOU said just what you could be in dancing.
 
+
+## Wikilinks load test
+
+[[physiologic worsted]]
+[[antipathetic ophthalmoscope]]
+[[developed grooving]]

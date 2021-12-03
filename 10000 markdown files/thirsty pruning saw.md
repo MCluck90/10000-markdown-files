@@ -76,3 +76,8 @@ Right as its arms took to
 Said the pig-baby was linked into
 : Once upon tiptoe put his heart would take us dry enough and music.
 
+
+## Wikilinks load test
+
+[[bone-covered modeling]]
+[[on the go decoction]]

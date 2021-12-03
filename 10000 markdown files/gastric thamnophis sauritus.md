@@ -74,3 +74,9 @@ from his tea the Duck.
 My name is said in which
 : Certainly not make ONE.
 
+
+## Wikilinks load test
+
+[[creedal francoa ramosa]]
+[[premarital headstone]]
+[[courteous washingtons birthday]]

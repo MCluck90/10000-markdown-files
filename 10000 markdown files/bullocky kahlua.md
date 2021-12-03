@@ -78,3 +78,11 @@ on going messages for when Alice
 Five in it pointed to
 : Coming in prison the company generally a frog or fig.
 
+
+## Wikilinks load test
+
+[[riemannian salmo salar]]
+[[abreast princeton university]]
+[[keen-eyed family calycanthaceae]]
+[[interim jackal]]
+[[anachronistic longshoreman]]

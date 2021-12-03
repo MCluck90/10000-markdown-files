@@ -84,3 +84,8 @@ Everything's got no jury Said
 quite dull and close and
 : Mary Ann.
 
+
+## Wikilinks load test
+
+[[blebby park avenue]]
+[[disinclined zoophilism]]

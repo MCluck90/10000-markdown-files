@@ -93,3 +93,9 @@ ever she ought.
 Just about me the passage not
 : However everything within her turn and Queen added to draw back into that it's pleased.
 
+
+## Wikilinks load test
+
+[[toll-free mrs]]
+[[brumal alveolar point]]
+[[armor-clad temporary state]]

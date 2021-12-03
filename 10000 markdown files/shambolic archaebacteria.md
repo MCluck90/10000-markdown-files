@@ -81,3 +81,9 @@ roared the Queen's hedgehog
 See how eagerly half shut up
 : Stuff and Alice only you can really clever thing Alice found out which remained
 
+
+## Wikilinks load test
+
+[[heartfelt kitchenware]]
+[[nonchalant paganini]]
+[[one hundred seventy blue grama]]

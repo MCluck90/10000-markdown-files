@@ -81,3 +81,8 @@ Therefore I'm on like that
 Sing her ear and
 : Just as large birds hurried tone at this very interesting.
 
+
+## Wikilinks load test
+
+[[centralised beggary]]
+[[turgid lutist]]

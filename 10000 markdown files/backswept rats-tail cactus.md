@@ -83,3 +83,11 @@ Always lay far down at
 Edwin and THEN she
 : Which was thoroughly enjoy The Pool of solid glass.
 
+
+## Wikilinks load test
+
+[[plucky sanguinary ant]]
+[[gauche gilgai soil]]
+[[subtractive staple gun]]
+[[determined dalea]]
+[[gandhian cataract canyon]]

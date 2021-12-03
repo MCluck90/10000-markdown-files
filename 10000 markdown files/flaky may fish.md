@@ -77,3 +77,11 @@ Begin at her adventures first
 Seven jogged my way into custody
 : IT DOES THE KING AND WASHING extra.
 
+
+## Wikilinks load test
+
+[[bearish j. c. maxwell]]
+[[thalassic edward james muggeridge]]
+[[apogametic plaid]]
+[[reanimated tortoise plant]]
+[[phlegmatic megabat]]

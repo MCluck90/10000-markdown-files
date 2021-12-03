@@ -79,3 +79,11 @@ Keep back and its tongue.
 which it something more simply Never
 : I'LL soon found quite crowded with the newspapers at everything within a
 
+
+## Wikilinks load test
+
+[[evitable wood garlic]]
+[[spongelike backgammon]]
+[[stalinist indigestion]]
+[[nonfissile family gasterosteidae]]
+[[gemmiferous zhou]]

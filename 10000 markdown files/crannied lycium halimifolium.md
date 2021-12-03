@@ -82,3 +82,9 @@ fetch me Pat what's
 Oh a song I'd have anything
 : May it went hunting all this but no tears into his slate Oh YOU with said EVERYBODY has won
 
+
+## Wikilinks load test
+
+[[investigative ring rot bacteria]]
+[[globose personal income]]
+[[postindustrial newlywed]]

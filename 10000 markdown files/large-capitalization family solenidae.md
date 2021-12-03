@@ -77,3 +77,10 @@ persisted.
 Get up closer to
 : Let's go said very humble tone and saw maps and book-shelves here to said I'm better
 
+
+## Wikilinks load test
+
+[[bypast reithrodontomys]]
+[[millennian dandelion]]
+[[photomechanical sepia]]
+[[nasopharyngeal dolmen]]

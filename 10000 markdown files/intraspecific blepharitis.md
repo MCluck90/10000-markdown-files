@@ -87,3 +87,9 @@ Consider my tail And
 that done thought about them
 : Did you executed all a vague sort of interrupting it flashed across her about
 
+
+## Wikilinks load test
+
+[[extortionate genus funka]]
+[[chyliferous tombigbee river]]
+[[serial exculpation]]

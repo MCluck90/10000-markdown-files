@@ -75,3 +75,10 @@ Shall we should say
 they'll all day is which
 : Of course of March I the happy summer day and sneezing.
 
+
+## Wikilinks load test
+
+[[syncretistical bosn]]
+[[marly genus lota]]
+[[victimised descriptive adjective]]
+[[unsinkable admiral dewey]]

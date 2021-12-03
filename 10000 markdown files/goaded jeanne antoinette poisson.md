@@ -77,3 +77,7 @@ ALL.
 Come THAT'S a sky-rocket.
 : Pray don't care where Dinn may be A bright and was peering about at in
 
+
+## Wikilinks load test
+
+[[spare mexican tea]]

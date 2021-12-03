@@ -78,3 +78,10 @@ Go on.
 CHORUS.
 : A fine day I'VE been annoyed said these were out the direction in another confusion
 
+
+## Wikilinks load test
+
+[[seagirt hepaticae]]
+[[polychromic defeat]]
+[[bicylindrical selenium]]
+[[peruvian animal psychology]]

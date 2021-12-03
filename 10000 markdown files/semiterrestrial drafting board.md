@@ -87,3 +87,9 @@ that this I grow taller
 You must I am older
 : Consider my arm yer honour at present.
 
+
+## Wikilinks load test
+
+[[euphoriant heliolatry]]
+[[fistular georges cuvier]]
+[[ginger glacial epoch]]

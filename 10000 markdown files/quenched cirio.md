@@ -82,3 +82,10 @@ Get to notice this
 added Come let's all returned
 : Whoever lives.
 
+
+## Wikilinks load test
+
+[[hidrotic threshers lung]]
+[[short-stalked martes americana]]
+[[eye-deceiving gaza]]
+[[la-di-da farrier]]

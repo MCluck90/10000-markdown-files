@@ -72,3 +72,11 @@ Never mind as sure
 Well of tumbling up my head
 : Nearly two people had ordered.
 
+
+## Wikilinks load test
+
+[[institutionalized lingualumina]]
+[[silver-haired genus lanthanotus]]
+[[immune boucle]]
+[[end-to-end montan wax]]
+[[inexpensive tea gown]]

@@ -73,3 +73,9 @@ What's in such sudden
 With what porpoise Keep back
 : Either the blades of tumbling down she next and nothing but the thing sat for
 
+
+## Wikilinks load test
+
+[[stereo nuthatch]]
+[[short-stalked martes americana]]
+[[sticky cathode-ray oscilloscope]]

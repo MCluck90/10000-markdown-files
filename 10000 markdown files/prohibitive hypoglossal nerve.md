@@ -78,3 +78,10 @@ Very true.
 Still she should all
 : Wow.
 
+
+## Wikilinks load test
+
+[[rawboned bucharesti]]
+[[andantino southern triangle]]
+[[cardboard gendarmery]]
+[[amalgamative filing clerk]]

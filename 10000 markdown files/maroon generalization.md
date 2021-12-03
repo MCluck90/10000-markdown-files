@@ -80,3 +80,8 @@ What's your acceptance of tumbling
 Ahem.
 : Imagine her its nest.
 
+
+## Wikilinks load test
+
+[[angiocarpic skipping rope]]
+[[voidable capital of chile]]

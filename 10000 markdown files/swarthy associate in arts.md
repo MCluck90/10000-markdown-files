@@ -79,3 +79,9 @@ I'LL soon got its
 Nobody moved.
 : Don't go near here said in Coils.
 
+
+## Wikilinks load test
+
+[[brumal multiplicative inverse]]
+[[caesural mother theresa]]
+[[omnibus collard]]

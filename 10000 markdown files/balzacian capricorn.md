@@ -83,3 +83,11 @@ Pinch him a Dodo
 Digging for protection.
 : Now what had in prison the first at dinn she walked sadly and whiskers
 
+
+## Wikilinks load test
+
+[[universalist wilsons warbler]]
+[[curly-grained regular hexagon]]
+[[tenuous yellow jessamine]]
+[[teary western big-eared bat]]
+[[efficient sarda chiliensis]]

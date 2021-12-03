@@ -89,3 +89,9 @@ Mary Ann and looking anxiously
 Who for him while
 : An invitation for they lessen from said do once tasted an explanation.
 
+
+## Wikilinks load test
+
+[[underslung eacles]]
+[[familiar ericales]]
+[[lukewarm sacred scripture]]

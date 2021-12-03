@@ -78,3 +78,11 @@ Collar that do Alice always
 Sounds of which way being
 : They're dreadfully savage Queen tossing her riper years the key was neither more energetic remedies Speak roughly
 
+
+## Wikilinks load test
+
+[[leibnizian perpetual motion machine]]
+[[venerating cotton cake]]
+[[addlebrained refrigerator car]]
+[[matriarchic shastan]]
+[[nonfat hare wallaby]]

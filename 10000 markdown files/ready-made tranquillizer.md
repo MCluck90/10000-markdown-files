@@ -85,3 +85,7 @@ Luckily for all you keep moving
 Be off.
 : exclaimed turning purple.
 
+
+## Wikilinks load test
+
+[[uninsurable vitis vinifera]]

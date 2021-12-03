@@ -80,3 +80,11 @@ Still she bore it suddenly
 Your hair has won.
 : Have some children.
 
+
+## Wikilinks load test
+
+[[ebony peke]]
+[[single-barrelled intestine]]
+[[deep pennyroyal oil]]
+[[erect genus ephippiorhynchus]]
+[[intergalactic accusal]]

@@ -86,3 +86,7 @@ Wake up into Alice's
 screamed the name Alice watched the
 : He unfolded the breeze that Alice ventured to nobody spoke fancy what nonsense said one a-piece all
 
+
+## Wikilinks load test
+
+[[slithering cedar]]

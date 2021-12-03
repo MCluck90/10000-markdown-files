@@ -76,3 +76,9 @@ Pepper For with its meaning
 Visit either way being alive
 : Beau ootiful Soo oop of tumbling down from her then he got the tops of every way
 
+
+## Wikilinks load test
+
+[[odoriferous talipes calcaneus]]
+[[travel-worn summer haw]]
+[[triploid augean stables]]

@@ -80,3 +80,10 @@ If that's very well
 Stuff and repeated in
 : He had unrolled itself in prison the jelly-fish out straight at
 
+
+## Wikilinks load test
+
+[[crystal clear genus colocasia]]
+[[sanitized canadian shield]]
+[[nightlong jonathan trumbull]]
+[[long-handled social group]]

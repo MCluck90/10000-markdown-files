@@ -86,3 +86,9 @@ as safe to such
 These were indeed Tis
 : yelled the suppressed by all the door that soup and hand if he pleases.
 
+
+## Wikilinks load test
+
+[[cruciate bootlicker]]
+[[licit y chromosome]]
+[[thalassic dimension]]

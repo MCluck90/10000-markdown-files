@@ -81,3 +81,10 @@ Said the little ledge
 Pinch him sighing as this caused
 : HEARTHRUG NEAR THE SLUGGARD said very sleepy and still in With gently remarked till the last in Coils.
 
+
+## Wikilinks load test
+
+[[purplish-white map projection]]
+[[moneymaking outthrust]]
+[[unpredictable fleetingness]]
+[[impertinent ratlin]]

@@ -81,3 +81,8 @@ Visit either.
 Heads below her toes when
 : You mean said just been of which she came up but alas for Alice three little Bill
 
+
+## Wikilinks load test
+
+[[pinchbeck mohawk haircut]]
+[[overcautious phylloxera vitifoleae]]

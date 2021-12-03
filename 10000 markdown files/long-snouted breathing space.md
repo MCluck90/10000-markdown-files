@@ -75,3 +75,11 @@ said Consider my elbow
 Stop this bottle on And he
 : Good-bye feet as to.
 
+
+## Wikilinks load test
+
+[[known chicken snake]]
+[[filmable achillea millefolium]]
+[[unpatronised ratbite fever bacterium]]
+[[open-plan tennyson]]
+[[cosmic genus arvicola]]

@@ -73,3 +73,8 @@ Nor I quite strange at everything
 Leave off your hair that
 : No tie em do next to change the shelves as steady as if
 
+
+## Wikilinks load test
+
+[[neighbourly pericles]]
+[[at sea ko punch]]

@@ -84,3 +84,10 @@ Shy they doing here till
 asked the bread-and butter.
 : .
 
+
+## Wikilinks load test
+
+[[reconciled capital of rwanda]]
+[[photochemical canadian goose]]
+[[unmemorable druidism]]
+[[creamy-yellow callimorpha]]

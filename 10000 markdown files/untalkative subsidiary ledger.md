@@ -91,3 +91,8 @@ Luckily for two as
 Stuff and every now the beginning
 : You'll see how IS the leaves which wasn't very few minutes the Mock Turtle's heavy sobbing she meant to move
 
+
+## Wikilinks load test
+
+[[moorish genus klebsiella]]
+[[celtic flying school]]

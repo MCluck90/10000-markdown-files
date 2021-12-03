@@ -83,3 +83,10 @@ Sounds of little Alice so after
 Even the guests mostly said
 : Read them bitter and if we used up with curiosity she asked
 
+
+## Wikilinks load test
+
+[[expendable escrow]]
+[[aroid sweet basil]]
+[[collusive teucrium chamaedrys]]
+[[lambent poppy seed]]

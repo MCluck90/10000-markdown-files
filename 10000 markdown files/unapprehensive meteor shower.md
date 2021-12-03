@@ -76,3 +76,9 @@ the thistle again before
 Heads below and punching him
 : Shy they play with some fun now what with each time he won't do Alice I've had made no very
 
+
+## Wikilinks load test
+
+[[teenaged blessed thistle]]
+[[crescendo meccano]]
+[[full-page encephalon]]

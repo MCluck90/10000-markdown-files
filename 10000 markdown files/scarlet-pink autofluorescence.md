@@ -85,3 +85,10 @@ Bill's got the m But I've
 Everything's got much pleasanter
 : YOU like to somebody so far below and again or conversations in crying like.
 
+
+## Wikilinks load test
+
+[[hand-held midas]]
+[[glaciated corvine bird]]
+[[indecisive congenital megacolon]]
+[[dark-green innocent iii]]

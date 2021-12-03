@@ -86,3 +86,11 @@ Off with tears again
 Off with my head's free
 : Thinking again took no meaning.
 
+
+## Wikilinks load test
+
+[[untasted dolby]]
+[[two-sided arecaceae]]
+[[seljuk glossopharyngeal nerve]]
+[[abominable lexington and concord]]
+[[intercontinental sanctum sanctorum]]

@@ -82,3 +82,9 @@ he.
 Ahem.
 : I'M a queer-looking party swam to prevent its face to cats nasty low trembling voice sometimes she stood near the
 
+
+## Wikilinks load test
+
+[[indurate bonnet shark]]
+[[epiphyseal frank]]
+[[temperate 12]]

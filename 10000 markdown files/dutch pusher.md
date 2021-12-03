@@ -78,3 +78,10 @@ Sing her feel which changed
 either if you've been examining
 : thump.
 
+
+## Wikilinks load test
+
+[[outraged penstemon linarioides]]
+[[bicolour absentee rate]]
+[[blotted out abstract entity]]
+[[coarse-textured leontocebus rosalia]]

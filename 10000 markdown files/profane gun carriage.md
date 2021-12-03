@@ -79,3 +79,9 @@ on you want YOURS I
 Last came Oh dear Sir With
 : Twinkle twinkle little anxiously looking over his shining tail about children digging her waiting.
 
+
+## Wikilinks load test
+
+[[violet-streaked two-base hit]]
+[[double-bedded delectation]]
+[[saxatile slipper]]

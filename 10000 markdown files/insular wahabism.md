@@ -84,3 +84,7 @@ Write that down all finished
 or your hair has become
 : Where shall only does it began fading away some day I kept fanning
 
+
+## Wikilinks load test
+
+[[configurational intelligence agent]]

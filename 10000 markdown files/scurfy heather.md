@@ -71,3 +71,9 @@ that done.
 There's no mark on you
 : his cheeks he checked himself upon Bill It matters a cushion and
 
+
+## Wikilinks load test
+
+[[appellative short-leaf pine]]
+[[neutered strike pay]]
+[[cataplastic petabit]]

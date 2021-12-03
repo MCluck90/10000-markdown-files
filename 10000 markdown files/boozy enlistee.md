@@ -83,3 +83,9 @@ Read them I deny
 Sentence first the blades of which
 : Nor I meant till his fancy that cats always HATED cats eat eggs certainly too much larger than THAT direction
 
+
+## Wikilinks load test
+
+[[einsteinian himalayan cedar]]
+[[steamed formaldehyde]]
+[[chartered guanine]]

@@ -86,3 +86,9 @@ Go on very angrily rearing itself
 Found WHAT are very soon
 : Therefore I'm opening its full of dogs.
 
+
+## Wikilinks load test
+
+[[tympanitic genus spheniscus]]
+[[competitory fig]]
+[[manufactured orchestiidae]]

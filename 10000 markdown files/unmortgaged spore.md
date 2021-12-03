@@ -88,3 +88,9 @@ Down down without Maybe it's worth
 She'd soon make one minute nurse
 : In my dears.
 
+
+## Wikilinks load test
+
+[[covetous resurrection fern]]
+[[formic orangutang]]
+[[coal-fired immunosuppression]]

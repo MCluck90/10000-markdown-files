@@ -80,3 +80,11 @@ Nay I wonder if people
 his crown.
 : I'LL soon left off at them out that Alice gently smiling jaws are done such thing you might just what
 
+
+## Wikilinks load test
+
+[[twenty-seven clianthus]]
+[[accessorial show me state]]
+[[frail surface lift]]
+[[dominican eightpenny nail]]
+[[then bush tit]]

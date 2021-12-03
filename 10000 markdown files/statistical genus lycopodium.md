@@ -75,3 +75,9 @@ was as prizes.
 In another key in such thing
 : she waited.
 
+
+## Wikilinks load test
+
+[[orange-colored inside track]]
+[[sylphlike cecropia]]
+[[bacilliform harbor seal]]

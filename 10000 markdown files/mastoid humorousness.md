@@ -80,3 +80,10 @@ Lastly she tucked her she
 Boots and ran the shingle
 : Wow.
 
+
+## Wikilinks load test
+
+[[usurious genus elaeocarpus]]
+[[hydrodynamic chrysochloridae]]
+[[boxed-in sri lanka rupee]]
+[[unconventional order heterosomata]]

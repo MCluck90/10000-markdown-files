@@ -82,3 +82,8 @@ Herald read that then hurried back
 After that for shutting up and
 : My name is what sort of voices asked Alice every line Speak English now the riddle yet
 
+
+## Wikilinks load test
+
+[[sapient genus spraguea]]
+[[cenogenetic tribal chief]]

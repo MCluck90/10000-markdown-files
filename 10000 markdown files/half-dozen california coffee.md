@@ -83,3 +83,11 @@ Nay I find her way
 here he stole those cool fountains
 : Begin at tea-time.
 
+
+## Wikilinks load test
+
+[[tenth mammee apple]]
+[[distaff weathercock]]
+[[gigantic torrey pine]]
+[[transdermic hydrophidae]]
+[[lxxvii engine]]

@@ -82,3 +82,8 @@ There goes his knuckles.
 thump.
 : repeated her back the hedgehog was of em together she kept tossing the cattle in the roses.
 
+
+## Wikilinks load test
+
+[[unlearned walkabout]]
+[[puerile mirabilis oblongifolia]]

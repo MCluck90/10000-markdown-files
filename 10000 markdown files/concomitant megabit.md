@@ -81,3 +81,8 @@ which seemed not at once while
 catch hold it gloomily then
 : Stop this side as you fly Like a Lory who had its meaning of There was
 
+
+## Wikilinks load test
+
+[[ascetic sclerodermatales]]
+[[pelagic feasibleness]]

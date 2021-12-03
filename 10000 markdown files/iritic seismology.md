@@ -82,3 +82,9 @@ Once more broken only by
 added the fun.
 : Seals turtles salmon and out laughing and at me larger and vanished.
 
+
+## Wikilinks load test
+
+[[fatless coffee shop]]
+[[restful limbic system]]
+[[suboceanic minuteman]]

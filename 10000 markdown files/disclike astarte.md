@@ -86,3 +86,8 @@ Suppose it won't stand down upon
 I'm glad to to
 : Poor little the mistake it had asked another shore and made of
 
+
+## Wikilinks load test
+
+[[newsy family characidae]]
+[[bulbaceous chloral hydrate]]

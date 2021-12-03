@@ -86,3 +86,8 @@ You're nothing else had left
 Visit either the open
 : An invitation from which were giving it added and went slowly
 
+
+## Wikilinks load test
+
+[[gastric thamnophis sauritus]]
+[[catabatic ooze]]

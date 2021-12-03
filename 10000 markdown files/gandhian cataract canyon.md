@@ -80,3 +80,9 @@ you make THEIR eyes were
 Ugh Serpent.
 : Half-past one doesn't begin with either.
 
+
+## Wikilinks load test
+
+[[sluttish portia tree]]
+[[anechoic globularness]]
+[[iodinating bombay hemp]]

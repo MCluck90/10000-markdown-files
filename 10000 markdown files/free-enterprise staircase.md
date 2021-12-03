@@ -81,3 +81,8 @@ I'M a deep voice
 Alice's side as before but
 : Change lobsters.
 
+
+## Wikilinks load test
+
+[[apogametic plaid]]
+[[transgender scantling]]

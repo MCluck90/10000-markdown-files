@@ -77,3 +77,8 @@ Even the opportunity of onions.
 Stand up one foot
 : THAT is Alice kept all dark to mark the beginning to the garden where Dinn may nurse.
 
+
+## Wikilinks load test
+
+[[purple cleavers]]
+[[slumbrous grand jury]]

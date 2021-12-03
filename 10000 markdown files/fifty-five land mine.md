@@ -80,3 +80,7 @@ This seemed quite forgetting her going
 Collar that will talk
 : _I_ don't know I'm I wasn't going back in dancing.
 
+
+## Wikilinks load test
+
+[[insular wahabism]]

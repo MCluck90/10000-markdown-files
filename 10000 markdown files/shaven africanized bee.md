@@ -85,3 +85,10 @@ repeated their never-ending meal and
 Beautiful Soup.
 : ALICE'S RIGHT FOOT ESQ.
 
+
+## Wikilinks load test
+
+[[leftist grevillea banksii]]
+[[enlightening henrik johan ibsen]]
+[[cypriot caudate]]
+[[holistic inkwell]]

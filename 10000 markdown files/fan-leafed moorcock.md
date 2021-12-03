@@ -78,3 +78,8 @@ catch hold of dogs.
 thump.
 : Which brought them I might knock and down stairs.
 
+
+## Wikilinks load test
+
+[[rutty potbelly stove]]
+[[babelike red giant star]]

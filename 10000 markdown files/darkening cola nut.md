@@ -83,3 +83,10 @@ One said in a capital
 either you didn't know
 : Get to set to offer him sixpence.
 
+
+## Wikilinks load test
+
+[[institutionalised prairie dock]]
+[[must hydrometer]]
+[[simple toothed wheel]]
+[[marine osmitrol]]

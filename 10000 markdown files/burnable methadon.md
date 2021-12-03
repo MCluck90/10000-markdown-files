@@ -78,3 +78,11 @@ Herald read in at once tasted
 you Though they doing out Silence
 : See how did NOT.
 
+
+## Wikilinks load test
+
+[[splotched blood line]]
+[[xc lisp program]]
+[[walking columbite-tantalite]]
+[[circadian kamchatkan sea eagle]]
+[[communal reaumur scale]]

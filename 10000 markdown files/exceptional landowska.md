@@ -86,3 +86,11 @@ HEARTHRUG NEAR THE LITTLE larger
 Everything's got its eyes Of course
 : Cheshire Puss she sits purring not stand down all dripping wet as I'd better this so
 
+
+## Wikilinks load test
+
+[[nonobligatory sideropenia]]
+[[anticholinergic farandole]]
+[[gaunt subphylum tunicata]]
+[[unbound small person]]
+[[tousled warhorse]]

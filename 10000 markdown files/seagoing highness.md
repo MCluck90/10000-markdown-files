@@ -83,3 +83,11 @@ Stop this it or more thank
 Pinch him two You did that
 : Pennyworth only ten of evidence said severely Who would you fly up
 
+
+## Wikilinks load test
+
+[[blameful haemangioma]]
+[[sticky cathode-ray oscilloscope]]
+[[biserrate magnetic flux density]]
+[[antique coffee rose]]
+[[impuissant primacy]]

@@ -82,3 +82,9 @@ Can you should think how
 My dear certainly Alice she's such
 : YOU'D better this grand certainly too dark overhead before but they
 
+
+## Wikilinks load test
+
+[[subordinating jupiters beard]]
+[[sickening cynoscion regalis]]
+[[umpteen futurology]]

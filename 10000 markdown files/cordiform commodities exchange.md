@@ -83,3 +83,9 @@ Soon her and just under his
 Or would deny it away quietly
 : Mine is not help that.
 
+
+## Wikilinks load test
+
+[[nutmeg-shaped bullfrog]]
+[[documental arc sine]]
+[[out of the blue writ of execution]]

@@ -78,3 +78,7 @@ which happens when one
 The White Rabbit angrily
 : Now what a wink of Hjckrrh.
 
+
+## Wikilinks load test
+
+[[lobeliaceous saguaro]]

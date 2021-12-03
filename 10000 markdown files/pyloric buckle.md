@@ -78,3 +78,7 @@ Fetch me please which
 Will the cake.
 : Will the BEST butter.
 
+
+## Wikilinks load test
+
+[[ultramodern gum-lac]]

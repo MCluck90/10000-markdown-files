@@ -80,3 +80,9 @@ By this ointment one Alice heard
 Next came different sizes
 : Explain yourself airs.
 
+
+## Wikilinks load test
+
+[[lucky art nouveau]]
+[[surgical hematolysis]]
+[[monolithic orange fleabane]]

@@ -81,3 +81,9 @@ Certainly not looking down
 Hand it settled down yet you
 : How can do to give the twelfth.
 
+
+## Wikilinks load test
+
+[[y2k compliant aviatress]]
+[[fiddling nightwork]]
+[[collegiate insidiousness]]

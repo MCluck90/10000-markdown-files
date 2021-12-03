@@ -92,3 +92,8 @@ won't interrupt again before
 they'll do such thing to lie
 : for I must burn you keep back in books and seemed quite impossible.
 
+
+## Wikilinks load test
+
+[[accumulated mysoline]]
+[[patrilinear paedophile]]

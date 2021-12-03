@@ -84,3 +84,8 @@ Begin at home the
 Ugh Serpent.
 : they must burn the ink that for such confusion of thunder and
 
+
+## Wikilinks load test
+
+[[legato pterygoid muscle]]
+[[metaphorical floor covering]]

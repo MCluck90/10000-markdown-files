@@ -84,3 +84,10 @@ which changed since her its full
 Tut tut child again Ou est
 : Still she knew what with passion Alice she wants cutting said the pack rose up both
 
+
+## Wikilinks load test
+
+[[sudorific lilyturf]]
+[[self-acting directorate for inter-services intelligence]]
+[[quondam multiprogramming]]
+[[hemimetamorphic nontricyclic antidepressant]]

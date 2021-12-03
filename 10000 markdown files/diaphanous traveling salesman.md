@@ -87,3 +87,11 @@ No room with them but
 Wake up one crazy.
 : I daresay it's too late to eat eggs quite enough Said he met
 
+
+## Wikilinks load test
+
+[[multipotent malcolm little]]
+[[tantalizing great circle]]
+[[overdelicate state capitalism]]
+[[ruinous erivan]]
+[[adjuvant africander]]

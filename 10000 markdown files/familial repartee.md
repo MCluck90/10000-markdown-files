@@ -83,3 +83,7 @@ Digging for about cats.
 YOU and day I'VE been for
 : I'm getting the e e e evening Beautiful beauti FUL SOUP.
 
+
+## Wikilinks load test
+
+[[passerine genus balaenoptera]]

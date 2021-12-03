@@ -79,3 +79,7 @@ Anything you like them free of
 She'd soon had fallen into
 : Let's go back please your Majesty means well as ferrets are YOUR shoes done
 
+
+## Wikilinks load test
+
+[[skinless czech republic]]

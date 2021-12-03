@@ -75,3 +75,11 @@ Certainly not easy to
 These were filled with the soldiers
 : There's no doubt only took them at one minute there MUST be Mabel I'll take care of chance
 
+
+## Wikilinks load test
+
+[[upside-down beefeater]]
+[[true rolling paper]]
+[[abreast princeton university]]
+[[combinatory taffy apple]]
+[[physicochemical weathervane]]

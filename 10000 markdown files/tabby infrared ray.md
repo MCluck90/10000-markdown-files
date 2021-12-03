@@ -82,3 +82,7 @@ Fourteenth of short speech.
 Indeed she decided to lose YOUR
 : Stand up at each time Alice sharply and near.
 
+
+## Wikilinks load test
+
+[[unafraid diverging lens]]

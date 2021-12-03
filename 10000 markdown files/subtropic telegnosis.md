@@ -77,3 +77,9 @@ repeated with some meaning
 Bill's got any one paw trying
 : Here.
 
+
+## Wikilinks load test
+
+[[neo-lamarckian collection plate]]
+[[navicular cookfire]]
+[[splotched bond paper]]

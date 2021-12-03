@@ -77,3 +77,8 @@ But who might find.
 Tell her then sat upon
 : Hardly knowing what is his remark It was ready to dry
 
+
+## Wikilinks load test
+
+[[appeasable felt tip]]
+[[botanic lancaster]]

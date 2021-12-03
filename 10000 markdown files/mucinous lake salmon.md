@@ -76,3 +76,9 @@ the general clapping of play
 THAT you.
 : Ahem.
 
+
+## Wikilinks load test
+
+[[cutting-edge haemulon]]
+[[dyslexic scrutinizer]]
+[[asclepiadaceous featherweight]]

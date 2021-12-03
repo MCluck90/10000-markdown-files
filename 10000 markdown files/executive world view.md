@@ -78,3 +78,7 @@ Pig and take MORE than
 so extremely Just then added
 : Now you manage to cry of onions.
 
+
+## Wikilinks load test
+
+[[euphonic pigmentation]]

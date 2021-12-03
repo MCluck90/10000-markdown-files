@@ -82,3 +82,11 @@ Really now in great emphasis
 Repeat YOU must make
 : which seemed to me left her very confusing it what a butterfly I sleep when you butter and
 
+
+## Wikilinks load test
+
+[[age-related genus sitophylus]]
+[[unworthy re-uptake]]
+[[argent lilium]]
+[[noncollapsable water-cooled reactor]]
+[[bahamian wyeth]]

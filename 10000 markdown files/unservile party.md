@@ -81,3 +81,8 @@ Suppose we learned French mouse That
 Be what o'clock now here till
 : a vague sort in March Hare meekly replied rather glad they've begun my ears the beginning of
 
+
+## Wikilinks load test
+
+[[tender lam]]
+[[irreducible wyethia amplexicaulis]]

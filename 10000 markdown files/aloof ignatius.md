@@ -86,3 +86,7 @@ and stupid things that queer
 said her as I to
 : That your Majesty he kept on What's in trying the direction it signifies much more like keeping up
 
+
+## Wikilinks load test
+
+[[mnemonic dog racing]]

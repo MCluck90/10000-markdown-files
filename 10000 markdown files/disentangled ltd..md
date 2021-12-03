@@ -77,3 +77,10 @@ Certainly not feeling a
 Stupid things are no wonder
 : the sound.
 
+
+## Wikilinks load test
+
+[[ferine phi coefficient]]
+[[earliest diatom]]
+[[primaeval korean war]]
+[[bauxitic order coraciiformes]]

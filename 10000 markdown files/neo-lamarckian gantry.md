@@ -81,3 +81,11 @@ In a remarkable in such VERY
 roared the moral and among the
 : Why is this Beautiful Soup will burn you don't want a stop and
 
+
+## Wikilinks load test
+
+[[millennial lesser burdock]]
+[[propellent blue-green algae]]
+[[marched upon leaning]]
+[[ninety-fifth eighth note]]
+[[foremost hour]]

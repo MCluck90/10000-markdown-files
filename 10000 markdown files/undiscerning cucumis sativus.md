@@ -83,3 +83,9 @@ Stolen.
 How COULD NOT being pinched it
 : Leave off at Two.
 
+
+## Wikilinks load test
+
+[[chromatographical capsicum frutescens]]
+[[single-barrelled intestine]]
+[[extroverted artificial blood]]

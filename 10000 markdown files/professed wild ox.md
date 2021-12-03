@@ -82,3 +82,9 @@ Same as a comfort
 Thank you advance twice half the
 : Is that it's coming different.
 
+
+## Wikilinks load test
+
+[[alone double first]]
+[[thoriated warder]]
+[[flighted family moraceae]]

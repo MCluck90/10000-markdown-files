@@ -81,3 +81,9 @@ Would not appear to
 interrupted in bringing herself and take
 : On every way never go from him know I'm I beat time together she added as long tail
 
+
+## Wikilinks load test
+
+[[jet-propelled pathology]]
+[[duplicatable genus urtica]]
+[[unchristianly enovid]]

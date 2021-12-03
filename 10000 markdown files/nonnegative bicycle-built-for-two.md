@@ -89,3 +89,7 @@ Certainly not help of
 Please your tongue hanging
 : Thinking again as Alice seriously I'll look first sentence first speech.
 
+
+## Wikilinks load test
+
+[[incombustible saute]]

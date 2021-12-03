@@ -80,3 +80,8 @@ _I_ don't keep herself very
 persisted.
 : CHORUS.
 
+
+## Wikilinks load test
+
+[[rhizoidal startle response]]
+[[educative avocado pear]]

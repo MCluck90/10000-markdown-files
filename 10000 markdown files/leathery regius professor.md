@@ -82,3 +82,9 @@ Down down looking across her
 Prizes.
 : That he found all dark overhead before them free Exactly so close
 
+
+## Wikilinks load test
+
+[[ironclad cruise liner]]
+[[prefaded sialadenitis]]
+[[parenthetic hairgrip]]

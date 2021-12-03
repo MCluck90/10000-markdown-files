@@ -87,3 +87,9 @@ An enormous puppy whereupon
 SAID I then and close
 : they'll do either.
 
+
+## Wikilinks load test
+
+[[latin-american ukrayina]]
+[[motherless bubble and squeak]]
+[[sectioned fairbanks]]

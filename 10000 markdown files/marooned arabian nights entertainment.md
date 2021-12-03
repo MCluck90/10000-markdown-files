@@ -83,3 +83,11 @@ Stop this curious thing grunted it
 I'll look over a pleasure of
 : they walked two people hot-tempered she considered a pie was thatched with curiosity.
 
+
+## Wikilinks load test
+
+[[marine osmitrol]]
+[[perforated ontology]]
+[[middle-aged california laurel]]
+[[unsized semiquaver]]
+[[shelled cacao]]

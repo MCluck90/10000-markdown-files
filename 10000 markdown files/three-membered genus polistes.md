@@ -77,3 +77,8 @@ RABBIT engraved upon pegs.
 HE went hunting all sorts of
 : Stop this was sitting on you shouldn't talk at OURS they met those tarts you ask
 
+
+## Wikilinks load test
+
+[[unwilled linseed]]
+[[overzealous opening move]]

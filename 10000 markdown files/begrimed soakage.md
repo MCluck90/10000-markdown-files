@@ -76,3 +76,11 @@ In THAT direction it
 It'll be different.
 : Found IT.
 
+
+## Wikilinks load test
+
+[[helmet-shaped bipedalism]]
+[[unblemished herb mercury]]
+[[shadowed salmon]]
+[[noxious detective agency]]
+[[trabeculate farewell]]

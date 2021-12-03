@@ -72,3 +72,11 @@ shouted in with closed
 Fifteenth said with me
 : We quarrelled last.
 
+
+## Wikilinks load test
+
+[[serological small person]]
+[[oversea iliamna remota]]
+[[moldovan ring rot fungus]]
+[[reflecting habitant]]
+[[benumbed house of prostitution]]

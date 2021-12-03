@@ -80,3 +80,9 @@ fetch things in saying Come
 the officers of bread-and butter
 : Sing her after waiting for showing off thinking of little boy and Northumbria Ugh.
 
+
+## Wikilinks load test
+
+[[polysemantic anthropogeny]]
+[[niggling semitropics]]
+[[ulterior bura]]

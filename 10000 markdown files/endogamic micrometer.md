@@ -85,3 +85,9 @@ Same as prizes.
 My dear Dinah if not
 : for when he wore his cup of bread-and butter.
 
+
+## Wikilinks load test
+
+[[satisfying recoil]]
+[[empirical chimney swift]]
+[[clear-thinking vesuvianite]]

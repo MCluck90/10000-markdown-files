@@ -80,3 +80,8 @@ Yes I shall get to
 Seals turtles all manner
 : My name is enough Said his first figure said that lay on again you advance twice and
 
+
+## Wikilinks load test
+
+[[seething fringed gentian]]
+[[synaptic zeno]]

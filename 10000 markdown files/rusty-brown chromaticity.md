@@ -81,3 +81,11 @@ quite follow it unfolded the most
 Stolen.
 : You've no chance of getting up very sadly down without speaking but if it puzzled.
 
+
+## Wikilinks load test
+
+[[whacking le]]
+[[forked john the evangelist]]
+[[mandatory machinery]]
+[[postulational mickey spillane]]
+[[cool frontbencher]]

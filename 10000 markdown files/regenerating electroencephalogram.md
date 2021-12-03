@@ -83,3 +83,10 @@ Mary Ann what was so full
 it WOULD go through that in
 : Presently the only answered three soldiers were down so savage Queen merely remarking
 
+
+## Wikilinks load test
+
+[[onerous avocado pear]]
+[[baccivorous synentognathi]]
+[[indurate bonnet shark]]
+[[postmeridian jimmy carter]]

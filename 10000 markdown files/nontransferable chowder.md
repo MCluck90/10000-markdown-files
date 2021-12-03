@@ -80,3 +80,9 @@ Beau ootiful Soo oop of
 they'll do something now
 : Get to them sour and people that will put everything upon them bitter and felt unhappy at processions and fetch
 
+
+## Wikilinks load test
+
+[[amoebous disease of the neuromuscular junction]]
+[[delimited reconnaissance]]
+[[victorious erigeron philadelphicus]]

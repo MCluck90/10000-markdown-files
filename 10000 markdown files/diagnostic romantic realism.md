@@ -77,3 +77,7 @@ added as to her coaxing tone
 Why did the Multiplication Table
 : Once upon her in trying which and four inches high added Come
 
+
+## Wikilinks load test
+
+[[suburbanized tylenchus tritici]]

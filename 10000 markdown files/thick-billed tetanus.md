@@ -80,3 +80,9 @@ Indeed she and no longer to
 repeated in managing her
 : Certainly not becoming.
 
+
+## Wikilinks load test
+
+[[unassisted mongolic language]]
+[[full-page encephalon]]
+[[formulaic tunisian]]

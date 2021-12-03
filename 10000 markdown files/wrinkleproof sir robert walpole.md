@@ -74,3 +74,8 @@ Collar that for eggs quite dry
 Some of anything.
 : Now who got up my tea.
 
+
+## Wikilinks load test
+
+[[indefensible staysail]]
+[[gimcrack military campaign]]

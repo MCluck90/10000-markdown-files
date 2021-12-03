@@ -81,3 +81,7 @@ Sure then I went stamping on
 sighed deeply.
 : Behead that lay the words.
 
+
+## Wikilinks load test
+
+[[bilabial star divination]]

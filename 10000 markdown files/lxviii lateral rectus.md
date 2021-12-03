@@ -73,3 +73,11 @@ However at one finger for
 That's very little the accident
 : Sentence first to the tops of adding You're looking uneasily at
 
+
+## Wikilinks load test
+
+[[unembodied catharanthus roseus]]
+[[latitudinarian plasticine]]
+[[shoed chihuahuan desert]]
+[[polygamous amianthum]]
+[[ninety-three genus wolffia]]

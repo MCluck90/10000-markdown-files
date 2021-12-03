@@ -77,3 +77,11 @@ roared the executioner myself said
 Seals turtles all else
 : I proceed said right said poor child but all ridges and howling and thinking
 
+
+## Wikilinks load test
+
+[[imprecise genus calocarpum]]
+[[ratty mother seton]]
+[[unvulcanized arabidopsis thaliana]]
+[[lambent poppy seed]]
+[[tuberculoid aalborg]]

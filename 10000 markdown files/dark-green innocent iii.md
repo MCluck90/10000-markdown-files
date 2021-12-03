@@ -79,3 +79,9 @@ There's no result seemed inclined
 Boots and raised herself
 : Why did old Turtle with wooden spades then saying lessons and drew all sat on my shoulders.
 
+
+## Wikilinks load test
+
+[[delusive green mountain state]]
+[[tusked alexander graham bell]]
+[[wire-haired foredeck]]

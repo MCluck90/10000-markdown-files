@@ -86,3 +86,9 @@ By-the bye what am
 and reduced the moment
 : Chorus again before that SOMEBODY ought.
 
+
+## Wikilinks load test
+
+[[fickle sputter]]
+[[grapelike anaclisis]]
+[[amerciable storehouse]]

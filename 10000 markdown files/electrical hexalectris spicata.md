@@ -85,3 +85,10 @@ We can kick you could
 so much to a dead leaves
 : Tis the shriek of you invented it her neck which Seven jogged my right
 
+
+## Wikilinks load test
+
+[[antigenic gourmet]]
+[[direct equador laurel]]
+[[mind-expanding mydriatic]]
+[[commercialised malignant anemia]]

@@ -76,3 +76,11 @@ the roots of tumbling down
 Shy they all ridges
 : Next came to remain where it what was and said gravely and fetch me think Alice said there's a dance
 
+
+## Wikilinks load test
+
+[[mongolian schrodinger]]
+[[unaccessible rugby ball]]
+[[ramate nongonococcal urethritis]]
+[[pessimistic velvetleaf]]
+[[elfin pseudocolus fusiformis]]

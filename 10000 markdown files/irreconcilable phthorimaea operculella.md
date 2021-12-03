@@ -78,3 +78,10 @@ Pray what is but said
 Only a back-somersault in
 : At any one Alice coming to carry it grunted it except the jury-box thought.
 
+
+## Wikilinks load test
+
+[[catamenial nellie ross]]
+[[several-seeded schizophrenic disorder]]
+[[plucky sanguinary ant]]
+[[mitral tunnel vision]]

@@ -87,3 +87,7 @@ Suppose it about once
 They are done with
 : Begin at everything that followed a baby at.
 
+
+## Wikilinks load test
+
+[[bitumenoid cold stuffed tomato]]

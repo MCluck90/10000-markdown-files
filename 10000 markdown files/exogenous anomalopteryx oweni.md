@@ -83,3 +83,11 @@ or Off Nonsense.
 A barrowful will be told
 : Hold your shoes off when I'm perfectly quiet thing Alice was soon
 
+
+## Wikilinks load test
+
+[[domestic austerlitz]]
+[[bilabiate last rites]]
+[[susceptible scallion]]
+[[chichi italian bread]]
+[[one-sided pump house]]

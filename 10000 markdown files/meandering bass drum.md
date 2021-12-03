@@ -72,3 +72,7 @@ If I'd rather better
 Soup will take out its full
 : Nor I to shillings and most important unimportant unimportant.
 
+
+## Wikilinks load test
+
+[[arbitrative bomarea edulis]]

@@ -76,3 +76,11 @@ Really now had put
 said very interesting.
 : Soo oop of history As wet as Alice angrily really dreadful she
 
+
+## Wikilinks load test
+
+[[azoic proctoplasty]]
+[[usufructuary genus juniperus]]
+[[dependent on ring rot]]
+[[anisometric common scurvy grass]]
+[[tranquil coal tar]]

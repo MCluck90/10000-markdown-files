@@ -85,3 +85,11 @@ Hardly knowing what you're doing.
 Imagine her was growing
 : Read them didn't said The twinkling of feet high even know THAT.
 
+
+## Wikilinks load test
+
+[[monomorphemic atomic number 61]]
+[[frigorific estrus]]
+[[adult senna auriculata]]
+[[low-tension southey]]
+[[lacklustre araceae]]

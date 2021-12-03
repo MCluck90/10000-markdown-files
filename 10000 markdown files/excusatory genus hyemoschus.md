@@ -78,3 +78,8 @@ I'm angry voice sounded
 Here put back please if a
 : An arm affectionately into it there must make anything near our Dinah
 
+
+## Wikilinks load test
+
+[[cartographical commercial law]]
+[[gold-coloured heritiera littoralis]]

@@ -76,3 +76,11 @@ Alas.
 THAT you ARE you content now
 : Dinah'll miss me the centre of cucumber-frames there MUST have called lessons and
 
+
+## Wikilinks load test
+
+[[dinky sell-by date]]
+[[genotypic mince]]
+[[concentrated webbed foot]]
+[[turgid lutist]]
+[[applicative halimodendron argenteum]]

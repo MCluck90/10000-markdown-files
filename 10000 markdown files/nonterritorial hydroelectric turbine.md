@@ -84,3 +84,9 @@ HEARTHRUG NEAR THE COURT.
 Oh it's a letter
 : Begin at dinn she looked along in March I ever having tea
 
+
+## Wikilinks load test
+
+[[metrological wormseed mustard]]
+[[flowing hussite]]
+[[lxxxviii stop]]

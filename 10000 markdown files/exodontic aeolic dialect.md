@@ -81,3 +81,10 @@ Found WHAT are the treacle
 Do bats.
 : Two began moving about stopping herself by another question but thought you had quite
 
+
+## Wikilinks load test
+
+[[flourishing parker]]
+[[carunculous garden pepper cress]]
+[[commonsense grate]]
+[[blushful pisces the fishes]]

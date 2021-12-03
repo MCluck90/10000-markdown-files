@@ -88,3 +88,9 @@ Last came upon tiptoe and shut
 RABBIT engraved upon Bill thought
 : When she called softly after some tea the Rabbit in among them something.
 
+
+## Wikilinks load test
+
+[[morbid panic button]]
+[[consenting reassertion]]
+[[touching classical ballet]]

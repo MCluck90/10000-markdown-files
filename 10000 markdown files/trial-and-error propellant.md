@@ -82,3 +82,9 @@ Have you keep the distant
 Their heads.
 : down.
 
+
+## Wikilinks load test
+
+[[callable weapons carrier]]
+[[regrettable dental amalgam]]
+[[carved in stone bookmaker]]

@@ -81,3 +81,7 @@ cried Alice.
 Mary Ann.
 : Don't talk.
 
+
+## Wikilinks load test
+
+[[atmospheric callitriche]]

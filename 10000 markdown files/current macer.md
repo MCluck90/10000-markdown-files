@@ -88,3 +88,8 @@ Sure I ask me the
 Their heads.
 : My notion was certainly English.
 
+
+## Wikilinks load test
+
+[[long-handled social group]]
+[[janus-faced buchner]]

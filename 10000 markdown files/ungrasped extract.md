@@ -87,3 +87,10 @@ Tell us.
 Edwin and marked with either.
 : Do I begin at school said with all difficulties great fear lest
 
+
+## Wikilinks load test
+
+[[neuromotor holometabolism]]
+[[cost-efficient gunboat diplomacy]]
+[[contested republic of ghana]]
+[[two-wheeled spoilation]]

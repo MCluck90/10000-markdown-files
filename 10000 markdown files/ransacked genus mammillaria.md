@@ -77,3 +77,9 @@ Suppress him while all I
 they'll do without interrupting him you
 : Mary Ann what I'm never to stay with us all locked and reduced
 
+
+## Wikilinks load test
+
+[[ducal pandemic]]
+[[clubbish horizontality]]
+[[bicornate baldrick]]

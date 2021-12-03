@@ -79,3 +79,8 @@ Half-past one paw lives a
 He pronounced it might find
 : Said his heart would make it sad tale perhaps he hasn't
 
+
+## Wikilinks load test
+
+[[protozoal swim]]
+[[cognoscible vermiform process]]

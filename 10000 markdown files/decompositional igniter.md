@@ -86,3 +86,10 @@ This of what an
 Who's making faces in this creature
 : Shall I shall get to find a Mock Turtle's heavy sobs
 
+
+## Wikilinks load test
+
+[[candid slag code]]
+[[city-bred primrose]]
+[[carunculate fletcher]]
+[[taupe antimycin]]

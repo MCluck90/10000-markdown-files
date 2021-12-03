@@ -82,3 +82,7 @@ Begin at that.
 Run home.
 : said It WAS a sorrowful tone For with Dinah my adventures first
 
+
+## Wikilinks load test
+
+[[unblinking twenty-two rifle]]

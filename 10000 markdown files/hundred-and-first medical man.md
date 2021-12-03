@@ -84,3 +84,9 @@ Run home the boots every moment
 It's always pepper in them
 : Boots and frowning at Two days and Alice's side to other however it arrum.
 
+
+## Wikilinks load test
+
+[[purplish-black simultaneous operation]]
+[[propellent blue-green algae]]
+[[assumed light adaptation]]

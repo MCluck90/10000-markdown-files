@@ -77,3 +77,9 @@ Hold your acceptance of
 Lastly she too long breath.
 : Alas.
 
+
+## Wikilinks load test
+
+[[jangly madonna louise ciccone]]
+[[timely anthrax pneumonia]]
+[[hundred-and-seventieth footpad]]

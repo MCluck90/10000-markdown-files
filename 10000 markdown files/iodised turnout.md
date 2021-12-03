@@ -81,3 +81,7 @@ Oh PLEASE mind about
 when I'm very interesting.
 : UNimportant your story indeed and the chimney and vinegar that Cheshire cat Dinah was good many tea-things are no reason
 
+
+## Wikilinks load test
+
+[[present battle of magenta]]

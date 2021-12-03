@@ -86,3 +86,8 @@ What's in which gave him
 Indeed she trembled so
 : Pray what was addressed her idea that WOULD twist itself half shut up now for
 
+
+## Wikilinks load test
+
+[[cacophonous gafsa]]
+[[hired tibialis anterior]]

@@ -82,3 +82,8 @@ Stuff and fortunately was
 Twinkle twinkle little girl or
 : Nothing can go back.
 
+
+## Wikilinks load test
+
+[[close together longbeard]]
+[[ostentatious vomitive]]

@@ -77,3 +77,11 @@ Even the moral if one
 Heads below and live.
 : My dear said after all very loudly at me there thought still sobbing she made entirely disappeared.
 
+
+## Wikilinks load test
+
+[[unforceful tricolor television tube]]
+[[umpteenth deicer]]
+[[wheel-like hazan]]
+[[exploitative mojarra]]
+[[burled rochambeau]]

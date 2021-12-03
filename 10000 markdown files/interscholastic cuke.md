@@ -82,3 +82,9 @@ and perhaps not escape.
 Begin at home.
 : Dinah.
 
+
+## Wikilinks load test
+
+[[hot-blooded shad roe]]
+[[clownish galiella rufa]]
+[[comme il faut admission day]]

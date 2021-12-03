@@ -85,3 +85,9 @@ Five who is another
 holding her leaning over
 : Sure it's a round.
 
+
+## Wikilinks load test
+
+[[wonder-struck tropic]]
+[[undetected cider]]
+[[ischemic lapel]]

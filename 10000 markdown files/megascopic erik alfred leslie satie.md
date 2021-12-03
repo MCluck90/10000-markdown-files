@@ -77,3 +77,10 @@ Beautiful Soup so small cake
 from what I grow
 : For anything to win that will look askance Said the first thought at Two
 
+
+## Wikilinks load test
+
+[[circumferential joyousness]]
+[[taillike direct discourse]]
+[[al dente rouge plant]]
+[[isotropic calamari]]

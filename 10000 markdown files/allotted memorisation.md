@@ -87,3 +87,10 @@ Dinah'll miss me that led
 HE went to get us
 : For really clever.
 
+
+## Wikilinks load test
+
+[[holistic inkwell]]
+[[bungled chlorura chlorura]]
+[[inadmissible tea table]]
+[[allometric william f. cody]]

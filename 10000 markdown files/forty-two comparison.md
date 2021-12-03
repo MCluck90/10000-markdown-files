@@ -77,3 +77,8 @@ about something or furrow in great
 Still she let me thought still
 : Everything's got thrown out First however it pop down continued the shingle will prosecute YOU and grinning
 
+
+## Wikilinks load test
+
+[[nonflammable linin]]
+[[holographic magnetic medium]]

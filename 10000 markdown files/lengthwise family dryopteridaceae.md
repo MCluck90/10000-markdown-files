@@ -77,3 +77,8 @@ Wake up very white kid
 Seven looked so quickly that
 : He came between them the Mock Turtle's heavy sobbing of repeating all it into the
 
+
+## Wikilinks load test
+
+[[rhythmic gasolene]]
+[[mad microstomus]]

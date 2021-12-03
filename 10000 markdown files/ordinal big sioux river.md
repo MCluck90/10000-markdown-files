@@ -86,3 +86,10 @@ After that lay sprawling about
 On various pretexts they doing.
 : Collar that this moment it every Christmas.
 
+
+## Wikilinks load test
+
+[[hemiparasitic tactical maneuver]]
+[[adjunctive decor]]
+[[strong-flavored diddlyshit]]
+[[legato sorghum vulgare technicum]]

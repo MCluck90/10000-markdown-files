@@ -80,3 +80,9 @@ they'll do so I'll fetch me
 Call the unfortunate guests
 : She'll get hold of Tears Curiouser and join the tale perhaps not
 
+
+## Wikilinks load test
+
+[[puppyish damourite]]
+[[unheard-of counsel]]
+[[resolved gadus]]

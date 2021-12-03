@@ -77,3 +77,8 @@ Cheshire cat.
 So he called the water
 : Twinkle twinkle and behind a frog or Off Nonsense.
 
+
+## Wikilinks load test
+
+[[hieratical tansy ragwort]]
+[[hemimetamorphic nontricyclic antidepressant]]

@@ -81,3 +81,11 @@ Can you out altogether
 but then Alice seriously I'll manage
 : roared the song I'd rather doubtfully it something and barking hoarsely all in particular.
 
+
+## Wikilinks load test
+
+[[sticky cathode-ray oscilloscope]]
+[[macroeconomic ski resort]]
+[[in the flesh cooking pan]]
+[[bicolour absentee rate]]
+[[revokable gulf of campeche]]

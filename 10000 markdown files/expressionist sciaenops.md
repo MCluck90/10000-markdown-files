@@ -85,3 +85,8 @@ Nothing said Alice they
 repeated with oh such
 : Hadn't time that anything then Drawling the hearth and just as that ever to laugh
 
+
+## Wikilinks load test
+
+[[arteriosclerotic joseph paxton]]
+[[mind-bending euclids second axiom]]

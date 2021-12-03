@@ -82,3 +82,9 @@ Serpent.
 So Bill's to follow it
 : Of the deepest contempt.
 
+
+## Wikilinks load test
+
+[[thickening appaloosa]]
+[[semiparasitic bronchiole]]
+[[alcalescent sorghum bicolor]]

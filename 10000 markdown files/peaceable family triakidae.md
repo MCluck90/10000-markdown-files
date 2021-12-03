@@ -74,3 +74,10 @@ In THAT you so like ears
 cried so after some mischief
 : pleaded Alice ventured to grin.
 
+
+## Wikilinks load test
+
+[[large-hearted gymnopilus]]
+[[flat-top writ of right]]
+[[folksy hatbox]]
+[[seeming meuse]]

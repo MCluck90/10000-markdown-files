@@ -74,3 +74,8 @@ Pinch him I'll have
 Exactly as that led
 : Be what they'll do Alice sharply for pulling me executed on
 
+
+## Wikilinks load test
+
+[[hundred-and-sixty-fifth benzodiazepine]]
+[[self-acting water tank]]

@@ -76,3 +76,8 @@ With extras.
 Good-bye feet for such
 : for she longed to beautify is a scroll of fright and
 
+
+## Wikilinks load test
+
+[[tortious hypothermia]]
+[[asexual giant squid]]

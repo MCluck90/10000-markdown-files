@@ -87,3 +87,10 @@ HEARTHRUG NEAR THE BOOTS AND SHOES.
 Suppose it ran out loud
 : Up above the sound.
 
+
+## Wikilinks load test
+
+[[of age atlantis]]
+[[electrical hexalectris spicata]]
+[[deafened racer]]
+[[oriented supernumerary]]

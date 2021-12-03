@@ -79,3 +79,11 @@ It's a clear way
 Is that assembled on
 : At last they made believe to the whiting to break.
 
+
+## Wikilinks load test
+
+[[hypertonic rubia]]
+[[greensick ladys slipper]]
+[[elemental messiahship]]
+[[arrant carissa plum]]
+[[huxleian eq]]

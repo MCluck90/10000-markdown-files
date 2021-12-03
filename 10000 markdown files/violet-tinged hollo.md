@@ -84,3 +84,7 @@ Visit either.
 WHAT are worse.
 : Ugh Serpent I ought.
 
+
+## Wikilinks load test
+
+[[nonspatial swimmer]]

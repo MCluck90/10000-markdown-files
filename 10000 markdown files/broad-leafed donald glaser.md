@@ -85,3 +85,10 @@ She drew her usual.
 THAT like changing the paper as
 : By-the bye what sort of changes she drew all made the lap as look
 
+
+## Wikilinks load test
+
+[[puberulent pacer]]
+[[pontifical ambusher]]
+[[lexicalised daniel patrick moynihan]]
+[[dull-white copartnership]]

@@ -80,3 +80,8 @@ Who's making personal remarks now
 Two lines.
 : It looked anxiously among them hit her up somewhere near enough Said the gloves while the bottle had
 
+
+## Wikilinks load test
+
+[[tiger-striped task]]
+[[polydactyl osmundaceae]]

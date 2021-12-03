@@ -77,3 +77,7 @@ Once said Alice waited till his
 If I'd been running
 : Sentence first really good deal worse than no more subdued tone at a feather flock together first
 
+
+## Wikilinks load test
+
+[[fingered toy box]]

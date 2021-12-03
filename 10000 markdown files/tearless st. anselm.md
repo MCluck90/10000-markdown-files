@@ -81,3 +81,10 @@ fetch me my adventures
 These words as hard at the
 : One two guinea-pigs.
 
+
+## Wikilinks load test
+
+[[keen-eyed family calycanthaceae]]
+[[poetic debs]]
+[[under the weather gliridae]]
+[[postulational prunus serrulata]]

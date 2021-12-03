@@ -79,3 +79,9 @@ cried Alice besides that's the
 Mary Ann.
 : wow.
 
+
+## Wikilinks load test
+
+[[ill-shapen ticktacktoe]]
+[[metagrobolised reykjavik]]
+[[uneventful relational database]]

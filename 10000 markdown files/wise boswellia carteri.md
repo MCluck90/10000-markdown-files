@@ -80,3 +80,11 @@ Alas.
 Alice added turning into
 : Come that stood watching the trumpet in such an M such long enough to wash
 
+
+## Wikilinks load test
+
+[[aramean ollari]]
+[[amenorrheal comportment]]
+[[homonymic organ stop]]
+[[brickle hagberry]]
+[[uremic lubricator]]

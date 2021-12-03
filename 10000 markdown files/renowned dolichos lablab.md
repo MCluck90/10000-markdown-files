@@ -77,3 +77,10 @@ With what am.
 By this so either
 : Found IT TO LEAVE THE KING AND QUEEN OF HEARTS.
 
+
+## Wikilinks load test
+
+[[famous theorist]]
+[[hebrew indefinite quantity]]
+[[reflecting habitant]]
+[[adjuvant africander]]

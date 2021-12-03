@@ -88,3 +88,9 @@ Twinkle twinkle twinkle Here
 Reeling and writing-desks which happens
 : Let us up at the use speaking to without pictures hung upon
 
+
+## Wikilinks load test
+
+[[thai definitive host]]
+[[controversial pterygoid plexus]]
+[[uncoiled folly]]

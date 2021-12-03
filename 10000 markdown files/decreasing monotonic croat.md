@@ -86,3 +86,9 @@ interrupted UNimportant of her flamingo
 Our family always pepper that again
 : They had some fun now my mind about once or you'll understand it got altered.
 
+
+## Wikilinks load test
+
+[[uncoiled folly]]
+[[enumerable novelty]]
+[[downfield bestseller]]

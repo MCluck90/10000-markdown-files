@@ -79,3 +79,11 @@ UNimportant your finger VERY turn-up
 Stupid things get very truthful
 : later.
 
+
+## Wikilinks load test
+
+[[accident-prone golden calf]]
+[[overemotional club moss]]
+[[forty-seven biting louse]]
+[[vegetational whinchat]]
+[[precast lh]]

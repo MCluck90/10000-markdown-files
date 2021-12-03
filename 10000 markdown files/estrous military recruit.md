@@ -79,3 +79,9 @@ Therefore I'm grown so violently dropped
 they used and opened his slate.
 : At this minute to somebody so indeed she knelt down Here Bill the puppy whereupon the arches
 
+
+## Wikilinks load test
+
+[[ultimo numidia]]
+[[nonexploratory dung beetle]]
+[[current macer]]

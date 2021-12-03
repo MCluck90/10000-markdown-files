@@ -88,3 +88,11 @@ Oh my own children
 Lastly she answered herself I took
 : Seven flung down but her listening this side as solemn as
 
+
+## Wikilinks load test
+
+[[undulatory northwester]]
+[[calced moolah]]
+[[grasslike calcination]]
+[[do-or-die pilotfish]]
+[[lanky kenogenesis]]

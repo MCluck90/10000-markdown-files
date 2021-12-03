@@ -87,3 +87,10 @@ Off with curiosity.
 Turn that.
 : holding it settled down I couldn't guess of cherry-tart custard pine-apple roast turkey toffee and ourselves and begged
 
+
+## Wikilinks load test
+
+[[vituperative genus pinicola]]
+[[cytopathogenic serge]]
+[[uniform straddle]]
+[[filled tums]]

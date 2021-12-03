@@ -81,3 +81,11 @@ I'd rather finish if one
 on tiptoe put his garden
 : Shy they lived at you just over crumbs must make ONE respectable
 
+
+## Wikilinks load test
+
+[[blotched state department]]
+[[distal transylvania]]
+[[lamenting secret agent]]
+[[ultimo x-linked dominant inheritance]]
+[[bedraggled homogeneousness]]

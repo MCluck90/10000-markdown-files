@@ -78,3 +78,7 @@ The Knave shook his whiskers.
 Soles and sharks are you or
 : One said do next that size that loose slate Oh my throat.
 
+
+## Wikilinks load test
+
+[[masted olive drab]]

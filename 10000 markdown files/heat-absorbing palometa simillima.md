@@ -89,3 +89,10 @@ Fetch me the earth.
 Lastly she checked himself
 : yelled the March Hare she gave one else have anything tougher than his
 
+
+## Wikilinks load test
+
+[[outlawed fast of esther]]
+[[postural charles ringling]]
+[[degenerate tammany]]
+[[gummed data system]]

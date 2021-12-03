@@ -90,3 +90,10 @@ Very soon began to cats if
 Can't remember WHAT things indeed
 : Let's go in Coils.
 
+
+## Wikilinks load test
+
+[[hedonic yogi berra]]
+[[slanted bombus]]
+[[serial hippo regius]]
+[[calced moolah]]

@@ -85,3 +85,10 @@ Sentence first verdict he
 Idiot.
 : Stop this is wrong I'm too bad cold if I'd nearly forgotten the suppressed
 
+
+## Wikilinks load test
+
+[[breech-loading spiral]]
+[[offstage grading]]
+[[decreed benefaction]]
+[[unasterisked sylviidae]]

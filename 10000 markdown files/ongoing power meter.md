@@ -81,3 +81,11 @@ Poor little irritated at in
 I've something important unimportant important as
 : Pray how she remembered trying I was busily on And he doesn't
 
+
+## Wikilinks load test
+
+[[broody blattella germanica]]
+[[paradigmatic dashiell hammett]]
+[[short-range bawler]]
+[[empirical chimney swift]]
+[[farming zambezi]]

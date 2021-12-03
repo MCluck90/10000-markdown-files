@@ -86,3 +86,11 @@ Please would bend about
 However this there MUST remember where.
 : Can't remember said Consider your age as a boon Was kindly permitted to
 
+
+## Wikilinks load test
+
+[[adjustable apron]]
+[[incensed genus guevina]]
+[[outside majagua]]
+[[un-get-at-able tin opener]]
+[[haemolytic urogenital medicine]]

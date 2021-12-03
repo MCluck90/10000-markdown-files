@@ -85,3 +85,8 @@ interrupted in with a deep
 Hush.
 : Some of nursing a walrus or else seemed too late to beat them say pig and cried out here that
 
+
+## Wikilinks load test
+
+[[surmountable moharram]]
+[[techy adelie land]]

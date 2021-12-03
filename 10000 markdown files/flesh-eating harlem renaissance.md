@@ -80,3 +80,10 @@ Well there she wasn't
 sh.
 : Be off sneezing.
 
+
+## Wikilinks load test
+
+[[seagirt rickover]]
+[[downtown biohazard]]
+[[baptistic tasse]]
+[[spotless naucrates ductor]]

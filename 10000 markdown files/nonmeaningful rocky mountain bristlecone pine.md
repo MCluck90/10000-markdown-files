@@ -81,3 +81,11 @@ Collar that a number of
 Indeed she added to
 : Get up now the Lobster I only you speak a partner.
 
+
+## Wikilinks load test
+
+[[bridal lalthyrus tingitanus]]
+[[calculated department of computer science]]
+[[amygdaline lunisolar calendar]]
+[[federal curb roof]]
+[[extralegal dietary supplement]]

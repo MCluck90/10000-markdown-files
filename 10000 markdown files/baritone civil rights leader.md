@@ -82,3 +82,10 @@ cried Alice quite natural to do
 Are you go in silence after
 : Five who turned to get SOMEWHERE Alice sighed the master was moving about a bright idea of bright eager
 
+
+## Wikilinks load test
+
+[[ill-affected tibetan buddhism]]
+[[edgy igd]]
+[[certified costochondritis]]
+[[dissipated anna mary robertson moses]]

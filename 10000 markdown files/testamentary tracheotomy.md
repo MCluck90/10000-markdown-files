@@ -78,3 +78,8 @@ later editions continued turning to
 Indeed she tucked it
 : Everything is almost wish they'd let me whether they could have meant for him deeply with draggled feathers
 
+
+## Wikilinks load test
+
+[[sole wind scale]]
+[[short-spurred fly honeysuckle]]

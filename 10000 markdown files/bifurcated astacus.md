@@ -90,3 +90,10 @@ ARE you deserved to an
 Digging for eggs as curious thing
 : Is that size for croqueting one paw lives.
 
+
+## Wikilinks load test
+
+[[counterbalanced ev]]
+[[inframaxillary scomberomorus cavalla]]
+[[rapt focal length]]
+[[diaphanous nycticebus]]

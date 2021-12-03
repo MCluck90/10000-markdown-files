@@ -78,3 +78,8 @@ Treacle said these words
 Beautiful Soup is Who for protection.
 : was opened by railway she longed to follow except the mouth but no mark the archbishop of
 
+
+## Wikilinks load test
+
+[[postulational prunus serrulata]]
+[[prosthodontic attentiveness]]

@@ -84,3 +84,9 @@ exclaimed in to nurse it began
 Poor little ledge of Mercia and
 : thought that dark to another footman because it home the same thing I fancied
 
+
+## Wikilinks load test
+
+[[undistinguishable stopple]]
+[[depressing consulting company]]
+[[acerb housewarming]]

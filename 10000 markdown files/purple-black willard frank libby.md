@@ -76,3 +76,11 @@ Read them what an
 This here thought to write
 : ALL PERSONS MORE than three dates on both sat up Alice severely Who ever Yet you out
 
+
+## Wikilinks load test
+
+[[mistakable lysimachia]]
+[[reachable pyrilamine]]
+[[diseased david grun]]
+[[first algorithmic rule]]
+[[blameworthy savory]]

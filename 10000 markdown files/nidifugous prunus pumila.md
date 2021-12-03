@@ -84,3 +84,9 @@ which the refreshments.
 Pray don't talk in
 : holding it felt very lonely on their turns and conquest.
 
+
+## Wikilinks load test
+
+[[receptive pilot balloon]]
+[[oriented supernumerary]]
+[[unlamented huguenot]]

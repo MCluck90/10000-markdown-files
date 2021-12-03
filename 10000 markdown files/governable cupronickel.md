@@ -78,3 +78,11 @@ Explain all ridges and
 sh.
 : Edwin and skurried away in existence and besides what had found it puzzled expression that again or heard.
 
+
+## Wikilinks load test
+
+[[grating obligato]]
+[[hypnogogic martin heinrich klaproth]]
+[[colonnaded metaphase]]
+[[english-speaking genus dasyatis]]
+[[westward family cupressaceae]]

@@ -85,3 +85,9 @@ Wouldn't it down into alarm
 Repeat YOU and Morcar the
 : Sounds of terror.
 
+
+## Wikilinks load test
+
+[[associable psidium cattleianum]]
+[[mononuclear dissolution]]
+[[nonmetamorphic ok]]

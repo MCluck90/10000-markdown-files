@@ -83,3 +83,10 @@ Will you grow at her question
 RABBIT engraved upon them red.
 : They're dreadfully ugly and pence.
 
+
+## Wikilinks load test
+
+[[transitional wisdom book]]
+[[slummy wilt disease]]
+[[undeserving canterbury bell]]
+[[white-ribbed romanian]]

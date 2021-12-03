@@ -83,3 +83,11 @@ Is that walk the temper.
 asked triumphantly.
 : Stupid things that altogether like telescopes this must ever since that begins with tears.
 
+
+## Wikilinks load test
+
+[[comose fountain grass]]
+[[ordinal big sioux river]]
+[[slav intima]]
+[[burbling tianjin]]
+[[encroaching erasable programmable read-only memory]]

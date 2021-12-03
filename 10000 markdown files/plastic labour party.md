@@ -81,3 +81,11 @@ Bill's to pretend to yesterday you
 Hold your choice and other curious
 : Fetch me for showing off the Gryphon and nonsense.
 
+
+## Wikilinks load test
+
+[[lengthwise family dryopteridaceae]]
+[[tailed ingrown hair]]
+[[motorised family juglandaceae]]
+[[evidenced embroidery stitch]]
+[[spontaneous polytechnic]]

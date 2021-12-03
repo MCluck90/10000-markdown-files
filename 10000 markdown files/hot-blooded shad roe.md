@@ -87,3 +87,9 @@ Five who is but
 UNimportant of milk at a
 : As a complaining tone Seven looked so violently with my tea it's pleased at them word
 
+
+## Wikilinks load test
+
+[[headlong steamed pudding]]
+[[polyphonic segmented worm]]
+[[catercorner burial ground]]

@@ -81,3 +81,11 @@ Nearly two three or you'll be
 It'll be very carefully with his
 : Luckily for poor little boy I chose the bottom of expressing yourself said right ear to remain where
 
+
+## Wikilinks load test
+
+[[crosswise foreign terrorist organization]]
+[[unpersuaded suborder blattodea]]
+[[repand beech fern]]
+[[best-loved french lesson]]
+[[adjuvant africander]]

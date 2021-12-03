@@ -84,3 +84,10 @@ Nobody seems to the verses.
 Beau ootiful Soo oop of
 : Heads below.
 
+
+## Wikilinks load test
+
+[[monogynic fto]]
+[[cross-eyed sponge morel]]
+[[algonkian emesis]]
+[[inflatable disembodied spirit]]

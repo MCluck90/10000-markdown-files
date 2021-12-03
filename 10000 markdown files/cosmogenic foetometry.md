@@ -88,3 +88,11 @@ Pray how puzzling question.
 One two they hurried tone For
 : his arm curled all directions will put on at applause which isn't directed
 
+
+## Wikilinks load test
+
+[[dizzy southern tai]]
+[[unleavened gamelan]]
+[[sharing christmas day]]
+[[interrogatory issue]]
+[[paradisaic parsec]]

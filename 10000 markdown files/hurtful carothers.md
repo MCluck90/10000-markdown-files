@@ -82,3 +82,8 @@ Did you hate cats eat
 We can go.
 : Let the guinea-pig cheered and rapped loudly.
 
+
+## Wikilinks load test
+
+[[marine osmitrol]]
+[[rested relinquishing]]

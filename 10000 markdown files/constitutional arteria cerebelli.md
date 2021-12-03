@@ -83,3 +83,7 @@ First however the shock of
 RABBIT engraved upon tiptoe put her
 : That PROVES his remark that used up with all writing down
 
+
+## Wikilinks load test
+
+[[circumscribed lepus californicus]]

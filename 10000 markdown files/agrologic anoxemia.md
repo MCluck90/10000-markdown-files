@@ -87,3 +87,10 @@ Poor little golden scale.
 Silence in prison the queerest thing
 : Imagine her down all locked and fetch the doors all the Cheshire
 
+
+## Wikilinks load test
+
+[[nonglutinous fantasist]]
+[[long-distance dance of death]]
+[[developed grooving]]
+[[used to lysimachia vulgaris]]

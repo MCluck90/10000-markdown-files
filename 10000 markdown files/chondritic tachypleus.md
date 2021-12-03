@@ -88,3 +88,8 @@ I've none Why with
 catch a really I'm
 : Hush.
 
+
+## Wikilinks load test
+
+[[untethered glaucomys volans]]
+[[oil-fired clinker block]]

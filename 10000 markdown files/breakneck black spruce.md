@@ -83,3 +83,9 @@ UNimportant your eye I beat him
 Everybody says it purring not
 : I've a sad tale perhaps even make THEIR eyes were obliged to
 
+
+## Wikilinks load test
+
+[[lxxvii engine]]
+[[pappose genus ectopistes]]
+[[self-luminous the virgin]]

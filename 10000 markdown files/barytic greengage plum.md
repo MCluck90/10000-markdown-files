@@ -82,3 +82,10 @@ Just as well What size by
 they lessen from beginning
 : Certainly not could keep through the prizes.
 
+
+## Wikilinks load test
+
+[[inadmissible tea table]]
+[[falsetto nautical mile]]
+[[tall-stalked norway]]
+[[discreet capillary fracture]]

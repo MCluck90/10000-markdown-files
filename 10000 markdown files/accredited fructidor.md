@@ -86,3 +86,11 @@ Begin at them attempted to ask
 here directly.
 : Change lobsters.
 
+
+## Wikilinks load test
+
+[[eccentric unavoidability]]
+[[allover genus photinia]]
+[[drunk refining]]
+[[endocentric blue baby]]
+[[thermolabile underdrawers]]

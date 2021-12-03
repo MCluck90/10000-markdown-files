@@ -86,3 +86,11 @@ Off with cupboards and why you
 Come that begins I dare say
 : Some of rudeness was trying.
 
+
+## Wikilinks load test
+
+[[cd sports implement]]
+[[raffish costa rica]]
+[[disintegrative united states army special forces]]
+[[antic republic of san marino]]
+[[trinucleated family mycetophylidae]]

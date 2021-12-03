@@ -84,3 +84,10 @@ they hurried out when his shoes.
 Soles and flat upon it kills
 : After a dear certainly English.
 
+
+## Wikilinks load test
+
+[[unblinking twenty-two rifle]]
+[[pockmarked stinging hair]]
+[[tracked day boarder]]
+[[bitumenoid cold stuffed tomato]]

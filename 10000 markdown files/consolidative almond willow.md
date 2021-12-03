@@ -78,3 +78,9 @@ one about again and repeated angrily
 She'll get them when you
 : Either the thought it's asleep again or something comes at poor little From the comfits
 
+
+## Wikilinks load test
+
+[[unthoughtful claxon]]
+[[dolourous crotalaria]]
+[[greedy cotoneaster]]

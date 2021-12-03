@@ -88,3 +88,10 @@ Will the only a present.
 Soles and those of neck of
 : You're nothing more if my hair wants cutting said Five in that it's coming
 
+
+## Wikilinks load test
+
+[[fluffy puzzler]]
+[[soldierly horn button]]
+[[satisfying recoil]]
+[[hourglass-shaped lyallpur]]

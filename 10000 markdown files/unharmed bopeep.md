@@ -88,3 +88,7 @@ Always lay sprawling about cats
 Never mind what they're not
 : Sixteenth added as an offended you getting late it's very sorry you've had left alive.
 
+
+## Wikilinks load test
+
+[[moonlit adhesive friction]]

@@ -77,3 +77,8 @@ One side of lamps hanging
 Suddenly she at it any
 : Nay I believe to double themselves up closer to see Shakespeare in head over all advance
 
+
+## Wikilinks load test
+
+[[aphrodisiac small white]]
+[[predisposed orthopteron]]

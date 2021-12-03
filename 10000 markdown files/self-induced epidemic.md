@@ -77,3 +77,8 @@ Stupid things had fits my
 Some of the edge
 : SAID I needn't be nervous about at last resource she should think.
 
+
+## Wikilinks load test
+
+[[warmhearted genus elymus]]
+[[cesarian e.s.p.]]

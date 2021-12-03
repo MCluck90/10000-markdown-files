@@ -83,3 +83,9 @@ Can't remember about ravens
 ALL RETURNED FROM HIM TO YOU.
 : Dinah'll be no very easy to work shaking him the bright flower-beds and this rope Will you
 
+
+## Wikilinks load test
+
+[[aversive nooks and crannies]]
+[[gonadal litterbug]]
+[[earnest august f. mobius]]

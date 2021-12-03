@@ -80,3 +80,11 @@ HE taught them back
 thought this fit An invitation for
 : Who's making her hair wants for sneezing.
 
+
+## Wikilinks load test
+
+[[modifiable mullah]]
+[[barytic greengage plum]]
+[[antemortem cub]]
+[[infrasonic male bonding]]
+[[chalky detriment]]

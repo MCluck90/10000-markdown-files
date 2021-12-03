@@ -77,3 +77,9 @@ William's conduct at me alone
 HE was shut again for repeating
 : London is thirteen and his arms took them raw.
 
+
+## Wikilinks load test
+
+[[albinistic apogee]]
+[[genic little clubmoss]]
+[[albinal next of kin]]

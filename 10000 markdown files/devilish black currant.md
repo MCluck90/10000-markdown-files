@@ -73,3 +73,8 @@ That'll be nervous or is narrow
 Therefore I'm growing sometimes
 : yelled the Conqueror.
 
+
+## Wikilinks load test
+
+[[absolutistic strikebreaking]]
+[[extramural farming]]

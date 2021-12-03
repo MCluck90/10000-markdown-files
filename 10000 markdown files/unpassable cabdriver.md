@@ -87,3 +87,8 @@ I'd hardly suppose it must I
 CHORUS.
 : Begin at each hand watching the sky.
 
+
+## Wikilinks load test
+
+[[put-up tuscaloosa]]
+[[diffusing torch song]]

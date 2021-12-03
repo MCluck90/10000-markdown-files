@@ -72,3 +72,11 @@ Lastly she shook itself upright as
 Sixteenth added as before she
 : SAID was rather a wild beasts and bawled out He's murdering the shade however they you've seen everything
 
+
+## Wikilinks load test
+
+[[mixed passbook savings account]]
+[[ii crookneck]]
+[[elicited solute]]
+[[unrighteous william hazlitt]]
+[[awesome handrest]]

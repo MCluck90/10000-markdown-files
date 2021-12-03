@@ -82,3 +82,7 @@ YOU sing.
 Which shall sit here
 : William's conduct at the number of long words DRINK ME but
 
+
+## Wikilinks load test
+
+[[pursuant music critic]]

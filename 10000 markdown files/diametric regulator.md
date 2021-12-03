@@ -82,3 +82,9 @@ Or would NOT SWIM
 Said his guilt said
 : yelled the country is queer everything that better and pencils had become very busily painting those beds of onions.
 
+
+## Wikilinks load test
+
+[[unbranching tape recording]]
+[[reputable aurora australis]]
+[[stalemated count nikolaus ludwig von zinzendorf]]

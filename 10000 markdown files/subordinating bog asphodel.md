@@ -82,3 +82,7 @@ HE went mad.
 Soup of croquet.
 : on like.
 
+
+## Wikilinks load test
+
+[[isosceles racquetball]]

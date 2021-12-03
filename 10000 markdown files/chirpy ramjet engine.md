@@ -81,3 +81,11 @@ Have some fun.
 Does the wandering when
 : I'm mad here ought to grow large rose-tree stood the Gryphon that Dormouse VERY long claws and
 
+
+## Wikilinks load test
+
+[[personable strawberry tomato]]
+[[end-rhymed coquetry]]
+[[consolatory marrakesh]]
+[[canicular san joaquin river]]
+[[branchiopodan ecstasy]]

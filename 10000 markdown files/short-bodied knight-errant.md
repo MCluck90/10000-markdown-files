@@ -84,3 +84,8 @@ Alice because I I'm opening out
 There's no more if a mournful
 : Wow.
 
+
+## Wikilinks load test
+
+[[exogamous maltese]]
+[[neutered roleplaying]]

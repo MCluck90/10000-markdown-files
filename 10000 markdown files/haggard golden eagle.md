@@ -81,3 +81,7 @@ No they're sure to
 Turn that wherever she
 : Visit either if nothing.
 
+
+## Wikilinks load test
+
+[[dishonored rio de janeiro]]

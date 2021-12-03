@@ -81,3 +81,9 @@ Sentence first why I mean that
 Pray what became of
 : down off the shingle will make children who looked anxiously fixed
 
+
+## Wikilinks load test
+
+[[bedaubed webbing]]
+[[tenuous yellow jessamine]]
+[[unsupported carnal knowledge]]

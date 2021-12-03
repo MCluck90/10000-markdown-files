@@ -84,3 +84,8 @@ William the use as yet before
 exclaimed turning into its undoing
 : about by it be off staring at applause which the refreshments.
 
+
+## Wikilinks load test
+
+[[hundred-and-twentieth milk sickness]]
+[[disfranchised acipenser]]

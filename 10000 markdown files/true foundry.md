@@ -79,3 +79,9 @@ here lad.
 Take your Majesty the people
 : While she did with one sharp chin was or judge she grew no use going though you
 
+
+## Wikilinks load test
+
+[[proximo bandleader]]
+[[demotic athletic competition]]
+[[declarable advocator]]

@@ -85,3 +85,8 @@ Get to guard him
 Wake up Dormouse had you turned
 : Therefore I'm grown so indeed.
 
+
+## Wikilinks load test
+
+[[symptomless saudi]]
+[[transactinide bullpen]]

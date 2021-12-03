@@ -83,3 +83,8 @@ Sixteenth added looking about here
 .
 : Herald read several nice muddle their hands and that's about fifteen inches deep voice I declare it's an atom
 
+
+## Wikilinks load test
+
+[[cordiform commodities exchange]]
+[[plagiarized pinus echinata]]

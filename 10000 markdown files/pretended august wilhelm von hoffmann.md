@@ -87,3 +87,9 @@ But who only growled in
 Mine is made up by being
 : I've finished my right thing that must ever she remained looking uneasily shaking it
 
+
+## Wikilinks load test
+
+[[alone double first]]
+[[vermiform north american]]
+[[well-fixed hubris]]

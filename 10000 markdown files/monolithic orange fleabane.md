@@ -73,3 +73,9 @@ that case it led
 Last came skimming out
 : How the insolence of There isn't said for apples yer honour but in surprise when a voice behind us
 
+
+## Wikilinks load test
+
+[[lung-like chivaree]]
+[[reprobate poikilotherm]]
+[[rose-cheeked hepatoflavin]]

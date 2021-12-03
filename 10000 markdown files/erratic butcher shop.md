@@ -81,3 +81,8 @@ Somebody said Alice started
 Change lobsters you more conversation
 : Soo oop.
 
+
+## Wikilinks load test
+
+[[instant gutter]]
+[[carousing countermand]]

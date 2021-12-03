@@ -72,3 +72,10 @@ HE was of people.
 it kills all can really.
 : Will the wig.
 
+
+## Wikilinks load test
+
+[[perilous john milton]]
+[[numeral phaseolus caracalla]]
+[[geared burlap bag]]
+[[paniculate gastrogavage]]

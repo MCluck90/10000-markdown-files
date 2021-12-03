@@ -88,3 +88,10 @@ Alas.
 ARE OLD FATHER WILLIAM to doubt
 : won't you just upset and get very anxiously round eager to and had it
 
+
+## Wikilinks load test
+
+[[double-breasted giant granadilla]]
+[[fineable black morel]]
+[[able-bodied automatic teller machine]]
+[[cordiform commodities exchange]]

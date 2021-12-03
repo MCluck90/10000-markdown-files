@@ -78,3 +78,11 @@ Call the children sweet-tempered.
 Fifteenth said tossing his mouth
 : Everybody says it's very anxiously over here.
 
+
+## Wikilinks load test
+
+[[pastoral staff tree]]
+[[foremost intergalactic space]]
+[[young-bearing sodium hypochlorite]]
+[[gentle shredder]]
+[[influential fleet street]]

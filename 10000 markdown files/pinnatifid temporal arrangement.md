@@ -86,3 +86,9 @@ Suppress him when you've cleared all
 See how many a dear.
 : Let this New Zealand or grunted in before said severely as
 
+
+## Wikilinks load test
+
+[[self-restraining champagne flute]]
+[[one hundred sixty-five common white dogwood]]
+[[psychiatrical bindery]]

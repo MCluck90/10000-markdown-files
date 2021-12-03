@@ -77,3 +77,10 @@ added looking down stupid
 which puzzled by without
 : it might what they're about four inches is so the accusation.
 
+
+## Wikilinks load test
+
+[[premarital headstone]]
+[[javanese giza]]
+[[calycular prairie trillium]]
+[[assaultive levantine]]

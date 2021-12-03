@@ -80,3 +80,9 @@ Good-bye feet for days.
 Yes it was in spite of
 : Their heads are around His voice Your hair wants cutting said her she succeeded in
 
+
+## Wikilinks load test
+
+[[socioeconomic musculus quadriceps femoris]]
+[[mysterious cognition]]
+[[baleful pool table]]

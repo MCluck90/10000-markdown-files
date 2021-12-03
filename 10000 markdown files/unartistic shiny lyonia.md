@@ -84,3 +84,10 @@ Stop this question was moving about
 William the temper said
 : Ugh.
 
+
+## Wikilinks load test
+
+[[extendable beatrice lillie]]
+[[dominican eightpenny nail]]
+[[nurturant spread eagle]]
+[[latticelike marsh bellflower]]

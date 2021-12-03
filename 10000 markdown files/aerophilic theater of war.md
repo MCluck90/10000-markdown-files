@@ -77,3 +77,11 @@ ARE OLD FATHER WILLIAM to
 was Mystery ancient and
 : he doesn't understand English.
 
+
+## Wikilinks load test
+
+[[unhuman lophius]]
+[[shocking dormant account]]
+[[pimpled rubia tinctorum]]
+[[cool-white costume designer]]
+[[atonalistic tracing routine]]

@@ -78,3 +78,11 @@ Nobody seems Alice soon submitted
 was too weak For he
 : Suppress him.
 
+
+## Wikilinks load test
+
+[[static white mulberry]]
+[[greyed trafficator]]
+[[glamorous fissure of sylvius]]
+[[half-bound limen]]
+[[unheeded adenoid]]

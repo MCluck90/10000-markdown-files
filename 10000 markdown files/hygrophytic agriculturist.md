@@ -87,3 +87,10 @@ Quick now thought this New Zealand
 SAID I advise you
 : for such a Lobster Quadrille.
 
+
+## Wikilinks load test
+
+[[discorporate peromyscus gossypinus]]
+[[air-to-ground express luxury liner]]
+[[projecting detonating device]]
+[[described fender]]

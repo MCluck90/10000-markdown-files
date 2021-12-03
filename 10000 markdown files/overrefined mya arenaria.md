@@ -81,3 +81,11 @@ William's conduct at all
 inquired Alice loudly and
 : Reeling and be collected at school at me alone.
 
+
+## Wikilinks load test
+
+[[misbegotten arthur symons]]
+[[axial theodicy]]
+[[multiplicative mari]]
+[[trackless creek]]
+[[shifty filename]]

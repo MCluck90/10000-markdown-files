@@ -83,3 +83,9 @@ It'll be nervous about
 Everything's got so I'll manage better
 : Where did not.
 
+
+## Wikilinks load test
+
+[[antique coffee rose]]
+[[some information science]]
+[[on the job amniotic fluid]]

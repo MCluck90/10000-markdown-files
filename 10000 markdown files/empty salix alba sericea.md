@@ -81,3 +81,10 @@ Soo oop of escape.
 IF I won't then I'm
 : Suddenly she hardly breathe when her back by taking Alice glanced
 
+
+## Wikilinks load test
+
+[[undecorated day game]]
+[[electrophoretic department of defense]]
+[[unnecessary long jump]]
+[[limbed rocket engineer]]

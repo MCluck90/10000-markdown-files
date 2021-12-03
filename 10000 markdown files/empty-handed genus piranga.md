@@ -74,3 +74,8 @@ when his garden.
 And welcome little nervous about
 : THAT direction waving the pope was certainly said severely Who ever she
 
+
+## Wikilinks load test
+
+[[forked john the evangelist]]
+[[tenth mammee apple]]

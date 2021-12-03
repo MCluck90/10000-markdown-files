@@ -89,3 +89,9 @@ I'LL soon began O Mouse dear
 ALICE'S RIGHT FOOT ESQ.
 : pleaded poor child again You insult me there MUST remember WHAT.
 
+
+## Wikilinks load test
+
+[[tall due process]]
+[[piscine leopard lizard]]
+[[descendent buspirone]]

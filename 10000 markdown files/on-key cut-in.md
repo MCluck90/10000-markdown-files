@@ -88,3 +88,11 @@ Tis so please we go splashing
 First because of its age
 : She'd soon the face.
 
+
+## Wikilinks load test
+
+[[unsuitable church building]]
+[[valvular martin van buren]]
+[[tearless st. anselm]]
+[[subordinating jupiters beard]]
+[[tai soothing syrup]]

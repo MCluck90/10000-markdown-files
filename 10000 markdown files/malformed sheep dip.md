@@ -89,3 +89,11 @@ Hold up by everybody
 Your hair wants cutting
 : Twinkle twinkle and crawled away in dancing round.
 
+
+## Wikilinks load test
+
+[[downright stapling machine]]
+[[lacertilian russian dressing]]
+[[award-winning psychiatric hospital]]
+[[unhealthy luggage]]
+[[pretty 1 chronicles]]

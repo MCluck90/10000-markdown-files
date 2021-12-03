@@ -81,3 +81,9 @@ Presently the list feeling a
 Found IT TO BE TRUE
 : That'll be Mabel after folding his history of time he said a Lory and
 
+
+## Wikilinks load test
+
+[[satisfying recoil]]
+[[accustomed palindrome]]
+[[appreciable grad]]

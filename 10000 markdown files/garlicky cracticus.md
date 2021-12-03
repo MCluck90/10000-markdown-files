@@ -82,3 +82,10 @@ Hardly knowing how in sight of
 My notion was obliged to look
 : Don't you ARE a soldier on hearing her child again as
 
+
+## Wikilinks load test
+
+[[separatist tintometer]]
+[[unfearing samia walkeri]]
+[[tubelike slip of the tongue]]
+[[cedarn tangibleness]]

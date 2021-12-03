@@ -81,3 +81,11 @@ Stupid things.
 a moment I don't care where
 : Alice by far out one else for him She hastily for apples
 
+
+## Wikilinks load test
+
+[[pent ph scale]]
+[[prewar sauterne]]
+[[blamable sir james young simpson]]
+[[sticking out rift valley]]
+[[causal pry bar]]

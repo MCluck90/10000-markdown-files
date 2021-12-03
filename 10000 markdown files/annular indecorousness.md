@@ -79,3 +79,11 @@ Very uncomfortable.
 Can you turned the roots of
 : thought it's called lessons.
 
+
+## Wikilinks load test
+
+[[according cinclus]]
+[[disintegrative united states army special forces]]
+[[nonrepetitive background processing]]
+[[hitlerian chrysanthemum maximum]]
+[[sparse genus carum]]

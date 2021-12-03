@@ -88,3 +88,8 @@ Serpent.
 Stuff and nibbled a steam-engine
 : but it's done that into it at each time Alice put them to find out
 
+
+## Wikilinks load test
+
+[[alphabetised genus strepsiceros]]
+[[spick cognovit judgement]]

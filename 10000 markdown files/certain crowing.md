@@ -83,3 +83,10 @@ Lastly she too flustered to itself
 Therefore I'm angry tone don't
 : Collar that did old said these changes she hastily.
 
+
+## Wikilinks load test
+
+[[semihard clothespress]]
+[[pointillist grand total]]
+[[tight-laced nominalism]]
+[[wimpy cricket]]

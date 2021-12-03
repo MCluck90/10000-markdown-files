@@ -89,3 +89,9 @@ What's in as look about this
 shouted at any that better not
 : The moment Five.
 
+
+## Wikilinks load test
+
+[[polygamous amianthum]]
+[[ectodermic snakeroot]]
+[[wily james joyce]]

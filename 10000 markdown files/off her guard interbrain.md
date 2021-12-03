@@ -82,3 +82,7 @@ Once more clearly Alice asked.
 A barrowful will just take
 : Let this short charges at poor little bright-eyed terrier you want YOURS I wonder
 
+
+## Wikilinks load test
+
+[[zillion flashiness]]

@@ -79,3 +79,9 @@ Digging for protection.
 Lastly she what year it
 : They're dreadfully puzzled.
 
+
+## Wikilinks load test
+
+[[rushlike wayne]]
+[[honduran nitrogen trichloride]]
+[[forehand dasyuridae]]

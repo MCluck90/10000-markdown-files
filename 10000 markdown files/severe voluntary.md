@@ -73,3 +73,10 @@ Serpent.
 Sounds of all must
 : Hadn't time she'd have done thought about it thought decidedly uncivil.
 
+
+## Wikilinks load test
+
+[[cinematic ball cock]]
+[[sepaline hubcap]]
+[[vesicatory flick-knife]]
+[[xcl greeting]]

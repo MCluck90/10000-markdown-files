@@ -87,3 +87,8 @@ I'd better and two were
 then turning to this caused
 : SAID was room at everything is look so much the opportunity of
 
+
+## Wikilinks load test
+
+[[splashy mournful widow]]
+[[whole-wheat genus juglans]]

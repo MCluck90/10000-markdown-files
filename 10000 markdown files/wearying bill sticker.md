@@ -78,3 +78,7 @@ In another dig of it stays
 What for him sighing
 : later.
 
+
+## Wikilinks load test
+
+[[amalgamative lignum]]

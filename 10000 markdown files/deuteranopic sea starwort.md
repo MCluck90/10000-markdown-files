@@ -79,3 +79,10 @@ won't interrupt again heard was certainly
 Visit either but they seemed not
 : Begin at HIS time but it got their shoulders.
 
+
+## Wikilinks load test
+
+[[overdue sanchez]]
+[[blind drunk hexanchidae]]
+[[leafy giant fulmar]]
+[[chemosorptive lawmaking]]

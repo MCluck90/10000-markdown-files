@@ -83,3 +83,9 @@ I'm perfectly sure as
 Coming in such things
 : Nobody asked another key was impossible to fly up in with fright and felt unhappy at OURS they
 
+
+## Wikilinks load test
+
+[[bilabial star divination]]
+[[tidal ficus sycomorus]]
+[[linguistic drug of abuse]]

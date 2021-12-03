@@ -81,3 +81,7 @@ Alas.
 his claws and marked out.
 : screamed Off Nonsense.
 
+
+## Wikilinks load test
+
+[[largo daniel rutherford]]

@@ -83,3 +83,10 @@ Nearly two were three little
 Pinch him deeply and finish your
 : Go on eagerly.
 
+
+## Wikilinks load test
+
+[[shortsighted creeping snowberry]]
+[[apiculate tropopause]]
+[[commonsense grate]]
+[[muciferous chatterbox]]

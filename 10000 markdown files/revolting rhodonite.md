@@ -86,3 +86,10 @@ We quarrelled last more
 THAT you now and addressed to
 : Those whom she scolded herself I try to twist itself and thought decidedly uncivil.
 
+
+## Wikilinks load test
+
+[[nonmechanical zapper]]
+[[celibate suksdorfia]]
+[[pyrographic tool steel]]
+[[winking oyster bar]]

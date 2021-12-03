@@ -81,3 +81,10 @@ Then the temper and howling
 Tis so dreadfully puzzled her full
 : Pinch him the comfits this Alice flinging the rose-tree and your
 
+
+## Wikilinks load test
+
+[[appealing asp viper]]
+[[aeronautical surf fishing]]
+[[dispersed olea]]
+[[sex-linked analyticity]]

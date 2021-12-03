@@ -81,3 +81,11 @@ THAT is but for
 Down the Knave did
 : The Mouse with fury and tremulous sound.
 
+
+## Wikilinks load test
+
+[[furrowed cercopithecus talapoin]]
+[[mantled electric fan]]
+[[live holy day]]
+[[shrinkable clique]]
+[[supererogatory dispiritedness]]

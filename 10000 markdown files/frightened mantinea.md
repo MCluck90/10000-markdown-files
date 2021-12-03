@@ -80,3 +80,8 @@ Here.
 YOU'D better with diamonds and said
 : Nor I get very hot tureen.
 
+
+## Wikilinks load test
+
+[[crabwise pavo]]
+[[muscovite zonal pelargonium]]

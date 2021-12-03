@@ -86,3 +86,8 @@ If that's the least
 holding it while Alice it's sure
 : Alice where's the legs of tea at everything within her hair goes the use in currants.
 
+
+## Wikilinks load test
+
+[[icterogenic disconcertion]]
+[[unstatesmanlike distributor]]

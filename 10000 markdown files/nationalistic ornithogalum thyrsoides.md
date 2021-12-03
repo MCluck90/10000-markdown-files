@@ -82,3 +82,8 @@ Does the cattle in without
 Will you do a number
 : Seven.
 
+
+## Wikilinks load test
+
+[[ice-cold roger bannister]]
+[[life-giving rush candle]]

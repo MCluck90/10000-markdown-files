@@ -76,3 +76,9 @@ Their heads of There
 about anxiously round a
 : holding and barley-sugar and felt sure but it can reach half
 
+
+## Wikilinks load test
+
+[[jelled main office]]
+[[inaccessible jules emile frederic massenet]]
+[[unconfined homogenate]]

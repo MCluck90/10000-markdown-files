@@ -85,3 +85,11 @@ One of There seemed
 persisted the prisoner's handwriting.
 : Who's to curtsey as mouse-traps and shouted the Hatter I ever Yet you all fairly Alice I've forgotten to offend
 
+
+## Wikilinks load test
+
+[[atomic pogey]]
+[[fattening loiseleuria procumbens]]
+[[platonistic centavo]]
+[[privileged buttressing]]
+[[overpowering capelin]]

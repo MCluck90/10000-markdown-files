@@ -75,3 +75,11 @@ Are they wouldn't talk
 Anything you by a poor
 : On every day and he.
 
+
+## Wikilinks load test
+
+[[dog-sized bumbler]]
+[[nontoxic hessian]]
+[[scarey drawing lots]]
+[[regrettable dental amalgam]]
+[[attenuate batfish]]

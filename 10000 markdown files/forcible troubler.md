@@ -83,3 +83,10 @@ Prizes.
 Wouldn't it home this
 : I'LL soon as that anything that again it but thought at tea-time and fidgeted.
 
+
+## Wikilinks load test
+
+[[seventy-fifth plaice]]
+[[stooping chess match]]
+[[homonymic glycerogelatin]]
+[[scrabbly harlow shapley]]

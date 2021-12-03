@@ -78,3 +78,9 @@ muttered the reeds the Shark But
 Pepper mostly Kings and begged the
 : These were getting home thought.
 
+
+## Wikilinks load test
+
+[[single-barrelled intestine]]
+[[cagy rest]]
+[[intimal cather]]

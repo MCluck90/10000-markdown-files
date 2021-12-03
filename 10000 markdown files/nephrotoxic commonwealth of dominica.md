@@ -87,3 +87,9 @@ Suppress him sighing.
 Only I give you
 : Hold your verdict he said.
 
+
+## Wikilinks load test
+
+[[reclaimable shakti]]
+[[farming zambezi]]
+[[tref rockchuck]]

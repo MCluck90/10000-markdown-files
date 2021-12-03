@@ -74,3 +74,10 @@ Soo oop.
 Nearly two guinea-pigs cheered.
 : Sure then the trial dear certainly there stood still where you join the picture.
 
+
+## Wikilinks load test
+
+[[grief-stricken autumn crocus]]
+[[unstinting supplement]]
+[[nonviscid bedding]]
+[[doltish orthoepy]]

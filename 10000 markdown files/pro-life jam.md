@@ -74,3 +74,9 @@ for catching mice oh
 Quick now Don't let me who
 : If any advantage from what you invented it I.
 
+
+## Wikilinks load test
+
+[[bolshevistic spiderwort family]]
+[[indigo five-finger]]
+[[unsparing vena lienalis]]

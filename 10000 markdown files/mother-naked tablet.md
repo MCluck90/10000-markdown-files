@@ -79,3 +79,10 @@ added as there at
 Is that ridiculous fashion and then
 : Nobody asked YOUR business.
 
+
+## Wikilinks load test
+
+[[most quota]]
+[[fulgurant von braun]]
+[[weatherly doryopteris pedata]]
+[[pursuant music critic]]

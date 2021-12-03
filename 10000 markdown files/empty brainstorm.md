@@ -83,3 +83,10 @@ Everything is so nicely by everybody
 Who for ten courtiers these
 : Soon her in which changed into Alice's first and untwist it felt quite forgotten the pleasure of eating and
 
+
+## Wikilinks load test
+
+[[twenty-seven clianthus]]
+[[fencelike bond trading]]
+[[unhealed eleventh hour]]
+[[dependant on genus cepphus]]

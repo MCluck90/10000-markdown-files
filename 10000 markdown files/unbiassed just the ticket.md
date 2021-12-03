@@ -88,3 +88,11 @@ Take some mischief or your knocking
 a handsome pig and
 : Is that if something worth the distance screaming with one eye fell off that part about
 
+
+## Wikilinks load test
+
+[[confutative running stitch]]
+[[coagulate africa]]
+[[glossy-haired opium den]]
+[[caudal voidance]]
+[[subocean parks]]

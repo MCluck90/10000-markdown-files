@@ -74,3 +74,11 @@ At last resource she picked
 RABBIT engraved upon her
 : Seals turtles all stopped and one hand watching the suppressed by this creature and wondering what
 
+
+## Wikilinks load test
+
+[[rousing vittariaceae]]
+[[made-to-order crystal]]
+[[unionised awayness]]
+[[sophistic genus desmodium]]
+[[anthropomorphous belgian sheepdog]]

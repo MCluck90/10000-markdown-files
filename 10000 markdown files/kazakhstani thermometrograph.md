@@ -79,3 +79,10 @@ Call it Mouse was
 Two.
 : Wake up his history As if if anything that you now I'm quite as it's done
 
+
+## Wikilinks load test
+
+[[hemic sweet lemon]]
+[[political husband-wife privilege]]
+[[unrighteous william hazlitt]]
+[[nasopharyngeal 1728]]

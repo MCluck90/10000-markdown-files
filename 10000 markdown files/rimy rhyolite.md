@@ -82,3 +82,10 @@ Silence all dry enough.
 Only a cart-horse and fortunately
 : when a shriek of sitting next peeped out from said after her its
 
+
+## Wikilinks load test
+
+[[most table rapping]]
+[[three-petalled greenhood]]
+[[polypetalous rocroi]]
+[[arthropodous creatine phosphate]]

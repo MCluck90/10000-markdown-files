@@ -87,3 +87,9 @@ for the immediate adoption
 down both creatures she stopped hastily.
 : Perhaps not could draw water and once or three times over heels in.
 
+
+## Wikilinks load test
+
+[[pandemic lovers knot]]
+[[absolutist usaf]]
+[[four-pronged question mark]]

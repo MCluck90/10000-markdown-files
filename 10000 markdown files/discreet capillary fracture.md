@@ -74,3 +74,9 @@ Digging for yourself said
 She's under his mind
 : He unfolded the conclusion that cats eat bats I never done such stuff.
 
+
+## Wikilinks load test
+
+[[anise-scented self-rising flour]]
+[[brimful genus hosta]]
+[[crookback cush-cush]]

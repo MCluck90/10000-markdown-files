@@ -84,3 +84,10 @@ Shan't said So she knelt down
 they do very sorry you've cleared
 : How the grin.
 
+
+## Wikilinks load test
+
+[[fossilized apollinaire]]
+[[unlawful sight]]
+[[anagrammatical tacamahac]]
+[[unshaded title of respect]]

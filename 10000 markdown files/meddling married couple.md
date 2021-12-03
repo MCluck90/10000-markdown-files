@@ -80,3 +80,8 @@ Well then.
 Did you or not Alice
 : sighed wearily.
 
+
+## Wikilinks load test
+
+[[sanctioned unearned increment]]
+[[acinose burmeisteria retusa]]

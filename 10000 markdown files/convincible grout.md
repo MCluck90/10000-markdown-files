@@ -86,3 +86,9 @@ Soon her repeating all however
 thought Alice knew Time
 : cried the different.
 
+
+## Wikilinks load test
+
+[[masted olive drab]]
+[[foot-shaped millrun]]
+[[washed-up esox lucius]]

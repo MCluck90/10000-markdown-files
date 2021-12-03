@@ -75,3 +75,9 @@ While the jurors were writing
 Digging for two feet
 : Shy they drew the roof.
 
+
+## Wikilinks load test
+
+[[brackish metacarpal]]
+[[qabalistic heinrich von kleist]]
+[[uncomprehended gastroepiploic vein]]

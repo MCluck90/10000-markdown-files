@@ -83,3 +83,9 @@ Nor I needn't try
 Turn a rule and Grief
 : Hush.
 
+
+## Wikilinks load test
+
+[[unattractive guy rope]]
+[[redux lantern fly]]
+[[activist saint andrew the apostle]]

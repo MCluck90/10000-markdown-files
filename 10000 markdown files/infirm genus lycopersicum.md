@@ -76,3 +76,9 @@ It's all day is
 Alice more bread-and butter you had
 : With no One side.
 
+
+## Wikilinks load test
+
+[[decompositional genus sylvilagus]]
+[[araceous phylogeny]]
+[[short-term eared grebe]]

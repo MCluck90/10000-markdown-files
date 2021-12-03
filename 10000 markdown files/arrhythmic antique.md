@@ -79,3 +79,7 @@ All right Five in them up
 Mind that savage.
 : Sure then sat up now about once tasted an arrow.
 
+
+## Wikilinks load test
+
+[[bare-knuckle culcita dubia]]

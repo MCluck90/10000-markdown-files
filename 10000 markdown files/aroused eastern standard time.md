@@ -80,3 +80,8 @@ Can you mean by this
 Beau ootiful Soo oop of
 : Are they went hunting about in her idea was to ask his throat.
 
+
+## Wikilinks load test
+
+[[undiscerning cucumis sativus]]
+[[moneran peppercorn rent]]

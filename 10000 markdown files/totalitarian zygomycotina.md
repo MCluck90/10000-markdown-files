@@ -79,3 +79,7 @@ SAID I declare it's rather
 Hold up I make
 : cried so he spoke.
 
+
+## Wikilinks load test
+
+[[tined logomachy]]

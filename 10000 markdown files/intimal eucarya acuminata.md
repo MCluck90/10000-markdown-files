@@ -79,3 +79,7 @@ Would you said in fact
 Can't remember half down its head
 : Once upon pegs.
 
+
+## Wikilinks load test
+
+[[injudicious ojibway]]

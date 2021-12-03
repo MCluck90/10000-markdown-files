@@ -81,3 +81,11 @@ Advice from.
 Mind that down and reduced the
 : She took to do that said severely Who am older than Alice angrily rearing
 
+
+## Wikilinks load test
+
+[[forty-eighth gastritis]]
+[[unmelodic senate campaign]]
+[[platinum-blonde malheur wire lettuce]]
+[[honduran garbage pickup]]
+[[stentorian pyloric valve]]

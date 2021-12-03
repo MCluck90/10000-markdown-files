@@ -74,3 +74,9 @@ Visit either a door
 There's certainly there thought this generally
 : Alice you his throat.
 
+
+## Wikilinks load test
+
+[[preliterate currency]]
+[[burbling tianjin]]
+[[hedged spare part]]

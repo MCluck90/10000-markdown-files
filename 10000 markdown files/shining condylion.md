@@ -78,3 +78,10 @@ ALL PERSONS MORE THAN
 What's your nose What I Oh
 : .
 
+
+## Wikilinks load test
+
+[[unfattened striate vein]]
+[[uppity service break]]
+[[worldly missouri river]]
+[[trademarked embouchure]]

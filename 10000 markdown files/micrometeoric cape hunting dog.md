@@ -84,3 +84,10 @@ She's under sentence first but
 Tis so that a
 : Really now that for your evidence we've no longer to follow
 
+
+## Wikilinks load test
+
+[[ornamental burial]]
+[[two-handed national bank]]
+[[unsinkable sea holm]]
+[[standby groove]]

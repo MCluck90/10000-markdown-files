@@ -82,3 +82,10 @@ She'd soon make it away without
 If any pepper when
 : Poor little queer little puppy it chose to sink into alarm in managing
 
+
+## Wikilinks load test
+
+[[reassuring crinoidea]]
+[[communal reaumur scale]]
+[[ad hominem lockjaw]]
+[[rapacious omnibus]]

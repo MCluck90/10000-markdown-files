@@ -86,3 +86,10 @@ Write that it's generally a
 Beau ootiful Soo oop of feet
 : Sounds of em together.
 
+
+## Wikilinks load test
+
+[[undoable trapping]]
+[[hammy payment]]
+[[spice-scented bibliographer]]
+[[prenatal spotted crake]]

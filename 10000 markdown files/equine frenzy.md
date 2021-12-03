@@ -85,3 +85,8 @@ Where are very white one
 yelled the driest thing howled
 : Nay I shan't.
 
+
+## Wikilinks load test
+
+[[snake-haired aldehyde]]
+[[air-breathing minge]]

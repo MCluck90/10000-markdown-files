@@ -85,3 +85,11 @@ she took a timid voice
 sighed wearily.
 : And she's the goose.
 
+
+## Wikilinks load test
+
+[[cod steamship line]]
+[[inhospitable qum]]
+[[nauseous elf]]
+[[hand-operated winter crookneck squash]]
+[[mismated kennewick]]

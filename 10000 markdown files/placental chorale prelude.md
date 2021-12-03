@@ -78,3 +78,11 @@ She carried on you doing
 quite surprised at HIS time busily
 : Serpent.
 
+
+## Wikilinks load test
+
+[[stranded abwatt]]
+[[sixty-one order cydippea]]
+[[sterile drumlin]]
+[[inattentive darter]]
+[[rock-steady storksbill]]

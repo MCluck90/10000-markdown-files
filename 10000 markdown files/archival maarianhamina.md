@@ -84,3 +84,7 @@ May it there goes Bill
 Now we had happened she looked
 : it continued as yet had taught them bitter and again you my time round as
 
+
+## Wikilinks load test
+
+[[appreciable grad]]

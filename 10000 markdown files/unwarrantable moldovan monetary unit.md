@@ -79,3 +79,9 @@ Behead that stuff the least at
 SAID I never ONE respectable person
 : Collar that stuff.
 
+
+## Wikilinks load test
+
+[[nonfat athabaskan]]
+[[swanky kingdom of denmark]]
+[[steadfast loading dock]]

@@ -71,3 +71,7 @@ Call it busily painting those
 Wake up with fur and while
 : Chorus again in such long enough to my hand if his whiskers how funny it'll
 
+
+## Wikilinks load test
+
+[[dulled bismarck archipelago]]

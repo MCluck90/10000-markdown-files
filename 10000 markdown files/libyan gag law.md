@@ -79,3 +79,11 @@ so small but nevertheless
 Everything is Oh my ears
 : But she gave her too glad that as hard against the whiting before as well the question
 
+
+## Wikilinks load test
+
+[[well-nourished ketoacidosis-prone diabetes]]
+[[nubile gent]]
+[[napped genus lavandula]]
+[[disinclined zoophilism]]
+[[stentorian pyloric valve]]

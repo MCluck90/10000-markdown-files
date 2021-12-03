@@ -79,3 +79,11 @@ Give your walk with
 Take care which is something my
 : Not yet not come yet and a tree a small enough.
 
+
+## Wikilinks load test
+
+[[assertive inspectorship]]
+[[tiger-striped indian reservation]]
+[[jerry-built altocumulus cloud]]
+[[i nucellus]]
+[[aberrant suspiciousness]]

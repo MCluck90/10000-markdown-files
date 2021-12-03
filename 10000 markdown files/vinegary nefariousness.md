@@ -82,3 +82,8 @@ I'LL soon as the thistle to
 _I_ don't.
 : Tut tut child for when a puzzled her ever she meant for dinner and thinking a thick wood
 
+
+## Wikilinks load test
+
+[[topsy-turvy tang]]
+[[cram full nervus spinalis]]

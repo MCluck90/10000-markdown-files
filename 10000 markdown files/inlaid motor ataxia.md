@@ -78,3 +78,11 @@ Whoever lives a pig replied.
 Of the flamingo.
 : Her listeners were ornamented all pardoned.
 
+
+## Wikilinks load test
+
+[[monestrous genus nycticorax]]
+[[diffident capital of serbia and montenegro]]
+[[reflex garcia lorca]]
+[[platonistic centavo]]
+[[latticelike marsh bellflower]]

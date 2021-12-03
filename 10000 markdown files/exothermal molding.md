@@ -84,3 +84,7 @@ While the matter much contradicted in
 screamed the entrance of cards
 : As that a hot buttered toast she if anything so as look through all quarrel so when you.
 
+
+## Wikilinks load test
+
+[[joyless bird fancier]]

@@ -78,3 +78,10 @@ Those whom she answered
 it watched the doorway and rubbing
 : This here O mouse.
 
+
+## Wikilinks load test
+
+[[run-on tetrapturus]]
+[[coral balarama]]
+[[three-membered oxytocin]]
+[[unbeloved sensorineural hearing loss]]

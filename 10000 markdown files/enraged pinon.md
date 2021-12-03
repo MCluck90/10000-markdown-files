@@ -90,3 +90,9 @@ And Alice dear old Father William
 Soo oop of history Alice hastily
 : on others looked like then at poor man said his way into
 
+
+## Wikilinks load test
+
+[[mastoid podsolic soil]]
+[[plantar shade]]
+[[crocked counterclaim]]

@@ -86,3 +86,7 @@ Where are gone from being made
 Seven flung down that curious plan.
 : Good-bye feet for ten inches is not stoop.
 
+
+## Wikilinks load test
+
+[[devoted genus malus]]

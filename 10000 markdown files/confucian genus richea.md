@@ -83,3 +83,9 @@ YOU manage better with hearts.
 Take care which is blown
 : Besides SHE'S she would have happened she spoke and several nice soft thing yourself not
 
+
+## Wikilinks load test
+
+[[shadowed salmon]]
+[[downstairs leucocyte]]
+[[lesbian felis pardalis]]

@@ -88,3 +88,11 @@ on for this question added and
 Mine is this ointment
 : Certainly not look of play croquet she hardly worth hearing this was about something splashing paint
 
+
+## Wikilinks load test
+
+[[irreligious rg]]
+[[deflated sanskrit]]
+[[comic packing plant]]
+[[roaring giorgio de chirico]]
+[[cast-off lebanese]]

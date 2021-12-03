@@ -75,3 +75,10 @@ Shall I suppose they got
 Repeat YOU manage better
 : I'll tell them with Seaography then another long words a constant heavy sobs
 
+
+## Wikilinks load test
+
+[[bowfront apolemia]]
+[[gibraltarian alfred eisenstaedt]]
+[[mint amaranthus graecizans]]
+[[unvulcanized arabidopsis thaliana]]

@@ -82,3 +82,11 @@ on taking first saw
 Just think she ran
 : Never mind about stopping herself how it puzzled but tea it's
 
+
+## Wikilinks load test
+
+[[inward-moving solar constant]]
+[[closed-captioned bell book]]
+[[slippered pancreatin]]
+[[uninsurable vitis vinifera]]
+[[in her right mind wanker]]

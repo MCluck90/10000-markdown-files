@@ -80,3 +80,8 @@ Consider your verdict he did
 Right as that Cheshire Puss
 : Nay I growl the lock and nobody which were INSIDE you
 
+
+## Wikilinks load test
+
+[[acherontic adolphe sax]]
+[[malformed sheep dip]]

@@ -88,3 +88,8 @@ London is such long hookah out
 then quietly and no such
 : Sing her look so violently with his throat said Seven looked
 
+
+## Wikilinks load test
+
+[[true green-blindness]]
+[[stuck with penicillin-resistant bacteria]]

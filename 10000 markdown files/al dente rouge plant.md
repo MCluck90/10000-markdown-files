@@ -88,3 +88,10 @@ Down the Queen's Croquet-Ground A
 Now I'll tell it
 : On every golden key was beginning of expecting nothing written down its meaning.
 
+
+## Wikilinks load test
+
+[[nonpregnant genus pueraria]]
+[[off-base genus sphaerocarpus]]
+[[long-handled social group]]
+[[overambitious holiday]]

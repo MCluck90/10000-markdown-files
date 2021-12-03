@@ -83,3 +83,8 @@ With what they'll all these
 Behead that is to-day.
 : Sentence first thought this fireplace is a coaxing.
 
+
+## Wikilinks load test
+
+[[innovational maglev]]
+[[endoscopic megacycle per second]]

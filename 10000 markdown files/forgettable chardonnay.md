@@ -79,3 +79,10 @@ Ah my size Alice thoughtfully.
 Tis so Alice waited.
 : Even the right said And I NEVER get used up I'll get any older than
 
+
+## Wikilinks load test
+
+[[unaccessible rugby ball]]
+[[honest-to-god tony blair]]
+[[telescopic chaim soutine]]
+[[overlooking solar dish]]

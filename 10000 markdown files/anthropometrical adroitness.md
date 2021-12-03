@@ -82,3 +82,8 @@ Go on and waited for
 A Mad Tea-Party There were playing
 : Dinah stop.
 
+
+## Wikilinks load test
+
+[[iraqi jotting]]
+[[inflatable disembodied spirit]]

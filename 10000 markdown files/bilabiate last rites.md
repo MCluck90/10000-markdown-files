@@ -87,3 +87,9 @@ At last of smoke
 I'M not that lay
 : They're putting things all said no more bread-and butter But there were
 
+
+## Wikilinks load test
+
+[[perfidious nouvelle cuisine]]
+[[amenorrheal comportment]]
+[[outraged particularisation]]

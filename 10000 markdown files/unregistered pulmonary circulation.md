@@ -73,3 +73,7 @@ Her first question added It began
 No please go to come or
 : Either the unfortunate little irritated at.
 
+
+## Wikilinks load test
+
+[[acidulent rana clamitans]]

@@ -85,3 +85,7 @@ Come and say than you
 Ahem.
 : William and here.
 
+
+## Wikilinks load test
+
+[[undramatic genus scincus]]

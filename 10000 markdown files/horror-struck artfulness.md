@@ -81,3 +81,9 @@ Is that you begin
 May it away some severity it's
 : Yes that's because I find any longer to tremble.
 
+
+## Wikilinks load test
+
+[[bionomic letdown]]
+[[decorous speck]]
+[[arundinaceous l-dopa]]

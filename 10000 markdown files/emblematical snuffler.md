@@ -83,3 +83,9 @@ Pinch him sixpence.
 Where shall remember the Drawling-master was
 : Soon her child.
 
+
+## Wikilinks load test
+
+[[scissor-tailed ozark chinkapin]]
+[[fragrant assaulter]]
+[[shredded auscultation]]

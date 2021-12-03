@@ -73,3 +73,9 @@ So they looked like an egg.
 he spoke we went hunting
 : wow.
 
+
+## Wikilinks load test
+
+[[chaldee leftfield]]
+[[lukewarm sacred scripture]]
+[[epitheliod secular]]

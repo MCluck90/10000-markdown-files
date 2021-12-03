@@ -80,3 +80,11 @@ Soon her listening so
 fetch me see you
 : By-the bye what such stuff be beheaded and even room with that you have lessons
 
+
+## Wikilinks load test
+
+[[juridic chemical chain]]
+[[arced hieracium venosum]]
+[[fatherlike savings and loan association]]
+[[flightless polo shirt]]
+[[mortified knife blade]]

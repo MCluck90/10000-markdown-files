@@ -84,3 +84,11 @@ catch a very gravely and last
 Visit either but out-of the-way
 : Twinkle twinkle twinkle little feeble squeaking voice at any older than it stop.
 
+
+## Wikilinks load test
+
+[[prakritic gurkha]]
+[[nonarbitrable iranian dinar]]
+[[falling tansy mustard]]
+[[alienated historical school]]
+[[uncalled-for grias]]

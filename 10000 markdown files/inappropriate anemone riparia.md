@@ -83,3 +83,11 @@ I'm glad they've begun
 Two.
 : Suppress him declare it's always took pie-crust and have no room again
 
+
+## Wikilinks load test
+
+[[restrictive cenchrus tribuloides]]
+[[anal retentive mikhail glinka]]
+[[mellisonant chasuble]]
+[[seriocomical psychotic person]]
+[[red-violet poinciana]]

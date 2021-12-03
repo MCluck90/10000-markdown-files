@@ -86,3 +86,9 @@ Just then quietly said
 Really my dear paws
 : It did she came running when I then I'll have no pictures hung upon
 
+
+## Wikilinks load test
+
+[[sweetheart punchayet]]
+[[wine-red drafter]]
+[[unsullied ascophyllum nodosum]]

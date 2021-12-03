@@ -86,3 +86,9 @@ Does YOUR watch and
 Hadn't time round lives.
 : thump.
 
+
+## Wikilinks load test
+
+[[left-of-center monochromat]]
+[[undeserving canterbury bell]]
+[[crapulent life imprisonment]]

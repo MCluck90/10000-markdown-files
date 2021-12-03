@@ -89,3 +89,11 @@ Be off without being that did
 either way and take
 : Soup does yer honour.
 
+
+## Wikilinks load test
+
+[[microbic deerberry]]
+[[cinematic ball cock]]
+[[diverse beech marten]]
+[[norse tritanopia]]
+[[distributed garget]]

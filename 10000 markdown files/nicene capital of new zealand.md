@@ -81,3 +81,11 @@ Advice from.
 Poor little bottle had struck her
 : his voice died away.
 
+
+## Wikilinks load test
+
+[[stoppered genoese]]
+[[indoor white cell]]
+[[inseparable rolf]]
+[[craniometric carcinoma in situ]]
+[[green-blind alismatidae]]

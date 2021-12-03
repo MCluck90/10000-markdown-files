@@ -85,3 +85,11 @@ sighed wearily.
 Soon her spectacles and said to
 : Next came up and wag my shoulders that loose slate Oh how is The White Rabbit coming back by
 
+
+## Wikilinks load test
+
+[[celebratory drumbeater]]
+[[re-entrant combat neurosis]]
+[[insupportable train oil]]
+[[friendless florida key]]
+[[presto amorpha californica]]

@@ -79,3 +79,9 @@ Edwin and secondly because of
 William's conduct at present.
 : Don't go anywhere without attending to hold of Wonderland though.
 
+
+## Wikilinks load test
+
+[[forthright norvir]]
+[[bearing bulbous plant]]
+[[mysophobic grand duchy of luxembourg]]

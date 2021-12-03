@@ -78,3 +78,10 @@ here and muchness did it
 sh.
 : sighed wearily.
 
+
+## Wikilinks load test
+
+[[roundabout submachine gun]]
+[[self actual damages]]
+[[corymbose agape]]
+[[recent nagasaki]]

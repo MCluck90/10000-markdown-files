@@ -86,3 +86,10 @@ they COULD.
 I'd gone to do well
 : repeated their heads off.
 
+
+## Wikilinks load test
+
+[[algid holding pattern]]
+[[unchristian temporiser]]
+[[appellative short-leaf pine]]
+[[allegro chlorination]]

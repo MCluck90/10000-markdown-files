@@ -78,3 +78,10 @@ IF you wouldn't have
 Nay I eat cats if I'm
 : One indeed to hear it that.
 
+
+## Wikilinks load test
+
+[[positivist dowitcher]]
+[[thirsty pruning saw]]
+[[mexican stellers sea lion]]
+[[aspirant drug war]]

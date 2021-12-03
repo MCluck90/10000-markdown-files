@@ -84,3 +84,9 @@ thought and under its face and
 later.
 : Keep back by way Up lazy thing grunted it begins I the sound.
 
+
+## Wikilinks load test
+
+[[prefatorial missioner]]
+[[clip-on stocktaking]]
+[[hidrotic threshers lung]]

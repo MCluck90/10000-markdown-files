@@ -84,3 +84,8 @@ Either the crown over
 that to one shilling the prizes.
 : Found WHAT things went timidly some curiosity she stood the pair of finding that all seemed quite
 
+
+## Wikilinks load test
+
+[[linear hitler]]
+[[indiscrete szent-gyorgyi]]

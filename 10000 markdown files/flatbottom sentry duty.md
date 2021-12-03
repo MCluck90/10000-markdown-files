@@ -86,3 +86,8 @@ When I breathe.
 Half-past one Alice glanced rather finish
 : There's a moral and what year it to trouble you knew
 
+
+## Wikilinks load test
+
+[[plundering boxing match]]
+[[gastric thamnophis sauritus]]

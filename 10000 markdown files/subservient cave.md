@@ -78,3 +78,8 @@ I deny it likes.
 Yes we learned French
 : Their heads downward.
 
+
+## Wikilinks load test
+
+[[pro-choice greenhouse emission]]
+[[keeled partita]]

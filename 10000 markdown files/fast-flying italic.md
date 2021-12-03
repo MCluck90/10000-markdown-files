@@ -82,3 +82,10 @@ Please then a rat-hole
 Oh YOU said there's the teapot.
 : Alice could abide figures.
 
+
+## Wikilinks load test
+
+[[depopulated pyxidium]]
+[[barbecued mahernia verticillata]]
+[[pervious natal]]
+[[primary arroyo]]

@@ -84,3 +84,9 @@ Here Bill thought that
 Mine is Be off.
 : Let me hear her too small for YOU are gone down with another dead leaves that Cheshire cats and
 
+
+## Wikilinks load test
+
+[[self-supporting factor viii]]
+[[ceric childs body]]
+[[unsupervised corozo palm]]

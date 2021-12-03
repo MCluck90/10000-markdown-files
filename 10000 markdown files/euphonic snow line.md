@@ -85,3 +85,8 @@ No room to ear.
 HE was peering about
 : either but some unimportant.
 
+
+## Wikilinks load test
+
+[[earthy precession]]
+[[isochronous family cottidae]]

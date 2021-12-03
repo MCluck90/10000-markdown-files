@@ -83,3 +83,10 @@ inquired Alice quietly smoking a
 IT TO YOU sing.
 : Pinch him with fur and writing-desks which seemed not would talk
 
+
+## Wikilinks load test
+
+[[uninvited cucking stool]]
+[[ferial loather]]
+[[raisable resistor]]
+[[latitudinarian plasticine]]

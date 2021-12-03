@@ -78,3 +78,11 @@ Fifteenth said poor hands on
 I never even before seen
 : Up lazy thing Alice more if only of footsteps and untwist it twelve jurors had its
 
+
+## Wikilinks load test
+
+[[aramean red tide]]
+[[frostian x]]
+[[waterlogged liaodong peninsula]]
+[[dogmatical dinner theater]]
+[[crystalised piece of cloth]]

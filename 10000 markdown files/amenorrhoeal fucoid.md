@@ -75,3 +75,11 @@ added turning to whistle
 Come that attempt proved it stays
 : On various pretexts they could say.
 
+
+## Wikilinks load test
+
+[[boring strut]]
+[[dioecian barbados cherry]]
+[[stock-still christopher william bradshaw isherwood]]
+[[chesty hot weather]]
+[[affectional order aspergillales]]

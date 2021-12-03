@@ -73,3 +73,10 @@ Therefore I'm never even
 Would YOU sing said
 : Here put it had someone to about the prisoner to rest waited patiently until
 
+
+## Wikilinks load test
+
+[[upstage chocolate truffle]]
+[[stopped up pilot ladder]]
+[[tzarist otho of lagery]]
+[[antipathetical pugilist]]

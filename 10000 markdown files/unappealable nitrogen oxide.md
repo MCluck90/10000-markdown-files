@@ -86,3 +86,8 @@ here before Sure it was
 IT the unfortunate guests had been
 : it it how large letters.
 
+
+## Wikilinks load test
+
+[[fisheye turban]]
+[[fain springing cow]]

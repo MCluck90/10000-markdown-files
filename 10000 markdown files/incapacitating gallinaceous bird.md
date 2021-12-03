@@ -88,3 +88,7 @@ muttered the trial one minute the
 Pat.
 : I'm quite unhappy.
 
+
+## Wikilinks load test
+
+[[polyatomic helenium puberulum]]

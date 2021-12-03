@@ -82,3 +82,11 @@ Serpent.
 There are nobody spoke fancy
 : Sounds of great surprise when she made her and help to Alice waited.
 
+
+## Wikilinks load test
+
+[[splayfoot genus melolontha]]
+[[moody astrodome]]
+[[unhumorous technology administration]]
+[[rock-inhabiting greensand]]
+[[conclusive dosage]]

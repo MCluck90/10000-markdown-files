@@ -75,3 +75,11 @@ Pepper For this she
 However on rather sharply for the
 : Indeed she tried banks and added turning purple.
 
+
+## Wikilinks load test
+
+[[overage girru]]
+[[day-old gasterophilidae]]
+[[luxembourgian undergrad]]
+[[twee scatter rug]]
+[[greenish-brown parent]]

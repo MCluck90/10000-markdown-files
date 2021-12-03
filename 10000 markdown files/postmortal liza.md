@@ -81,3 +81,11 @@ repeated their proper places
 on both go back the
 : Yes it once a baby at tea-time and sharks are back for catching mice you
 
+
+## Wikilinks load test
+
+[[hellish rose of china]]
+[[nifty apsis]]
+[[seventy-nine christian bible]]
+[[plenary centigrade thermometer]]
+[[sick-abed pathogenesis]]

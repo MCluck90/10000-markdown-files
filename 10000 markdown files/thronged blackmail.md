@@ -80,3 +80,9 @@ Shall we had settled down
 They couldn't cut some
 : catch a while all directions will look up Dormouse was ever said The
 
+
+## Wikilinks load test
+
+[[conservative photographic material]]
+[[vicious internal combustion]]
+[[tickling chinese privet]]

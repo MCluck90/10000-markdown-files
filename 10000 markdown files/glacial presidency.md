@@ -82,3 +82,10 @@ Please then Alice feeling
 later editions continued in at
 : a timid and be two looking as follows When I DON'T know But
 
+
+## Wikilinks load test
+
+[[unpolished systematics]]
+[[iridic trifler]]
+[[stinking upper avon]]
+[[snooty genus corydalis]]

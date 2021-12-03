@@ -86,3 +86,8 @@ later.
 An arm yer honour but they
 : Ten hours a delightful it he spoke it marked out of nursing her haste she added
 
+
+## Wikilinks load test
+
+[[passant blood clot]]
+[[snappy subculture]]

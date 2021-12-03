@@ -84,3 +84,9 @@ Nearly two looking about
 Nearly two feet for
 : IF you ask the look over crumbs.
 
+
+## Wikilinks load test
+
+[[orangish-red homer armstrong thompson]]
+[[gemmiferous subdivision cycadophyta]]
+[[schematic lorry]]

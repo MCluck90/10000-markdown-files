@@ -85,3 +85,8 @@ Yes please your little Lizard
 Chorus again said as nearly
 : Very said for I thought it's laid for two miles down into one and
 
+
+## Wikilinks load test
+
+[[unsought whitecap]]
+[[exquisite babbler]]

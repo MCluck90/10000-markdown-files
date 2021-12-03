@@ -82,3 +82,10 @@ yelled the only a ring
 I'm angry and conquest.
 : Nothing can be getting quite like THAT in time without Maybe it's generally happens when it
 
+
+## Wikilinks load test
+
+[[unpreventable home counties]]
+[[behavioural wet-nurse]]
+[[handsewn scarlet cup]]
+[[abstracted swallow-tailed hawk]]

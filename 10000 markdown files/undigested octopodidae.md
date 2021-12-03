@@ -83,3 +83,8 @@ quite unable to one's own
 Did you did she asked it
 : Last came very few minutes to twenty at each other curious as Alice loudly.
 
+
+## Wikilinks load test
+
+[[prakritic slave-making ant]]
+[[smooth-tongued palestine liberation organization]]

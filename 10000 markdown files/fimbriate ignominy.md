@@ -80,3 +80,7 @@ CHORUS.
 They lived much pleasanter
 : ALICE'S LOVE.
 
+
+## Wikilinks load test
+
+[[showery paragrapher]]

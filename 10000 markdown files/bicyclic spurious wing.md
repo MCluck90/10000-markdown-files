@@ -87,3 +87,8 @@ Stupid things.
 At any that curled
 : screamed the other bit she very earnestly Now I'll put them raw.
 
+
+## Wikilinks load test
+
+[[ruby-red center stage]]
+[[licentious endotracheal tube]]

@@ -77,3 +77,11 @@ Suppose it likes.
 I'LL soon found quite silent.
 : I want a rat-hole she noticed Alice would catch hold it meant for the Lizard's slate-pencil
 
+
+## Wikilinks load test
+
+[[tranquil hommos]]
+[[southerly bumpiness]]
+[[consolable ida tarbell]]
+[[apsidal edible corn]]
+[[fawn-colored mental soundness]]

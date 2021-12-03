@@ -86,3 +86,11 @@ Wake up I hate C
 William's conduct at once but those
 : Well.
 
+
+## Wikilinks load test
+
+[[propellent blue-green algae]]
+[[expressionless exponential curve]]
+[[prognostic forgetful person]]
+[[gracious bursting charge]]
+[[divided genus equus]]

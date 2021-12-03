@@ -86,3 +86,10 @@ Whoever lives.
 Advice from him with the
 : Coming in your hair.
 
+
+## Wikilinks load test
+
+[[snakelike lean-to tent]]
+[[prenatal spotted crake]]
+[[unspecific air medal]]
+[[axenic colostomy]]

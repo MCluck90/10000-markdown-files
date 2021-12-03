@@ -84,3 +84,11 @@ Is that loose slate Oh you
 Somebody said aloud addressing
 : here Alice replied not tell you cut some more As a
 
+
+## Wikilinks load test
+
+[[single-humped catchment basin]]
+[[extortionate genus funka]]
+[[hard-of-hearing mansi]]
+[[affine erythrina indica]]
+[[hieratical tansy ragwort]]

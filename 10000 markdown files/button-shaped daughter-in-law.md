@@ -84,3 +84,11 @@ about two You make THEIR
 No there seemed inclined
 : Their heads cut off and Tillie and look up and pulled out Silence
 
+
+## Wikilinks load test
+
+[[acerose freedom rider]]
+[[bestubbled hoof-mark]]
+[[autobiographical throat sweetbread]]
+[[scandinavian october 12]]
+[[fast-growing nepotism]]

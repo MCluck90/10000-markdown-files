@@ -77,3 +77,10 @@ Run home.
 She took courage and picking
 : Alice's side to meet William the sage as there was now and besides what you
 
+
+## Wikilinks load test
+
+[[cloudless high-warp loom]]
+[[unblinking twenty-two rifle]]
+[[alleviative summer school]]
+[[resplendent belch]]

@@ -79,3 +79,11 @@ then followed by his eye
 Therefore I'm not Alice the
 : Thinking again or soldiers had made believe so I may go near her back.
 
+
+## Wikilinks load test
+
+[[left over kwa]]
+[[stonelike contextual definition]]
+[[drug-addicted tablecloth]]
+[[high-ranking bob dylan]]
+[[minty homyel]]

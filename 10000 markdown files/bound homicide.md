@@ -80,3 +80,7 @@ Imagine her other queer to half-past
 then treading on saying in
 : persisted.
 
+
+## Wikilinks load test
+
+[[carroty milking stool]]

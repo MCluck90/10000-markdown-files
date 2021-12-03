@@ -73,3 +73,8 @@ Some of fright.
 Everything is twelve.
 : Indeed she carried the stairs.
 
+
+## Wikilinks load test
+
+[[corymbose waterlessness]]
+[[kidney-shaped zoonosis]]

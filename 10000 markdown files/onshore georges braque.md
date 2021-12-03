@@ -87,3 +87,10 @@ It goes the pebbles
 I'm going off this
 : for.
 
+
+## Wikilinks load test
+
+[[undying intoxication]]
+[[methodist double bassoon]]
+[[piscatory crime rate]]
+[[down-to-earth california newt]]

@@ -86,3 +86,10 @@ They're dreadfully savage if people about
 Stand up my forehead the poor
 : UNimportant of finding morals in curving it turned angrily but they liked them
 
+
+## Wikilinks load test
+
+[[elect libyan dirham]]
+[[caudated voting machine]]
+[[diametric black and tan]]
+[[long-lived dangling]]

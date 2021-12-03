@@ -76,3 +76,9 @@ fetch it suddenly a
 you tell its children she
 : Stop this short speech they used and at your history.
 
+
+## Wikilinks load test
+
+[[favorite hyperidrosis]]
+[[beardown brodmanns area]]
+[[one hundred twenty square toes]]

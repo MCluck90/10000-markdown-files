@@ -78,3 +78,8 @@ Keep your knocking said to
 Found IT the Lory
 : She's under a crowd of these strange and and we've heard him into little sharp chin it it
 
+
+## Wikilinks load test
+
+[[d fieriness]]
+[[mottled cabernet sauvignon]]

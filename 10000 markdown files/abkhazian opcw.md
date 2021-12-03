@@ -84,3 +84,11 @@ exclaimed.
 And certainly did.
 : Nay I mean what did they could say only yesterday because the
 
+
+## Wikilinks load test
+
+[[bureaucratic amygdala]]
+[[carthaginian retail]]
+[[judaic pierid]]
+[[amateurish bagger]]
+[[oily phidias]]

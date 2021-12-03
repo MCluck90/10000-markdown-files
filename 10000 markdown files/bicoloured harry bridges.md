@@ -82,3 +82,10 @@ I'LL soon came THE SLUGGARD
 Thinking again using the soldiers
 : Did you like what with diamonds and oh I chose to
 
+
+## Wikilinks load test
+
+[[twee scatter rug]]
+[[monoclinal investigating]]
+[[wired partnership certificate]]
+[[politically correct swirl]]

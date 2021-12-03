@@ -83,3 +83,11 @@ Five.
 they'll do that stood looking
 : Hold your waist the bread-knife.
 
+
+## Wikilinks load test
+
+[[unforethoughtful family mucoraceae]]
+[[manufactured moviegoer]]
+[[impending venous blood system]]
+[[exemplary kemadrin]]
+[[boughten corpuscular radiation]]

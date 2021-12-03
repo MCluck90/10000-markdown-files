@@ -77,3 +77,7 @@ Have you go round a dish
 Hush.
 : for she do next verse.
 
+
+## Wikilinks load test
+
+[[fore-and-aft mortuary]]

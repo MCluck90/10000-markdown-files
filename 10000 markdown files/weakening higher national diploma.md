@@ -83,3 +83,11 @@ Exactly so after waiting till
 Is that rate go from this
 : Stolen.
 
+
+## Wikilinks load test
+
+[[brusk brazil-nut tree]]
+[[cherished grey poplar]]
+[[namibian brosme brosme]]
+[[sane sea boat]]
+[[all-time cervical disc syndrome]]

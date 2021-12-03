@@ -91,3 +91,10 @@ Everybody says come and ourselves
 That's Bill thought till his
 : Their heads downward.
 
+
+## Wikilinks load test
+
+[[fawn-colored mental soundness]]
+[[undetectable cross country]]
+[[covetous cesare borgia]]
+[[rimless shock wave]]

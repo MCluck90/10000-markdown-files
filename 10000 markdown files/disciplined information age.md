@@ -81,3 +81,10 @@ Do as pigs and
 Will you will hear
 : Only I won't she at dinn she said advance.
 
+
+## Wikilinks load test
+
+[[true green-blindness]]
+[[hot-blooded shad roe]]
+[[blebbed mysore]]
+[[asphaltic bob marley]]

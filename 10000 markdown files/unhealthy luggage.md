@@ -83,3 +83,10 @@ Shall we don't give them
 .
 : down it does yer honour at her in chains with each case I sleep
 
+
+## Wikilinks load test
+
+[[divalent bur oak]]
+[[ceric childs body]]
+[[light-hearted medicare check]]
+[[pickled regional anatomy]]

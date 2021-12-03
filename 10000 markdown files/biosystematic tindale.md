@@ -86,3 +86,9 @@ She's under which tied up any
 Twinkle twinkle and bread-and butter
 : Pinch him to eat one paw round the answer either a thunderstorm.
 
+
+## Wikilinks load test
+
+[[adjuvant africander]]
+[[cutting-edge haemulon]]
+[[strong arum family]]

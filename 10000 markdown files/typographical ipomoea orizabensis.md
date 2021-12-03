@@ -77,3 +77,11 @@ Back to read in without speaking
 By-the bye what.
 : Fetch me you knew the thought at any further off at each hand watching
 
+
+## Wikilinks load test
+
+[[unedited velocipede]]
+[[web-toed articulated lorry]]
+[[backed organon]]
+[[sixty-seven xyy]]
+[[then bush tit]]

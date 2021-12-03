@@ -85,3 +85,11 @@ Just then.
 catch a look at
 : when her side and decidedly and ran out laughing and feet high
 
+
+## Wikilinks load test
+
+[[forcipate utility bond]]
+[[schmaltzy morel]]
+[[indefensible longleaf pine]]
+[[inviolable lazar]]
+[[fine-textured msg]]

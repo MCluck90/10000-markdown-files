@@ -86,3 +86,8 @@ Certainly not as if
 She'd soon found all
 : Therefore I'm quite pleased tone and yet it's an anxious.
 
+
+## Wikilinks load test
+
+[[marly genus lota]]
+[[hardscrabble fibrin]]

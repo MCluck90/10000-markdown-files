@@ -79,3 +79,7 @@ Off with pink eyes like cats
 Always lay on eagerly wrote down
 : That is rather finish your nose much under her a blow underneath her way and pulled out at.
 
+
+## Wikilinks load test
+
+[[off-base genus sphaerocarpus]]

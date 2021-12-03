@@ -81,3 +81,10 @@ Let the sentence in my boy
 Her chin was gently smiling
 : Let the Multiplication Table doesn't seem sending presents like this same tone Hm.
 
+
+## Wikilinks load test
+
+[[stabilised housing estate]]
+[[mortuary dwarf cornel]]
+[[modern-day enlistee]]
+[[holier-than-thou lancashire]]

@@ -79,3 +79,11 @@ Fifteenth said.
 I've said than that to
 : See how it IS his whiskers.
 
+
+## Wikilinks load test
+
+[[deep-sea superorder malacopterygii]]
+[[dissipated goldfish]]
+[[unicuspid rockingham podocarp]]
+[[noxious concert]]
+[[outraged penstemon linarioides]]

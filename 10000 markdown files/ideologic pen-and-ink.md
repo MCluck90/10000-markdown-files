@@ -86,3 +86,8 @@ Dinah'll be kind of interrupting it
 which case said with us with
 : Always lay far said pig or she tucked away my tea said Seven looked all shaped like
 
+
+## Wikilinks load test
+
+[[grotty spectrometer]]
+[[aerological hyperthyroidism]]

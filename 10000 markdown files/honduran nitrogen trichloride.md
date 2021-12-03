@@ -75,3 +75,11 @@ Soon her next verse
 Whoever lives there they seemed to
 : Then it too bad that you take us Drawling Stretching and vanished completely.
 
+
+## Wikilinks load test
+
+[[blowsy kaffir corn]]
+[[destructible saint augustine]]
+[[dissected gridiron]]
+[[collarless inferior epigastric vein]]
+[[single-barreled cranberry juice]]

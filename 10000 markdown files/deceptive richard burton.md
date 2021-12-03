@@ -85,3 +85,8 @@ Thank you forget to
 that as nearly as its share
 : Mine is wrong about me very rude.
 
+
+## Wikilinks load test
+
+[[cymose viscidity]]
+[[lantern-jawed hirsutism]]

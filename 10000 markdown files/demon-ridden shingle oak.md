@@ -79,3 +79,11 @@ from his book written up
 Only a dog's not going
 : Alas.
 
+
+## Wikilinks load test
+
+[[contemptuous 10000]]
+[[apostate partial eclipse]]
+[[air-dry august plum]]
+[[limp buttermilk]]
+[[deadlocked phalaenopsis amabilis]]

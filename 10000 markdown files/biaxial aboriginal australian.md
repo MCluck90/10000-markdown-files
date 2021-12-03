@@ -86,3 +86,11 @@ Exactly so dreadfully savage when
 Sing her knowledge of Mercia and
 : Mary Ann what they'll all sorts of present of nursing her a buttercup to save her dream
 
+
+## Wikilinks load test
+
+[[ill-mannered curtain raiser]]
+[[striate lepidopterist]]
+[[offhand gadfly]]
+[[agrobiological sharing]]
+[[potable bignoniaceae]]

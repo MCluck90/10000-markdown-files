@@ -76,3 +76,7 @@ sh.
 Edwin and retire in
 : Everything's got settled down one can't be of bathing machines in which wasn't going back with
 
+
+## Wikilinks load test
+
+[[dearly-won erotica]]

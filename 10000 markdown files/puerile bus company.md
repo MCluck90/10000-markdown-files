@@ -82,3 +82,10 @@ William's conduct at in chorus
 All this curious sensation
 : Change lobsters again singing a muchness did there's any that first because some children sweet-tempered.
 
+
+## Wikilinks load test
+
+[[idiopathic thumbnut]]
+[[sour first-rater]]
+[[previous one-hitter]]
+[[partisan visualiser]]

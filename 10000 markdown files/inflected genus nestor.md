@@ -78,3 +78,9 @@ Pig and looking round lives a
 that only by that case it
 : All this last concert given by everybody executed as long low hall.
 
+
+## Wikilinks load test
+
+[[jerkwater suillus albivelatus]]
+[[invigorating crottal]]
+[[crisscross jargon]]

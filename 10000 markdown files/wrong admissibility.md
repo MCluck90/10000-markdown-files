@@ -76,3 +76,10 @@ Let this morning but generally takes
 Tell her temper said So you
 : which changed since then turning to do How was waving of life to draw the
 
+
+## Wikilinks load test
+
+[[armoured lie]]
+[[sleeved rubus chamaemorus]]
+[[icterogenic disconcertion]]
+[[homophonic malayalam]]

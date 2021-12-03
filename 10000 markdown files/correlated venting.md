@@ -80,3 +80,11 @@ HEARTHRUG NEAR THE LITTLE
 Will you again as
 : later.
 
+
+## Wikilinks load test
+
+[[tricked-out mirish]]
+[[straight balaena mysticetus]]
+[[neo-lamarckian yagi]]
+[[cambial muffle]]
+[[consolable genus thiobacillus]]

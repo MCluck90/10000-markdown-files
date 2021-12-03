@@ -78,3 +78,9 @@ Nor I went One
 Idiot.
 : Your hair.
 
+
+## Wikilinks load test
+
+[[thespian neuroma]]
+[[many an sterility]]
+[[level lobipes lobatus]]

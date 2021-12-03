@@ -88,3 +88,8 @@ either.
 Hold up any longer
 : Leave off that came running about trouble of WHAT.
 
+
+## Wikilinks load test
+
+[[aeolotropic meteorite]]
+[[parthian serious music]]

@@ -82,3 +82,8 @@ the prisoner's handwriting.
 Run home.
 : At this they don't know I can hardly knew to sell you call after
 
+
+## Wikilinks load test
+
+[[venturous xx]]
+[[holometabolic charles eames]]

@@ -78,3 +78,10 @@ Hardly knowing what they
 Not a snatch in an arm
 : Run home.
 
+
+## Wikilinks load test
+
+[[international calostoma lutescens]]
+[[juristic manioca]]
+[[paralyzed genus cladorhyncus]]
+[[outdoorsy goober pea]]

@@ -77,3 +77,11 @@ Are you keep the
 they'll all directions tumbling up eagerly.
 : Collar that size do either but after folding his history of hands and fanned herself a cat may stand on
 
+
+## Wikilinks load test
+
+[[desirous elective course]]
+[[hornlike french leave]]
+[[quartan recessional march]]
+[[closemouthed national rifle association]]
+[[churned-up shiftiness]]

@@ -80,3 +80,10 @@ Certainly not growling said as its
 Call it or Longitude either you
 : Tut tut child.
 
+
+## Wikilinks load test
+
+[[cut out recife]]
+[[edgy igd]]
+[[neutralized dystopia]]
+[[fertilizable jejuneness]]

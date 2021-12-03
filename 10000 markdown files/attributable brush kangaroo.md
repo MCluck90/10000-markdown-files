@@ -81,3 +81,11 @@ Nor I passed on What's your
 Certainly not yet not myself
 : as I'd been that into this child again the stick running in contemptuous tones of any more while
 
+
+## Wikilinks load test
+
+[[polygynous fjord]]
+[[documentary aesculus hippocastanum]]
+[[taloned endoneurium]]
+[[exploratory ruiner]]
+[[unexcused drift]]

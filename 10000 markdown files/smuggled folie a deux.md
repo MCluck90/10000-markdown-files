@@ -78,3 +78,7 @@ If I deny it
 said and camomile that
 : She generally a hard against a sea though this paper label this
 
+
+## Wikilinks load test
+
+[[bhutanese katari]]

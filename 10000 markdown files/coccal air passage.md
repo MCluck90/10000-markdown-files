@@ -80,3 +80,11 @@ Always lay on three
 How brave they'll remember where HAVE
 : All the act of anger as usual.
 
+
+## Wikilinks load test
+
+[[eldest electronic device]]
+[[loyal good authority]]
+[[glacial polyuria]]
+[[sublimated fishing net]]
+[[christlike baldness]]

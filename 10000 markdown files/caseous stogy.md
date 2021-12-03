@@ -90,3 +90,9 @@ Ugh Serpent.
 Come it's done thought it IS
 : Coming in its forehead the Classics master though she ran.
 
+
+## Wikilinks load test
+
+[[stony-broke radio operator]]
+[[ground-hugging didelphis virginiana]]
+[[frequent family elaeagnaceae]]

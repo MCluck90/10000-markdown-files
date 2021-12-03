@@ -83,3 +83,11 @@ Really now let me
 Explain all except the treacle
 : Beautiful beauti FUL SOUP.
 
+
+## Wikilinks load test
+
+[[disclosed ectoproct]]
+[[enclosed luging]]
+[[cumuliform thromboplastin]]
+[[monaural cadmium yellow]]
+[[constituent sagacity]]

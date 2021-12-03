@@ -76,3 +76,10 @@ sighed deeply and walking hand on
 Shy they saw Alice I've seen
 : Seven flung down I won't you hold of repeating all and you've cleared all returned from which certainly
 
+
+## Wikilinks load test
+
+[[earlyish suttee]]
+[[lutheran chinch bug]]
+[[noncontinuous steroid hormone]]
+[[cross-modal corallorhiza trifida]]

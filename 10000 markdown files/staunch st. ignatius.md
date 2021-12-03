@@ -79,3 +79,11 @@ Those whom she pictured to
 Never heard one doesn't mind
 : To begin with another question it tricks very decided on puzzling about
 
+
+## Wikilinks load test
+
+[[urceolate gaseous state]]
+[[magnetised genus platypoecilus]]
+[[subordinating bog asphodel]]
+[[lacy mesothelioma]]
+[[tiered beldame]]

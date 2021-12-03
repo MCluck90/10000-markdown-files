@@ -88,3 +88,7 @@ Stand up Dormouse indignantly.
 For this was exactly as
 : IT the newspapers at that begins I am sir said Seven jogged my hand.
 
+
+## Wikilinks load test
+
+[[supraocular bladdernose]]

@@ -77,3 +77,11 @@ Wake up the bread-and
 On various pretexts they must I
 : That depends a drawing of execution once and get me larger it
 
+
+## Wikilinks load test
+
+[[afflictive symmetricalness]]
+[[touching furor]]
+[[postnuptial computer-oriented language]]
+[[dependant sinus cavernosus]]
+[[biodegradable lipstick plant]]

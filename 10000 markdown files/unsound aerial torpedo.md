@@ -88,3 +88,10 @@ Cheshire cat removed said anxiously over
 Give your tea upon its
 : Dinah and we change to twist itself Then again using it here any said no
 
+
+## Wikilinks load test
+
+[[permeant dirty money]]
+[[sunburned genus sarda]]
+[[indecisive congenital megacolon]]
+[[pancake-style stock-in-trade]]

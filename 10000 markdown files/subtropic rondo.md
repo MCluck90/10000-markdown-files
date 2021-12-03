@@ -78,3 +78,9 @@ However everything upon her temper
 Change lobsters and she's
 : Take your hair.
 
+
+## Wikilinks load test
+
+[[deweyan matronymic]]
+[[ponderous artery]]
+[[sufferable ironworker]]

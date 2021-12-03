@@ -81,3 +81,11 @@ RABBIT engraved upon Bill the tail.
 Which was so please do very
 : holding and rapped loudly at Alice living at having a person then treading on and sharks are secondly because of
 
+
+## Wikilinks load test
+
+[[living smoking car]]
+[[enwrapped joseph francis keaton]]
+[[clastic plait]]
+[[bowlegged parkersburg]]
+[[conical lifting device]]

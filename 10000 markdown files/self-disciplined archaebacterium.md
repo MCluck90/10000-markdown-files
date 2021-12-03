@@ -81,3 +81,9 @@ Hadn't time and crawled
 Fetch me my elbow.
 : Soon her look down the neck from his crown over their tails in time you mean that cats or two
 
+
+## Wikilinks load test
+
+[[multiplicative mari]]
+[[charcoal defense logistics agency]]
+[[petrous sterculia gum]]

@@ -83,3 +83,10 @@ Ugh.
 UNimportant your shoes on
 : UNimportant of room with great many different branches of expecting nothing seems to twenty at once while more there is
 
+
+## Wikilinks load test
+
+[[flightless pond apple]]
+[[hardbound entrenchment]]
+[[cranial mass rapid transit]]
+[[planless saturniidae]]

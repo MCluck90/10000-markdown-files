@@ -82,3 +82,8 @@ Twinkle twinkle little toss of
 It'll be punished for shutting
 : William's conduct at present at Two.
 
+
+## Wikilinks load test
+
+[[marched upon leaning]]
+[[chiasmic visit]]

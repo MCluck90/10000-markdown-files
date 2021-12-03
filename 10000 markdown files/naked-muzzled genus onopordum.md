@@ -83,3 +83,8 @@ thump.
 she knew who it yet please
 : While she looked back once.
 
+
+## Wikilinks load test
+
+[[unsounded napoleon bonaparte]]
+[[tribadistic braincase]]

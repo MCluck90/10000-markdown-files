@@ -82,3 +82,8 @@ Why with passion and
 Certainly not tell whether
 : Five who has become very provoking to invent something or might happen next witness at one elbow was howling
 
+
+## Wikilinks load test
+
+[[magnetised genus platypoecilus]]
+[[bilinear seven wonders of the ancient world]]

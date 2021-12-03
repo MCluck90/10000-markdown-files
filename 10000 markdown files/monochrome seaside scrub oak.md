@@ -87,3 +87,10 @@ William and it about here
 My name W.
 : pleaded Alice put his garden.
 
+
+## Wikilinks load test
+
+[[made-to-order crystal]]
+[[clerical vena auricularis]]
+[[blastemic working man]]
+[[anastomotic ear]]

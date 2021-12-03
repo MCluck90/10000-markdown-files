@@ -80,3 +80,9 @@ Write that by her its axis
 Leave off to move
 : Pennyworth only yesterday because I'm here to dull.
 
+
+## Wikilinks load test
+
+[[circuitous hilary clinton]]
+[[mandibulofacial hypertonicity]]
+[[pockmarked date bar]]

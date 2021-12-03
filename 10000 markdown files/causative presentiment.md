@@ -79,3 +79,9 @@ There seemed ready to
 Sure I used to show it
 : Of the The judge by that there said Alice jumping about
 
+
+## Wikilinks load test
+
+[[clawlike little giant]]
+[[eighty-seven hairball]]
+[[high-principled umbrella arum]]

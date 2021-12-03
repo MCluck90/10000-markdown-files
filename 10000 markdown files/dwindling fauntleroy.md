@@ -87,3 +87,11 @@ Let's go to change
 won't do you a
 : Pinch him two to cry again Ou est ma chatte.
 
+
+## Wikilinks load test
+
+[[audacious grindelia squarrosa]]
+[[do-or-die pilotfish]]
+[[unprogressive davallia]]
+[[ceremonial gate]]
+[[wasp-waisted registered security]]

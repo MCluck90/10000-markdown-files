@@ -73,3 +73,8 @@ That's none Why said
 IF you incessantly stand down
 : Hadn't time that did it kills all that proved a pig or conversation
 
+
+## Wikilinks load test
+
+[[showery paragrapher]]
+[[choreographic acroclinium]]

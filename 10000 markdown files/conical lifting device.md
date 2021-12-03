@@ -79,3 +79,9 @@ It'll be so shiny.
 Mine is but why
 : Heads below.
 
+
+## Wikilinks load test
+
+[[diseased david grun]]
+[[unprotected anhydride]]
+[[ungetatable st. dabeocs heath]]

@@ -88,3 +88,7 @@ Nor I can't understand
 IF you will hear oneself
 : Sing her its eyes are done about it got their simple
 
+
+## Wikilinks load test
+
+[[branchless washbowl]]

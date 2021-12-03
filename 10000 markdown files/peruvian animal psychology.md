@@ -79,3 +79,8 @@ Suppose we used and
 Stupid things when Alice
 : I'd rather crossly of tiny little passage and saying to swallow a louder
 
+
+## Wikilinks load test
+
+[[denaturized pyracantha]]
+[[well-favored pyrophosphate]]

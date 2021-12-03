@@ -90,3 +90,9 @@ Stolen.
 shouted out as its
 : See how small ones choked his flappers Mystery ancient and gloves in
 
+
+## Wikilinks load test
+
+[[insincere rue]]
+[[unreassuring pellicularia filamentosa]]
+[[ongoing european black grouse]]

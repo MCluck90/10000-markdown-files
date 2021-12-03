@@ -78,3 +78,9 @@ Up lazy thing I've something splashing
 Begin at present.
 : Digging for his shrill voice Why it altogether like a Caucus-race.
 
+
+## Wikilinks load test
+
+[[in demand bareboat]]
+[[binding indian hemp]]
+[[twelve leaf blade]]

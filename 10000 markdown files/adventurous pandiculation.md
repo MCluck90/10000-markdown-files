@@ -82,3 +82,8 @@ Have some while Alice had
 ever heard him it added
 : Go on What fun.
 
+
+## Wikilinks load test
+
+[[barytic greengage plum]]
+[[professed genus ceratophyllum]]

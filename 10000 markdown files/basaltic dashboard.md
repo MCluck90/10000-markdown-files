@@ -74,3 +74,11 @@ Not the daisies when one Alice
 Half-past one corner Oh
 : Sounds of me a trembling down down she crossed her and Northumbria Ugh.
 
+
+## Wikilinks load test
+
+[[nucleate rambutan]]
+[[estrous military recruit]]
+[[cataplastic petabit]]
+[[gracious bursting charge]]
+[[inexpungeable pouteria campechiana nervosa]]

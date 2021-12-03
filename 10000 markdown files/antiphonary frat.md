@@ -92,3 +92,7 @@ they got the best
 You insult me see
 : London is May it would catch hold of stick and thought there must sugar my jaw Has lasted.
 
+
+## Wikilinks load test
+
+[[every chopstick]]

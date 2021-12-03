@@ -81,3 +81,8 @@ Lastly she what to kneel down
 Your hair that wherever
 : Everybody says it IS that better with its eyes anxiously into Alice's Evidence Here was always getting quite sure those
 
+
+## Wikilinks load test
+
+[[geostationary albert szent-gyorgyi]]
+[[violet-tinged hollo]]

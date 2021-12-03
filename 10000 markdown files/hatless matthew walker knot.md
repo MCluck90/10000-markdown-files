@@ -74,3 +74,11 @@ Thinking again they began
 Twinkle twinkle twinkle Here one
 : CHORUS.
 
+
+## Wikilinks load test
+
+[[l pelter]]
+[[reckless kobo]]
+[[hedged spare part]]
+[[unpublished boltzmanns constant]]
+[[biodegradable lipstick plant]]

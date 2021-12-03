@@ -87,3 +87,10 @@ If I'd hardly worth hearing
 Somebody said anxiously into that
 : That'll be a failure.
 
+
+## Wikilinks load test
+
+[[inflamed proposition]]
+[[ii crookneck]]
+[[arboreal eliminator]]
+[[diaphanous nycticebus]]

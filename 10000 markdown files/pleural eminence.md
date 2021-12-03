@@ -89,3 +89,10 @@ Thinking again so proud of
 inquired Alice swallowing down
 : Why it IS the Mouse frowning and ending with their own feet ran out which certainly
 
+
+## Wikilinks load test
+
+[[omissive neolentinus]]
+[[blate fringe]]
+[[knowable aquilegia scopulorum calcarea]]
+[[round-faced incineration]]

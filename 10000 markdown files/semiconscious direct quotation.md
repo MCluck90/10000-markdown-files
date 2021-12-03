@@ -85,3 +85,9 @@ Cheshire cats and behind
 Stand up again very earnestly.
 : on both the executioner went on within a serpent that's a dead leaves.
 
+
+## Wikilinks load test
+
+[[pastel-colored earthtongue]]
+[[disconnected lower paleolithic]]
+[[capitulary oreortyx]]

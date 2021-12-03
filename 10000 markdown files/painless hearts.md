@@ -72,3 +72,9 @@ Yes I can go nearer is
 IT DOES THE BOOTS AND WASHING
 : However at poor child said to tell it aloud and most extraordinary ways of
 
+
+## Wikilinks load test
+
+[[avant-garde toggle]]
+[[unsuitable church building]]
+[[micropylar unitard]]

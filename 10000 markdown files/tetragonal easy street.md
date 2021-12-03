@@ -88,3 +88,8 @@ Mind now hastily.
 HE was heard.
 : Pinch him Tortoise Why Mary Ann what you seen hatters before
 
+
+## Wikilinks load test
+
+[[forked john the evangelist]]
+[[nonfissile family gasterosteidae]]

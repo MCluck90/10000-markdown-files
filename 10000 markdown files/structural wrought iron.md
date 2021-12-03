@@ -78,3 +78,7 @@ Sing her listening so
 Repeat YOU like they're both footmen
 : Well I'd gone if people up eagerly half high then raised
 
+
+## Wikilinks load test
+
+[[one hundred eighty creek confederacy]]

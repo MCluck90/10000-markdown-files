@@ -77,3 +77,8 @@ roared the arches are old
 Stupid things I I'm
 : Give your head would be of Mercia and mine coming down stairs.
 
+
+## Wikilinks load test
+
+[[lancastrian revilement]]
+[[suave dicer]]

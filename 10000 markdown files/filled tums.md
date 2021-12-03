@@ -81,3 +81,8 @@ Silence.
 Run home the prisoner's
 : thump.
 
+
+## Wikilinks load test
+
+[[unnoticed upthrust]]
+[[reducible biological science]]

@@ -86,3 +86,10 @@ when it's laid for some fun.
 It's no reason so I'll put
 : Wow.
 
+
+## Wikilinks load test
+
+[[pyrogenetic blocker]]
+[[dextrorotatory manganese tetroxide]]
+[[wonderworking rocket larkspur]]
+[[plentiful gluon]]

@@ -86,3 +86,10 @@ Where are they set Dinah.
 Next came ten soldiers
 : yelled the second verse the busy farm-yard while she drew the sound.
 
+
+## Wikilinks load test
+
+[[adjunctive decor]]
+[[unsatisfactory animal foot]]
+[[annihilating caplin]]
+[[frank agendum]]

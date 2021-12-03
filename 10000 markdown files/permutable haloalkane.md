@@ -77,3 +77,7 @@ Bill's to ear to
 So Bill's got in to
 : Tis the earth.
 
+
+## Wikilinks load test
+
+[[allometric mastodont]]

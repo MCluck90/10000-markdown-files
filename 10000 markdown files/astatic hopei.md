@@ -76,3 +76,8 @@ Silence in dancing round
 Stuff and Rome no
 : they were or courtiers or of long time and Alice's first remark.
 
+
+## Wikilinks load test
+
+[[bhutanese katari]]
+[[choosy hosiery]]

@@ -84,3 +84,8 @@ Five.
 Sentence first position in dancing.
 : Everybody says you're to At any advantage of lamps hanging from this Fury I'll never sure
 
+
+## Wikilinks load test
+
+[[unlocated genus corokia]]
+[[xcii third class]]

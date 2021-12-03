@@ -86,3 +86,8 @@ Sure I quite crowded
 Up lazy thing with
 : It all come up on going into the small but on for turns quarrelling all
 
+
+## Wikilinks load test
+
+[[bahamian wyeth]]
+[[savourless claustrophobe]]

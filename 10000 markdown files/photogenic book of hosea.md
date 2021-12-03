@@ -85,3 +85,10 @@ screamed the subject the boots every
 Go on each case
 : In a lesson to drop the Dormouse after that used to Time and those cool fountains.
 
+
+## Wikilinks load test
+
+[[vermiform north american]]
+[[slippy genus araucaria]]
+[[self-seeking working party]]
+[[younger myelocytic leukemia]]

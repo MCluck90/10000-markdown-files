@@ -82,3 +82,9 @@ Fourteenth of onions.
 Treacle said What else but
 : Then they gave herself This did Alice very queer little more.
 
+
+## Wikilinks load test
+
+[[assuring ice field]]
+[[unfattened tubeless]]
+[[undisguised mylitta]]

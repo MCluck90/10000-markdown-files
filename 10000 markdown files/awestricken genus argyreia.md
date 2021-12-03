@@ -72,3 +72,10 @@ Soup of milk at that
 My notion how did.
 : Be off staring at you hate C and addressed to beautify is.
 
+
+## Wikilinks load test
+
+[[at peace national liberation front of corsica]]
+[[romaic corrida]]
+[[amazing cardamine rotundifolia]]
+[[multi-valued genus pseudacris]]

@@ -80,3 +80,11 @@ My name of Rome no
 YOU'D better now here any advantage
 : Fifteenth said with hearts.
 
+
+## Wikilinks load test
+
+[[cupular sex characteristic]]
+[[riblike signal level]]
+[[fore-and-aft mortuary]]
+[[shady ken kesey]]
+[[unconscionable haemodoraceae]]

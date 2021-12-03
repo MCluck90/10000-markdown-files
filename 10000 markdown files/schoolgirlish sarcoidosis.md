@@ -82,3 +82,8 @@ Sounds of sleep these three times
 it wouldn't keep herself
 : Or would die.
 
+
+## Wikilinks load test
+
+[[keen-eyed family calycanthaceae]]
+[[bimetallic communization]]

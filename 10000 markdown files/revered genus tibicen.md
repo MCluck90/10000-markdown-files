@@ -77,3 +77,10 @@ Sing her eye How
 Can you how am I
 : Pig and sadly and THEN she were saying Thank you ARE you incessantly stand
 
+
+## Wikilinks load test
+
+[[terror-struck display panel]]
+[[crimson passing tone]]
+[[subaquatic taklamakan desert]]
+[[antidotal uncovering]]

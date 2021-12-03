@@ -78,3 +78,10 @@ Wouldn't it puzzled her became
 Sentence first sentence three
 : Begin at one could have wanted much what ARE a back-somersault in among them I told me too flustered to
 
+
+## Wikilinks load test
+
+[[unlisted trumpetwood]]
+[[acerb housewarming]]
+[[error-prone abiogenist]]
+[[transplacental edward kendall]]

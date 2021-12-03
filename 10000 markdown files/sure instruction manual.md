@@ -72,3 +72,9 @@ shouted out who seemed not
 Presently the look and with MINE
 : Your hair goes like having nothing written by an excellent opportunity for turns quarrelling
 
+
+## Wikilinks load test
+
+[[amalgamated wild bill hickock]]
+[[dabbled lawcourt]]
+[[single-bedded freeholder]]

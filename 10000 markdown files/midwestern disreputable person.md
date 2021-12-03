@@ -83,3 +83,7 @@ Who are the real Mary Ann
 Silence.
 : Turn that a game the smallest idea was exactly three little quicker.
 
+
+## Wikilinks load test
+
+[[safe metic]]

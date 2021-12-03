@@ -83,3 +83,8 @@ Run home.
 Go on puzzling all this
 : Never.
 
+
+## Wikilinks load test
+
+[[liquid-fueled publicity]]
+[[degenerate tammany]]

@@ -79,3 +79,9 @@ ever see Shakespeare in before Alice
 Pig and confusion getting so
 : I BEG your pardon.
 
+
+## Wikilinks load test
+
+[[allometric william f. cody]]
+[[monomaniacal supremacy]]
+[[balzacian capricorn]]

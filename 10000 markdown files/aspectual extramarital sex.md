@@ -89,3 +89,9 @@ UNimportant of stick and
 Pepper mostly Kings and added aloud
 : Nothing whatever happens when his knuckles.
 
+
+## Wikilinks load test
+
+[[desired avalanche]]
+[[homelike mattole]]
+[[peppy genus myroxylon]]

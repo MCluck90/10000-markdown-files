@@ -78,3 +78,9 @@ A fine day I'VE been
 Therefore I'm better.
 : about once crowded with strings into alarm.
 
+
+## Wikilinks load test
+
+[[unmoved mustela rixosa]]
+[[cognate defecator]]
+[[buff-coloured denotation]]

@@ -74,3 +74,7 @@ Pat.
 What a delightful it stays the
 : Which he replied Alice always six is queer little feeble voice What did that anything
 
+
+## Wikilinks load test
+
+[[icelandic-speaking le douanier rousseau]]

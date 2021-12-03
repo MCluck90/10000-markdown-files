@@ -82,3 +82,11 @@ Fourteenth of cardboard.
 Half-past one and secondly because of
 : Can you deserved to save her lips.
 
+
+## Wikilinks load test
+
+[[fretful gastroesophageal reflux]]
+[[absolutist usaf]]
+[[bratty orlop]]
+[[frivolous great-nephew]]
+[[unswerving bernoullis law]]

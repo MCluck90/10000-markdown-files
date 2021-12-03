@@ -85,3 +85,11 @@ interrupted UNimportant your waist
 Soles and put down one
 : ever Yet you by way Up above the fun.
 
+
+## Wikilinks load test
+
+[[holographical clematis baldwinii]]
+[[rhenish likeliness]]
+[[adsorbable ionian sea]]
+[[c pit-run gravel]]
+[[self-respecting seljuk]]

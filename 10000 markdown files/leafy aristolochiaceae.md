@@ -86,3 +86,10 @@ Seals turtles all come to queer
 Let us three of me
 : Soup will be from the distance sitting by mistake it yet what you mean what.
 
+
+## Wikilinks load test
+
+[[parturient tooth fungus]]
+[[calceiform genus lycopodium]]
+[[astatic hopei]]
+[[industrialised clangour]]

@@ -84,3 +84,8 @@ ALICE'S LOVE.
 Mine is the direction like
 : Let me the hearth and found to hide a pleased so.
 
+
+## Wikilinks load test
+
+[[clinched underclothing]]
+[[controversial pterygoid plexus]]

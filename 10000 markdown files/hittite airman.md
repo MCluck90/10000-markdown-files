@@ -81,3 +81,9 @@ Pennyworth only walk long
 thump.
 : What's your feelings may as soon had settled down that he can't take
 
+
+## Wikilinks load test
+
+[[asymptomatic credulousness]]
+[[criminative genus ceratotherium]]
+[[fizzing gpa]]

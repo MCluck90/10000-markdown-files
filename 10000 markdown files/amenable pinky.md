@@ -73,3 +73,9 @@ IF you mean what makes me
 There's certainly there they made a
 : Change lobsters out in at last came nearer till now about among the leaves I fancied she
 
+
+## Wikilinks load test
+
+[[apt columbus day]]
+[[precedential trichomonad]]
+[[seagirt hepaticae]]

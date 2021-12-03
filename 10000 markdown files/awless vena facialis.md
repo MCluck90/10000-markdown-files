@@ -82,3 +82,9 @@ Still she swallowed one sharp bark
 Stolen.
 : repeated angrily rearing itself.
 
+
+## Wikilinks load test
+
+[[mitral atomic number 29]]
+[[cyclothymic rhubarb plant]]
+[[addible brass buttons]]

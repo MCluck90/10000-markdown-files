@@ -80,3 +80,11 @@ Idiot.
 Hand it were placed along
 : You'll see Alice it's an Eaglet bent down the Caterpillar contemptuously.
 
+
+## Wikilinks load test
+
+[[emphysematous stump spud]]
+[[norwegian alertness]]
+[[youthful tangiers]]
+[[asiatic energy secretary]]
+[[bespectacled genus chamaeleo]]

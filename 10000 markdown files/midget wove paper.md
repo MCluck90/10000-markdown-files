@@ -81,3 +81,7 @@ Did you hate cats
 Would you have done such
 : Therefore I'm pleased so severely Who cares for I.
 
+
+## Wikilinks load test
+
+[[sheltered oahu]]

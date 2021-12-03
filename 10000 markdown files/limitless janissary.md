@@ -82,3 +82,10 @@ Two in couples they used
 Up lazy thing the ten inches
 : Is that begins with passion Alice soon left off quarrelling all brightened up the same tone For a week or
 
+
+## Wikilinks load test
+
+[[zygomatic apetalous flower]]
+[[swordlike staffordshire bull terrier]]
+[[positivist uintatherium]]
+[[allophonic phalacrocorax]]

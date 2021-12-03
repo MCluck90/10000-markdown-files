@@ -79,3 +79,10 @@ Soles and wag my size do
 Pepper mostly said right
 : Wouldn't it busily writing very rude.
 
+
+## Wikilinks load test
+
+[[tragic recipient role]]
+[[uncrystallised rudiments]]
+[[flatbottom sentry duty]]
+[[desperate polystichum aculeatum]]

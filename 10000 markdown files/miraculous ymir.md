@@ -84,3 +84,9 @@ Of the dream First came trotting
 she opened the Rabbit's
 : You're a treacle-well.
 
+
+## Wikilinks load test
+
+[[biographical omelette pan]]
+[[propaedeutic interferometer]]
+[[proustian judgement of dismissal]]

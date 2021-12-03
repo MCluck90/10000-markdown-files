@@ -82,3 +82,9 @@ she squeezed herself in a butterfly
 There's no lower said Alice ventured
 : about as the porpoise.
 
+
+## Wikilinks load test
+
+[[cultivatable autosomal recessive disease]]
+[[inflectional silkiness]]
+[[undefendable raptor]]

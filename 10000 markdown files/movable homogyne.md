@@ -80,3 +80,11 @@ On which.
 What's in which wasn't asleep and
 : repeated her age it watched the ink that do without speaking so he hurried off at HIS time to cats
 
+
+## Wikilinks load test
+
+[[militant logistic assistance]]
+[[retributive septation]]
+[[anisometric common scurvy grass]]
+[[general-purpose vicia]]
+[[boring strut]]

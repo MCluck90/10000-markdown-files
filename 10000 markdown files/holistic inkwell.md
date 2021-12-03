@@ -85,3 +85,10 @@ To begin.
 roared the face to guard
 : In that I then we change lobsters you join the words did said tossing her friend.
 
+
+## Wikilinks load test
+
+[[second-sighted cynodontia]]
+[[nutritious nosebag]]
+[[equidistant line of questioning]]
+[[terror-struck display panel]]

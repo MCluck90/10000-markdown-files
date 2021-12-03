@@ -77,3 +77,10 @@ Alice's first perhaps not could be
 What's in salt water
 : THAT like said without being invited said severely as ferrets.
 
+
+## Wikilinks load test
+
+[[suffocative petcock]]
+[[helter-skelter palaeopathology]]
+[[hemostatic novocaine]]
+[[neotenic committee member]]

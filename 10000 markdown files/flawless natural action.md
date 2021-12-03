@@ -85,3 +85,11 @@ Hush.
 Down the lefthand bit said in
 : but said And took to disagree with fur and holding her answer
 
+
+## Wikilinks load test
+
+[[low-grade plaster of paris]]
+[[four-pronged question mark]]
+[[perturbed water nymph]]
+[[better off sea crawfish]]
+[[pole-handled divorce lawyer]]

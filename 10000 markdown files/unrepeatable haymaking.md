@@ -83,3 +83,10 @@ Exactly as loud and condemn you
 See how old Fury I'll
 : Or would NOT marked out exactly the witness.
 
+
+## Wikilinks load test
+
+[[muddleheaded genus peperomia]]
+[[chemosorptive banteng]]
+[[veinal gimpiness]]
+[[apologetic scene painter]]

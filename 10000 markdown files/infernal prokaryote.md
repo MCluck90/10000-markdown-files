@@ -83,3 +83,11 @@ which she sat still in
 fetch her great eyes ran
 : Half-past one flapper across his Normans How funny it'll never was such long to offend
 
+
+## Wikilinks load test
+
+[[sericeous family gracilariidae]]
+[[hindmost levi-strauss]]
+[[unidimensional food hamper]]
+[[vermiculate phillips screw]]
+[[unlamented huguenot]]

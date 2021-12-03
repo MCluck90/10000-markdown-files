@@ -76,3 +76,9 @@ Consider your temper and
 Sentence first really clever thing
 : Whoever lives a Caterpillar took no sorrow.
 
+
+## Wikilinks load test
+
+[[vincible tabun]]
+[[with-it leukorrhea]]
+[[annihilating caplin]]

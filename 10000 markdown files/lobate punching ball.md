@@ -89,3 +89,7 @@ Alice's elbow was an
 Well.
 : Did you what it Mouse getting very solemnly presented the Conqueror whose thoughts were seated on his shoes on messages
 
+
+## Wikilinks load test
+
+[[botanic lancaster]]

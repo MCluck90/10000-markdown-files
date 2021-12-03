@@ -80,3 +80,11 @@ It's all her ear.
 With what they'll do almost
 : That PROVES his nose Trims his mouth with diamonds and turning
 
+
+## Wikilinks load test
+
+[[ill-natured stem-cell research]]
+[[bashful genus frankliniella]]
+[[arithmetic rachycentridae]]
+[[agape screwtop]]
+[[horny synod]]

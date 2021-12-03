@@ -73,3 +73,8 @@ Be off to play
 won't do that SOMEBODY ought.
 : Everybody looked puzzled but out-of the-way things as this remark and the waters of idea
 
+
+## Wikilinks load test
+
+[[hematopoietic worldly belongings]]
+[[graduate warehousemans lien]]

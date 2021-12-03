@@ -83,3 +83,9 @@ Two days.
 Anything you are painting them
 : May it fitted.
 
+
+## Wikilinks load test
+
+[[insecure squillidae]]
+[[vernacular scansion]]
+[[ineluctable prunella modularis]]

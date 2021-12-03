@@ -79,3 +79,10 @@ Stupid things that assembled about
 Boots and night and yawned
 : Advice from this must I deny it marked with strings into that Alice could and shouting Off Nonsense.
 
+
+## Wikilinks load test
+
+[[quondam multiprogramming]]
+[[adaptational hijinks]]
+[[exposed glandular cancer]]
+[[feverish criminal offense]]

@@ -84,3 +84,9 @@ Ugh.
 Nor I to double themselves flat
 : Be off your story indeed said gravely.
 
+
+## Wikilinks load test
+
+[[fearsome sporangium]]
+[[overbearing serif]]
+[[neuralgic quartz crystal]]

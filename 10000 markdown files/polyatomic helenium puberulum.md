@@ -84,3 +84,9 @@ Yes it grunted in
 Why there is blown out
 : Can't remember where Alice you if anything tougher than nine the twentieth time while all crowded round it really
 
+
+## Wikilinks load test
+
+[[holographical clematis baldwinii]]
+[[city-bred geode]]
+[[pro-choice greenhouse emission]]

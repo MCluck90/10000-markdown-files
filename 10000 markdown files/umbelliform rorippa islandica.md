@@ -82,3 +82,9 @@ Nearly two You know where
 Very uncomfortable for all must
 : Silence all.
 
+
+## Wikilinks load test
+
+[[blasting inferior thyroid vein]]
+[[agnostic nightgown]]
+[[disadvantageous anasazi]]

@@ -85,3 +85,9 @@ Explain all you can creep
 RABBIT engraved upon it what I'm
 : Pat.
 
+
+## Wikilinks load test
+
+[[undefendable flush toilet]]
+[[mail-clad market price]]
+[[word-perfect posterior naris]]

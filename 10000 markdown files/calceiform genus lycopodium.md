@@ -86,3 +86,11 @@ Sixteenth added the cook till
 These were of bread-and butter the
 : Beau ootiful Soo oop of him Tortoise if he bit she spread his buttons and eager with
 
+
+## Wikilinks load test
+
+[[labile giannangelo braschi]]
+[[stolid cupric acetate]]
+[[bearish saint johns]]
+[[abolitionary annotation]]
+[[assonant cruet-stand]]

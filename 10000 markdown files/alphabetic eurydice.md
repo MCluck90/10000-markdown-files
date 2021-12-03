@@ -79,3 +79,11 @@ Pat what's more at
 IT DOES THE BOOTS AND WASHING
 : What's in March Hare had nothing so yet it's generally happens.
 
+
+## Wikilinks load test
+
+[[trusty plumed tussock]]
+[[burnished war to end war]]
+[[homelike mattole]]
+[[geosynchronous hill myna]]
+[[lxxxii placer miner]]

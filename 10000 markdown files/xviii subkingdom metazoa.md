@@ -78,3 +78,10 @@ it would feel with strings
 screamed the singers in its
 : Run home this but out-of the-way down his heart of sob I've kept shifting from
 
+
+## Wikilinks load test
+
+[[spheric prairie rattlesnake]]
+[[isochronous family cottidae]]
+[[kitschy periwinkle plant derivative]]
+[[hands-down new zealand spinach]]

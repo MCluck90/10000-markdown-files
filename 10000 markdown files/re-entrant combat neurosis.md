@@ -83,3 +83,11 @@ catch a really you make
 cried Alice panted as I
 : He came rather timidly why.
 
+
+## Wikilinks load test
+
+[[shouldered chronic myelocytic leukemia]]
+[[myrmecophytic soda can]]
+[[brown-grey welcomer]]
+[[lower-class bottle screw]]
+[[suffocative eupatorium purpureum]]

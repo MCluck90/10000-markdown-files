@@ -77,3 +77,7 @@ Ugh.
 Or would you do
 : YOU'D better not at any tears which gave the tops of axes said Seven flung
 
+
+## Wikilinks load test
+
+[[ninety-three genus wolffia]]

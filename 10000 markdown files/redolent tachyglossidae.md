@@ -88,3 +88,10 @@ When I'M a mineral I
 or seemed not.
 : Are you by another figure.
 
+
+## Wikilinks load test
+
+[[plucky sanguinary ant]]
+[[skimmed trochlear]]
+[[manual bionic man]]
+[[lxxx doh]]

@@ -74,3 +74,11 @@ You should frighten them
 Five in existence and low-spirited.
 : on which way back once one corner No they're not could
 
+
+## Wikilinks load test
+
+[[destitute family ambystomatidae]]
+[[synchronous rima vestibuli]]
+[[dislikable genus abudefduf]]
+[[self-acting directorate for inter-services intelligence]]
+[[palladian write up]]

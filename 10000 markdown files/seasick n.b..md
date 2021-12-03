@@ -85,3 +85,10 @@ added Come I'll kick
 Oh I'm pleased tone.
 : then it didn't.
 
+
+## Wikilinks load test
+
+[[sixtieth canadian shield]]
+[[maladroit ajuga]]
+[[ataractic street fighter]]
+[[surgical hematolysis]]

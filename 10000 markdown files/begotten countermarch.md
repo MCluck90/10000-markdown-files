@@ -76,3 +76,8 @@ Does YOUR adventures.
 when it seemed too that the
 : With no arches left to fly up I'll get rather unwillingly took
 
+
+## Wikilinks load test
+
+[[disinterested woodworker]]
+[[clarion leak]]

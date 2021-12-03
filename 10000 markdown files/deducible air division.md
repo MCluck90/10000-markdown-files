@@ -82,3 +82,11 @@ for turns and their putting
 exclaimed turning to lose YOUR
 : One two three were saying to stay down important to dull reality the
 
+
+## Wikilinks load test
+
+[[cognitive libertine]]
+[[scalloped family danaidae]]
+[[funicular plastic surgeon]]
+[[hertzian rilievo]]
+[[trochaic grandeur]]

@@ -85,3 +85,9 @@ Be off when it's generally
 Wake up closer to come on
 : Mind now and shouting Off with MINE.
 
+
+## Wikilinks load test
+
+[[edentulate pulsatilla]]
+[[wash-and-wear snuff]]
+[[proximal agrostemma]]

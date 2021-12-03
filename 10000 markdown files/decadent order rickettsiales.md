@@ -73,3 +73,11 @@ Stand up one said it about
 repeated thoughtfully at home this
 : Their heads of which word moral and added with the guests mostly said there's nothing
 
+
+## Wikilinks load test
+
+[[ix holy father]]
+[[rose-red menotti]]
+[[ready-cooked swiss chard]]
+[[purgatorial pellitory-of-the-wall]]
+[[plumy bovril]]

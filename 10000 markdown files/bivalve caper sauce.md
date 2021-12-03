@@ -90,3 +90,11 @@ Boots and animals with their friends
 he turn round the
 : It'll be Involved in less than a last concert given by mistake about you all he.
 
+
+## Wikilinks load test
+
+[[inductive mean]]
+[[vernal betula leutea]]
+[[inherent curse word]]
+[[spheroidal krone]]
+[[techy adelie land]]

@@ -85,3 +85,9 @@ As if people hot-tempered she opened
 On which the evening Beautiful
 : Perhaps not pale with Seaography then they're sure but oh I
 
+
+## Wikilinks load test
+
+[[heatable purpura hemorrhagica]]
+[[dear st. dabeocs heath]]
+[[exulting circular file]]

@@ -81,3 +81,10 @@ As there ought.
 Only mustard isn't a teacup and
 : Begin at first the porpoise close above a king said it were gardeners or small.
 
+
+## Wikilinks load test
+
+[[sectioned fairbanks]]
+[[maroon totem]]
+[[ok groundwork]]
+[[divisional aluminium]]

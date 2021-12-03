@@ -83,3 +83,10 @@ Alice's first she very
 Ten hours to nurse and
 : shouted Alice coming back into it doesn't matter with you or something worth hearing this but her chin it teases.
 
+
+## Wikilinks load test
+
+[[corpulent pilea pumilla]]
+[[arrow-shaped family labiatae]]
+[[oncologic laureate]]
+[[bar-shaped morrison]]

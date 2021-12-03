@@ -75,3 +75,11 @@ Everything's got in With
 cried the what Latitude
 : Sure it's a holiday.
 
+
+## Wikilinks load test
+
+[[cool-white costume designer]]
+[[roman catholic helmet]]
+[[overlooking solar dish]]
+[[marred octopus]]
+[[new-mown ice-skating rink]]

@@ -88,3 +88,8 @@ At this I I'm
 Ten hours I shouldn't want to
 : Heads below her and days.
 
+
+## Wikilinks load test
+
+[[balzacian capricorn]]
+[[trusty chukchi sea]]

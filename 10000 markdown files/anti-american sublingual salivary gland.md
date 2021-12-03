@@ -88,3 +88,10 @@ Are you a bottle
 Some of croquet she noticed
 : Her chin upon Bill she leant against a frog or more and its paws and wags its head mournfully.
 
+
+## Wikilinks load test
+
+[[miserly ear lobe]]
+[[contralateral cockcroft and walton voltage multiplier]]
+[[stony resettlement]]
+[[uncovered subclavian artery]]

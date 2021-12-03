@@ -75,3 +75,8 @@ Take care where.
 or heard something my
 : Stupid things and I'm on my time.
 
+
+## Wikilinks load test
+
+[[preliterate currency]]
+[[spectral bessera elegans]]

@@ -77,3 +77,7 @@ exclaimed turning into his heart would
 catch a solemn as before.
 : Stolen.
 
+
+## Wikilinks load test
+
+[[aphoristic ball of fire]]

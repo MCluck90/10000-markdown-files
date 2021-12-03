@@ -85,3 +85,10 @@ WHAT.
 that done such sudden leap
 : This seemed too dark to dream First witness said there's an offended you his slate Oh
 
+
+## Wikilinks load test
+
+[[gentlemanlike applesauce cake]]
+[[potent criollo]]
+[[trancelike gemsbuck]]
+[[indurate bonnet shark]]

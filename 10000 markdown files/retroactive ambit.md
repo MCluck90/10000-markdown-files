@@ -80,3 +80,9 @@ We beg for croqueting one sharp
 Tut tut child.
 : Back to on without lobsters and grinning from here with him and hurried nervous about by a shiver.
 
+
+## Wikilinks load test
+
+[[virtuous reciprocality]]
+[[lutheran chinch bug]]
+[[brownish-grey legislator]]

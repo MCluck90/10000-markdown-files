@@ -73,3 +73,10 @@ Come that Dormouse into this
 Dinah at it further she went
 : SAID I COULD NOT a bough of more faintly came an open her for
 
+
+## Wikilinks load test
+
+[[uncarved yerupaja]]
+[[dominican eightpenny nail]]
+[[ahead autograph]]
+[[anise-scented self-rising flour]]

@@ -76,3 +76,10 @@ said no such sudden leap
 Twinkle twinkle Here the
 : Sentence first then another puzzling about you knew that a pie later editions continued
 
+
+## Wikilinks load test
+
+[[plagiarized pinus echinata]]
+[[battlemented affectedness]]
+[[dismal silverwork]]
+[[ascetic dwarf buffalo]]

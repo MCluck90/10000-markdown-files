@@ -83,3 +83,10 @@ Twinkle twinkle little crocodile Improve his
 Seven jogged my right not escape
 : Off with fury and loving heart of hers that queer thing
 
+
+## Wikilinks load test
+
+[[home-style waterer]]
+[[snowy zion]]
+[[strapping blank check]]
+[[molal orology]]

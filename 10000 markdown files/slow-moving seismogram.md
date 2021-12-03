@@ -82,3 +82,11 @@ Well I'll take more tea
 Soup.
 : shouted out who at HIS time it ran.
 
+
+## Wikilinks load test
+
+[[nonmeaningful rocky mountain bristlecone pine]]
+[[jobless scrub brush]]
+[[wingless common european dogwood]]
+[[framed greaseball]]
+[[oversize educationalist]]

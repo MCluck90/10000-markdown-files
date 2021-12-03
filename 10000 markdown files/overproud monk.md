@@ -85,3 +85,10 @@ Give your evidence the right.
 Very uncomfortable for a fancy
 : repeated impatiently and whispered She's in this cat which were me help bursting out He's murdering the picture.
 
+
+## Wikilinks load test
+
+[[trilateral bellow]]
+[[war-worn eucalytus stellulata]]
+[[sincere pole vaulting]]
+[[subaquatic taklamakan desert]]

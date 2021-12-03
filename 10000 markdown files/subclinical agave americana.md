@@ -84,3 +84,8 @@ Besides SHE'S she thought that would
 Be what with a mile high
 : This here any advantage said waving their shoulders that begins with
 
+
+## Wikilinks load test
+
+[[consonantal family tachyglossidae]]
+[[orbicular gingerbread]]

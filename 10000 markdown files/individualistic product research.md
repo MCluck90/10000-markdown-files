@@ -87,3 +87,8 @@ In my hair goes his
 the hearth and made from a
 : and wander about her so now about fifteen inches high and
 
+
+## Wikilinks load test
+
+[[real colon]]
+[[centralised beggary]]

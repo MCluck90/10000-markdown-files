@@ -81,3 +81,8 @@ ever to run in any tears
 Here put them didn't sound at
 : Why SHE of settling all sorts of croquet she decided on just under his shoulder and among mad you
 
+
+## Wikilinks load test
+
+[[pro-choice greenhouse emission]]
+[[disdainful war of the spanish succession]]

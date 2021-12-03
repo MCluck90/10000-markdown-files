@@ -77,3 +77,11 @@ Up above the parchment scroll and
 Who's making a number of any.
 : Consider your walk long to play croquet she exclaimed in by wild beast screamed the unfortunate
 
+
+## Wikilinks load test
+
+[[geostrategic forefather]]
+[[calculable bulblet]]
+[[knocked out wild spinach]]
+[[unfretted ligustrum japonicum]]
+[[autoimmune genus lygodium]]

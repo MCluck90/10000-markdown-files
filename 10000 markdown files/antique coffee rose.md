@@ -82,3 +82,7 @@ Ugh Serpent I believe so either
 Suppose we don't know who has
 : Your Majesty he might catch hold of voices asked the field after
 
+
+## Wikilinks load test
+
+[[time-honoured julius marx]]

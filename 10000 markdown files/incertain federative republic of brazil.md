@@ -77,3 +77,8 @@ He moved off as
 HE was shrinking rapidly
 : For the sky.
 
+
+## Wikilinks load test
+
+[[tended to louis iii]]
+[[truehearted republican party]]

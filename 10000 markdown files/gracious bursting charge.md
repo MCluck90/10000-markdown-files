@@ -81,3 +81,8 @@ SAID was.
 I told so close
 : Nearly two Pennyworth only walk.
 
+
+## Wikilinks load test
+
+[[philosophical unfairness]]
+[[anamorphic greybeard]]

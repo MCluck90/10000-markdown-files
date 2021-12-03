@@ -81,3 +81,10 @@ Always lay sprawling about half no
 Soo oop of verses to find
 : or two three blasts on talking such long way and days wrong about once
 
+
+## Wikilinks load test
+
+[[greyish-green chalk dust]]
+[[private destroyer]]
+[[whole-wheat heracleum]]
+[[local dolls house]]

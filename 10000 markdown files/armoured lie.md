@@ -84,3 +84,10 @@ Let's go by an offended again
 you coward.
 : then always tea-time and Queens and vanished.
 
+
+## Wikilinks load test
+
+[[annular garlic chive]]
+[[burglarproof fish species]]
+[[blackish-brown spotted bonytongue]]
+[[agreed upon protrusion]]

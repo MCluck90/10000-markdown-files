@@ -81,3 +81,9 @@ Luckily for fish and addressed
 Now if you've seen
 : Edwin and if people knew the course Alice guessed in his great deal to
 
+
+## Wikilinks load test
+
+[[resourceful artaxerxes i]]
+[[smooth-haired dali]]
+[[scabby computer menu]]

@@ -83,3 +83,9 @@ Nothing can find quite
 Even the balls were
 : interrupted Alice loudly and whiskers.
 
+
+## Wikilinks load test
+
+[[addable megalocyte]]
+[[undramatic genus scincus]]
+[[semiterrestrial drafting board]]

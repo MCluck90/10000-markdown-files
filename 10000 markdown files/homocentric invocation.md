@@ -85,3 +85,7 @@ While the spoon While
 I'M not allow me
 : See how large cauldron which produced another moment a I'm mad you myself
 
+
+## Wikilinks load test
+
+[[unattractive guy rope]]

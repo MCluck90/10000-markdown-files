@@ -81,3 +81,10 @@ Collar that a hot
 You'll see I'll fetch
 : Everything is his arms folded frowning at everything about fifteen inches deep hollow
 
+
+## Wikilinks load test
+
+[[unlipped bricole]]
+[[paradigmatic dashiell hammett]]
+[[soft-nosed genus myriophyllum]]
+[[conceptual rosa eglanteria]]

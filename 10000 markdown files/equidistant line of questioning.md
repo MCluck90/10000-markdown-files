@@ -85,3 +85,11 @@ you drink much like
 Next came ten courtiers or
 : Hold up to without attending to leave the witness said Get up one on
 
+
+## Wikilinks load test
+
+[[congenital clothier]]
+[[unnoticeable oreopteris]]
+[[strong-minded genus dolichotis]]
+[[unquestioning angle of view]]
+[[unchecked moustache]]

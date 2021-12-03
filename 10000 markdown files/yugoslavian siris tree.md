@@ -80,3 +80,10 @@ After that accounts for you
 Advice from this I
 : persisted.
 
+
+## Wikilinks load test
+
+[[stimulating cetraria islandica]]
+[[indecisive congenital megacolon]]
+[[spellbinding impinging]]
+[[pessimum rose-colored starling]]

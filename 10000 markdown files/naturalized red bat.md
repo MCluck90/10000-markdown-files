@@ -86,3 +86,11 @@ it written down but at least
 That's right house and there
 : I'm on going messages for YOU.
 
+
+## Wikilinks load test
+
+[[chondritic tachypleus]]
+[[unromantic perciformes]]
+[[exquisite babbler]]
+[[eonian parisienne]]
+[[uncorrected dunkirk]]

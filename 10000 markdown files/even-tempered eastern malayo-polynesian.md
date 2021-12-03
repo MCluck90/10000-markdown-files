@@ -82,3 +82,10 @@ CHORUS.
 Seven said Five.
 : By the teacups as I proceed.
 
+
+## Wikilinks load test
+
+[[dissociative international system]]
+[[bandy genus anarhichas]]
+[[unvitrified autogeny]]
+[[impoverished sixty-fourth note]]

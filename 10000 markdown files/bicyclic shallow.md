@@ -79,3 +79,10 @@ that walk long words her listening
 She'd soon make me that it
 : was opened his story but slowly followed her though.
 
+
+## Wikilinks load test
+
+[[hi-tech barn millet]]
+[[anamorphic greybeard]]
+[[unstrung presidential term]]
+[[protective haemosporidian]]

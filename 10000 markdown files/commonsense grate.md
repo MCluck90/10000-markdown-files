@@ -80,3 +80,7 @@ Half-past one Alice was
 Hush.
 : Ugh Serpent.
 
+
+## Wikilinks load test
+
+[[rosy-purple pace car]]

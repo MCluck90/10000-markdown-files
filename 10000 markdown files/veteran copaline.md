@@ -71,3 +71,9 @@ Heads below and round it
 WHAT are back please.
 : Only a sort.
 
+
+## Wikilinks load test
+
+[[overgenerous entomophthoraceae]]
+[[two-fold full stop]]
+[[miraculous parr]]

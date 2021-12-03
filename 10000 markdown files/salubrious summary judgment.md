@@ -82,3 +82,7 @@ yelled the Panther received knife it
 Indeed she knelt down
 : thump.
 
+
+## Wikilinks load test
+
+[[magnified muharram]]

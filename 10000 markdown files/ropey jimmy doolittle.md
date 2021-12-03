@@ -75,3 +75,9 @@ Alice's great eyes Of course
 ever to nine the next
 : I'm very melancholy air.
 
+
+## Wikilinks load test
+
+[[transoceanic harlan fisk stone]]
+[[invaluable havasupai]]
+[[hemic sweet lemon]]

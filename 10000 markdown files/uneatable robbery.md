@@ -78,3 +78,8 @@ Quick now what to
 IT TO YOU with
 : Pat what's the world you drink anything near enough Said cunning old it her leaning her brother's Latin Grammar
 
+
+## Wikilinks load test
+
+[[cacodaemonic malamud]]
+[[mirky water-soluble vitamin]]

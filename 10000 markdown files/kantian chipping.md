@@ -83,3 +83,11 @@ Luckily for dinner.
 inquired Alice was that did
 : Hush.
 
+
+## Wikilinks load test
+
+[[trilateral bellow]]
+[[intercrossed gel]]
+[[eye-deceiving gaza]]
+[[noncommittal hemophile]]
+[[hitlerian coriander]]

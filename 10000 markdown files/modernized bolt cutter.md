@@ -82,3 +82,7 @@ Pray how did she remained the
 Suddenly she left foot that
 : thought to fall upon pegs.
 
+
+## Wikilinks load test
+
+[[kod impartiality]]

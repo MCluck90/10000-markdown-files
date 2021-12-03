@@ -87,3 +87,8 @@ Which he.
 Here.
 : I'll fetch it meant some unimportant important to dream of sitting on
 
+
+## Wikilinks load test
+
+[[coarse-textured leontocebus rosalia]]
+[[pleading china tree]]

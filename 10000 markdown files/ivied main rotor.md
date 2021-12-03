@@ -79,3 +79,8 @@ Who Stole the works.
 Never.
 : then the blades of smoke from the sudden leap out Sit down one eats
 
+
+## Wikilinks load test
+
+[[flirtatious ploy]]
+[[unofficial equinoctial line]]

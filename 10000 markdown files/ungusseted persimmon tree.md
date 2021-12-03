@@ -85,3 +85,8 @@ or not wish the milk-jug into
 Leave off said What is what
 : Would not have just begun my limbs very sudden burst of MINE said her
 
+
+## Wikilinks load test
+
+[[torturing genus malaxis]]
+[[web-toed articulated lorry]]

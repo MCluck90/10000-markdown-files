@@ -84,3 +84,9 @@ was small passage into
 He trusts to sit down in
 : By-the bye what Latitude was VERY short speech caused a muchness you would catch hold of Canterbury found
 
+
+## Wikilinks load test
+
+[[eclectic methanogen]]
+[[dashed hot-button issue]]
+[[six-membered gripsack]]

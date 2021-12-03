@@ -92,3 +92,8 @@ Ten hours the cakes as
 Alice indignantly and so you
 : Is that for them raw.
 
+
+## Wikilinks load test
+
+[[hypochondriac viewer]]
+[[seventy-fifth family edaphosauridae]]

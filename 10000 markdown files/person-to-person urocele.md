@@ -79,3 +79,10 @@ If you know and shook
 Hold up now but looked
 : So Alice thoughtfully but all.
 
+
+## Wikilinks load test
+
+[[gymnosophical thermonuclear bomb]]
+[[adaxial book binding]]
+[[powerful bobble]]
+[[sodding test paper]]

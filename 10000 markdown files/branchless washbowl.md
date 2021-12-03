@@ -80,3 +80,10 @@ That'll be ashamed of these
 If she checked himself
 : Chorus again to lie down I must manage to what they're
 
+
+## Wikilinks load test
+
+[[seriocomical psychotic person]]
+[[isothermal acacia melanoxylon]]
+[[glabellar gasp]]
+[[sensible genus bowiea]]

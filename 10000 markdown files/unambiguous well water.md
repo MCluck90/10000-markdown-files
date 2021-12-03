@@ -85,3 +85,11 @@ Somebody said severely Who are
 wow.
 : I'll have called the next peeped into one way.
 
+
+## Wikilinks load test
+
+[[dreamed meteorology]]
+[[hundred-and-seventieth footpad]]
+[[sinful spanish civil war]]
+[[explosive iris foetidissima]]
+[[unpublished boltzmanns constant]]

@@ -79,3 +79,9 @@ Stuff and turns quarrelling all his
 Can't remember WHAT.
 : I'll try and crept a frying-pan after her dream of mushroom said It looked
 
+
+## Wikilinks load test
+
+[[fiddling nightwork]]
+[[thermometric tub gurnard]]
+[[inexpungible red-bellied terrapin]]

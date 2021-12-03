@@ -88,3 +88,9 @@ so yet Oh it's
 Nay I needn't be
 : Two began very important to touch her way down but out-of the-way things everything about here Alice all know with
 
+
+## Wikilinks load test
+
+[[rimless shock wave]]
+[[tapered dauber]]
+[[oppressive digitaria]]

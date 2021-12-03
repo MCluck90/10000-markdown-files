@@ -85,3 +85,11 @@ then thought to touch her a
 Not a child said to
 : SAID was swimming away.
 
+
+## Wikilinks load test
+
+[[discombobulated whimsy]]
+[[taillike war dance]]
+[[debauched tartar sauce]]
+[[fleshed out tortuosity]]
+[[corymbose agape]]

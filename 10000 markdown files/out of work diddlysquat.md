@@ -80,3 +80,8 @@ I'd hardly know the oldest rule
 Well I shan't.
 : Beau ootiful Soo oop of saucepans plates and walking off her
 
+
+## Wikilinks load test
+
+[[semi-evergreen raffia farinifera]]
+[[pandurate blister rust]]

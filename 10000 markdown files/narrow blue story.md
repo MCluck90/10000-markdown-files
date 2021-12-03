@@ -76,3 +76,8 @@ Their heads down upon
 Two lines.
 : Begin at you incessantly stand beating.
 
+
+## Wikilinks load test
+
+[[in league ladys-eardrop]]
+[[spellbinding impinging]]

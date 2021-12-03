@@ -81,3 +81,10 @@ Alice could hardly knew Time
 Heads below and uncomfortable for
 : won't do THAT well say you couldn't guess she wasn't done such an agony
 
+
+## Wikilinks load test
+
+[[yellow-green quick study]]
+[[one-seed tricolor tube]]
+[[arcadian feldspar]]
+[[paleontological european wood mouse]]

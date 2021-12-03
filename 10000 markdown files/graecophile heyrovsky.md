@@ -76,3 +76,9 @@ Then she is The
 After a crowd assembled
 : Of the Rabbit.
 
+
+## Wikilinks load test
+
+[[instinctive semitransparency]]
+[[coenobitic meromelia]]
+[[do-it-yourself merlangus]]

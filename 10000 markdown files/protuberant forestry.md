@@ -72,3 +72,7 @@ Nobody asked YOUR temper and said
 Which is the capital
 : Ah.
 
+
+## Wikilinks load test
+
+[[inflatable disembodied spirit]]

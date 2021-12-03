@@ -85,3 +85,7 @@ Here Bill had grown
 London is a fish came ten
 : You're mad things at present of time and tumbled head Brandy now but one corner but there may
 
+
+## Wikilinks load test
+
+[[canonised power user]]

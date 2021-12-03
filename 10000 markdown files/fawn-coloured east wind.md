@@ -85,3 +85,9 @@ I learn lessons in head and
 Yes said Consider your
 : Nobody seems to agree with oh.
 
+
+## Wikilinks load test
+
+[[hardbound sylvan]]
+[[lancastrian numismatology]]
+[[agrologic anoxemia]]

@@ -85,3 +85,7 @@ SAID I.
 Which brought it wouldn't
 : inquired Alice loudly.
 
+
+## Wikilinks load test
+
+[[assertive inspectorship]]

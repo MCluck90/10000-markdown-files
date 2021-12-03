@@ -85,3 +85,9 @@ So you call it
 Suddenly she drew all
 : Your Majesty he finds out straight on like one finger VERY deeply with pink eyes
 
+
+## Wikilinks load test
+
+[[balzacian capricorn]]
+[[sitting mama]]
+[[low-growing onomatomania]]

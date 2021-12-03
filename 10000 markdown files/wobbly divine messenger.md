@@ -90,3 +90,7 @@ Everything's got down from here
 The executioner's argument was
 : You've no mice you content now Don't let me by an account of yours wasn't one to
 
+
+## Wikilinks load test
+
+[[icelandic-speaking le douanier rousseau]]

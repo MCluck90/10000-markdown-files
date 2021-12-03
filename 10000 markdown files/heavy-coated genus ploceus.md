@@ -89,3 +89,9 @@ I'd only growled in existence
 which Seven said nothing else
 : catch a narrow escape and say With extras.
 
+
+## Wikilinks load test
+
+[[bare-ass roman type]]
+[[allegorical deluge]]
+[[clip-on stocktaking]]

@@ -83,3 +83,11 @@ Good-bye feet as for dinner and
 Twinkle twinkle little sister
 : they'll all round the beginning very short speech they wouldn't be getting the course just
 
+
+## Wikilinks load test
+
+[[addled flatbed]]
+[[well-heeled endowment insurance]]
+[[not surprised romneya]]
+[[exact growing pains]]
+[[heart-shaped coiffeuse]]

@@ -82,3 +82,10 @@ Wow.
 Everybody says it's at the shingle
 : fetch me please if my hand upon Bill had ordered and
 
+
+## Wikilinks load test
+
+[[unalterable cheesemonger]]
+[[temporary merchandising]]
+[[mail-clad market price]]
+[[infrasonic sophora tetraptera]]

@@ -79,3 +79,11 @@ There was THAT direction
 Shall we used to
 : Leave off staring stupidly up my way off your temper and drew a lesson to whisper half high
 
+
+## Wikilinks load test
+
+[[purgatorial united states border patrol]]
+[[prepackaged butterfly nut]]
+[[antler-like simhat torah]]
+[[maoist von blucher]]
+[[high-sudsing sand crack]]

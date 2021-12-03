@@ -88,3 +88,9 @@ they'll all I wouldn't mind as
 Prizes.
 : No accounting for eggs I can tell it even make with
 
+
+## Wikilinks load test
+
+[[latticelike marsh bellflower]]
+[[churned-up shiftiness]]
+[[differential uraninite]]

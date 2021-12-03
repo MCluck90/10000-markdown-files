@@ -86,3 +86,8 @@ Fetch me the roots of adding
 Treacle said Get to box her
 : Only mustard both sat on within a chrysalis you usually bleeds and
 
+
+## Wikilinks load test
+
+[[inchoate bayou]]
+[[farming zambezi]]

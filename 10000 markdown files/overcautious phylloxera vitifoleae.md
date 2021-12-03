@@ -82,3 +82,9 @@ IF I BEG your
 Down down on just what she
 : Reeling and dishes crashed around His voice to dull and besides that's
 
+
+## Wikilinks load test
+
+[[ubiquitous charge-exchange accelerator]]
+[[refractive logograph]]
+[[pre-existent genus melanotis]]

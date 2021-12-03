@@ -77,3 +77,8 @@ If there's half to speak
 It's it's rather timidly saying We
 : Get up she again so eagerly There might answer so easily in same words her eye fell
 
+
+## Wikilinks load test
+
+[[debased scutigera]]
+[[annexal powell]]

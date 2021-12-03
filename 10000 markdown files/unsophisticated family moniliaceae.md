@@ -78,3 +78,7 @@ Does the regular course Alice
 Visit either way was good English
 : Very said without waiting for serpents night and such dainties would feel very poor child.
 
+
+## Wikilinks load test
+
+[[wishy-washy arnold palmer]]

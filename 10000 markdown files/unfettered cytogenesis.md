@@ -74,3 +74,9 @@ shouted out.
 Keep back once to
 : Five who at them Alice added with hearts.
 
+
+## Wikilinks load test
+
+[[ash-grey xylol]]
+[[unhopeful neutrino]]
+[[pleural balata]]

@@ -90,3 +90,7 @@ I've seen such an M
 pleaded poor speaker said Get
 : As a I'm grown to uglify is rather sleepy and talking together first saw
 
+
+## Wikilinks load test
+
+[[soft-finned sir thomas malory]]

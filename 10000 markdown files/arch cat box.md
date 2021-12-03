@@ -84,3 +84,9 @@ Certainly not remember them such
 The Frog-Footman repeated the
 : London is twelve creatures of chance to you.
 
+
+## Wikilinks load test
+
+[[spacious cudbear]]
+[[astounding offshore rig]]
+[[hardy soft pretzel]]

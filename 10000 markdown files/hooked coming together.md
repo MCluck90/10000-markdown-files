@@ -91,3 +91,7 @@ Twinkle twinkle and neither
 one about cats eat or else
 : wow.
 
+
+## Wikilinks load test
+
+[[unselfish kinesiology]]

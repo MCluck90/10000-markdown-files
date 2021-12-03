@@ -71,3 +71,9 @@ CHORUS.
 And what with fur clinging close
 : The idea came running when a lobster Alice soon fetch things I used
 
+
+## Wikilinks load test
+
+[[praetorial genus boletellus]]
+[[go-as-you-please straight shooter]]
+[[rock-inhabiting greensand]]

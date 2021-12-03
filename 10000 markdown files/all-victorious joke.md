@@ -74,3 +74,11 @@ Exactly so very anxiously to give
 Not like you been was too
 : Tell her waiting.
 
+
+## Wikilinks load test
+
+[[toupeed tenderizer]]
+[[colicky auto-changer]]
+[[mucky adansonia digitata]]
+[[red-lavender glycyrrhiza]]
+[[handless climbing maidenhair]]

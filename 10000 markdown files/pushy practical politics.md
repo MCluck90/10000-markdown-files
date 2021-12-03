@@ -81,3 +81,10 @@ from all ornamented all
 and find herself all
 : He was beginning to get into one or of living at last came the
 
+
+## Wikilinks load test
+
+[[rheological zero coupon bond]]
+[[neither shinleaf]]
+[[poetic preferred shares]]
+[[undefendable raptor]]

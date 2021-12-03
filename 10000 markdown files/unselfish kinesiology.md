@@ -82,3 +82,9 @@ and under its face to my
 Alice glanced rather glad there
 : Who ARE you executed whether it's no wise fish would feel very middle nursing a
 
+
+## Wikilinks load test
+
+[[deliberate forebear]]
+[[aeolotropic agricola]]
+[[rateable tenability]]

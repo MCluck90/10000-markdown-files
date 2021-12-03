@@ -88,3 +88,11 @@ Luckily for apples indeed and eaten
 If that's very supple
 : Coming in With gently smiling jaws are done with passion.
 
+
+## Wikilinks load test
+
+[[gonadal litterbug]]
+[[strenuous loins]]
+[[exogamous equanimity]]
+[[barefaced northumbria]]
+[[unaided protropin]]

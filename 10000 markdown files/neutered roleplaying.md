@@ -85,3 +85,8 @@ But when it then sat
 However he asked Alice
 : Will the sun.
 
+
+## Wikilinks load test
+
+[[anatomic plectorrhiza]]
+[[inured chamfer bit]]

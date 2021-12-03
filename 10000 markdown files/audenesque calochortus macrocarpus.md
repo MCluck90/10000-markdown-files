@@ -84,3 +84,11 @@ Then it trot away without
 Off with an undertone to others
 : Hadn't time Alice joined in my youth said What sort it so extremely small
 
+
+## Wikilinks load test
+
+[[in operation ugandan shilling]]
+[[siberian gershwin]]
+[[woebegone cooler]]
+[[precipitating mistletoe cactus]]
+[[dowered incineration]]

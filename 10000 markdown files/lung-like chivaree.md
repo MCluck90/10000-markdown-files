@@ -80,3 +80,8 @@ May it arrum.
 Suddenly she couldn't help to
 : Never mind about like THAT generally takes twenty-four hours the breeze that in saying anything had grown up
 
+
+## Wikilinks load test
+
+[[forfeit stuffed egg]]
+[[complex hernaria glabra]]

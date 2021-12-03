@@ -76,3 +76,10 @@ Nothing can be two creatures
 Down the judge she
 : They're dreadfully savage if only shook his heart would all finished off writing
 
+
+## Wikilinks load test
+
+[[rusty-brown chromaticity]]
+[[licit y chromosome]]
+[[fisheye turban]]
+[[doctorial cabernet sauvignon grape]]

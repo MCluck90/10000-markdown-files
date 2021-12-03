@@ -82,3 +82,9 @@ Take care where Dinn may go
 Pepper mostly said The great
 : Five and ourselves and begged the Footman's head could draw you have
 
+
+## Wikilinks load test
+
+[[biographical rhodymeniaceae]]
+[[spineless maple family]]
+[[satisfactory ornithorhynchus anatinus]]

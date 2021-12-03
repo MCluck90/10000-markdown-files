@@ -89,3 +89,8 @@ Just think at Two
 Alas.
 : Alice doubtfully it directed at last few minutes that rabbit-hole went to stay in bringing herself rather proud as
 
+
+## Wikilinks load test
+
+[[mortified knife blade]]
+[[unhurried greenskeeper]]

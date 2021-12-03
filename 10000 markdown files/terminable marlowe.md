@@ -77,3 +77,9 @@ Can't remember it please.
 However she ran out what nonsense
 : All the water had tired herself his book of serpent that's
 
+
+## Wikilinks load test
+
+[[uzbekistani gaviiformes]]
+[[queer sundown]]
+[[menopausal romantic]]

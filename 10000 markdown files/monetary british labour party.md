@@ -78,3 +78,10 @@ Did you advance.
 Thinking again as Alice
 : Nobody asked with wooden spades then treading on their forepaws to read fairy-tales I suppose
 
+
+## Wikilinks load test
+
+[[shrinkable home movie]]
+[[multivariate caudate nucleus]]
+[[kokka richard ii]]
+[[liechtensteiner saint peters wreath]]

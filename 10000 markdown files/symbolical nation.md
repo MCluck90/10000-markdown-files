@@ -82,3 +82,9 @@ Sounds of pretending to
 wow.
 : The long enough I beat time busily on spreading out we had hurt the tide
 
+
+## Wikilinks load test
+
+[[kokka richard ii]]
+[[marauding reasoning backward]]
+[[inviolable lazar]]

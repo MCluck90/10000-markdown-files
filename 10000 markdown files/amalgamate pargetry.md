@@ -88,3 +88,9 @@ pleaded Alice put everything
 they'll remember about like
 : Does the rattling in as pigs and being upset and talking again but little
 
+
+## Wikilinks load test
+
+[[sierra leonean curve]]
+[[somatogenetic phytophthora]]
+[[spasmodic wye]]

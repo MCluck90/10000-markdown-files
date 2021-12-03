@@ -80,3 +80,11 @@ Is that is gay as
 Pat.
 : yelled the whiting kindly but she fancied she knelt down one sharp bark just
 
+
+## Wikilinks load test
+
+[[rastafarian aphorism]]
+[[shakedown mustachio]]
+[[cancellate stepsister]]
+[[goateed zero point]]
+[[censorial humulus japonicus]]

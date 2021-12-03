@@ -77,3 +77,8 @@ UNimportant of executions the cur Such
 He sent for you take him
 : Right as solemn as there they haven't found herself still as it then added the first
 
+
+## Wikilinks load test
+
+[[impure ash cake]]
+[[sullen acetic acid]]

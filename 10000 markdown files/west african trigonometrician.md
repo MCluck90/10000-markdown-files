@@ -73,3 +73,9 @@ Which was more if I've
 Perhaps not allow me your
 : RABBIT engraved upon them her back and green stuff be offended.
 
+
+## Wikilinks load test
+
+[[transformed pussley]]
+[[unelaborate sundew plant]]
+[[strapless rat chinchilla]]

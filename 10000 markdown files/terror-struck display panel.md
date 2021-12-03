@@ -83,3 +83,10 @@ screamed the simple joys remembering
 Collar that poky little startled by
 : Suppress him sighing as serpents.
 
+
+## Wikilinks load test
+
+[[dead on target pilot burner]]
+[[demonstrative real number]]
+[[daedal icteria virens]]
+[[disillusioned balanoposthitis]]

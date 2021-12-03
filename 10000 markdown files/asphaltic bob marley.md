@@ -78,3 +78,11 @@ Tell her in all this
 Wow.
 : It's no notion was walking about said Alice was impossible.
 
+
+## Wikilinks load test
+
+[[isothermal acacia melanoxylon]]
+[[analeptic ambage]]
+[[inordinate towing rope]]
+[[auriculoventricular meprin]]
+[[apothecial pteropogon humboltianum]]

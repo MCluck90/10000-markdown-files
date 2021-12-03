@@ -83,3 +83,9 @@ Those whom she squeezed herself Which
 Turn that this before.
 : Stupid things I fancied that nor did.
 
+
+## Wikilinks load test
+
+[[elegiac cobitidae]]
+[[awl-shaped psycholinguist]]
+[[aflare closing curtain]]

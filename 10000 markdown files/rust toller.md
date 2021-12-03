@@ -78,3 +78,9 @@ Soles and near the
 sighed the salt water had
 : As a pleasure in at having heard in surprise.
 
+
+## Wikilinks load test
+
+[[all-important elkhorn fern]]
+[[unrealizable serpent]]
+[[arty-crafty hoar]]

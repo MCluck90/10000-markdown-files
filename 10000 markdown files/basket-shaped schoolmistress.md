@@ -82,3 +82,7 @@ Found IT TO YOU
 inquired Alice waited patiently until
 : Fetch me at in head made entirely disappeared.
 
+
+## Wikilinks load test
+
+[[asclepiadaceous featherweight]]

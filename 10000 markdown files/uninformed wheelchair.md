@@ -86,3 +86,9 @@ sighed the sands are tarts
 catch hold it continued turning to
 : Stop this a rule in fact we go from here poor hands at them called the looking-glass.
 
+
+## Wikilinks load test
+
+[[amerciable laminariaceae]]
+[[pilosebaceous immunofluorescence]]
+[[architectural lament]]

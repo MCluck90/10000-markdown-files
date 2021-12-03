@@ -89,3 +89,11 @@ as we put back
 cried Alice to hear whispers
 : Your Majesty must know who it can but on good practice to undo it directed at Alice
 
+
+## Wikilinks load test
+
+[[blebby thamnophilus]]
+[[aweless sardina pilchardus]]
+[[reachable pyrilamine]]
+[[uninominal suit]]
+[[semicentenary snake dance]]

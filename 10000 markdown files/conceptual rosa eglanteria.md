@@ -80,3 +80,11 @@ Found IT.
 Thinking again or three and
 : Two.
 
+
+## Wikilinks load test
+
+[[neuroanatomical erudition]]
+[[anuran plessimeter]]
+[[acid-forming rewriting]]
+[[expiratory hyoscyamus muticus]]
+[[x-linked solicitor]]

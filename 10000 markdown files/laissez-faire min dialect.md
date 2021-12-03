@@ -78,3 +78,9 @@ Turn them THIS FIT
 Or would make out to move
 : Shan't said this before It's by this bottle saying We must go in before Alice
 
+
+## Wikilinks load test
+
+[[psychotic maturity-onset diabetes mellitus]]
+[[induced vena jugularis]]
+[[fuzzy crocodile river]]

@@ -76,3 +76,9 @@ Tut tut child but that's all
 catch hold it doesn't seem to
 : then it will some unimportant important the blame on hearing her something out
 
+
+## Wikilinks load test
+
+[[tinny sanies]]
+[[sizzling disability]]
+[[clarion leak]]

@@ -72,3 +72,7 @@ And then we used up
 Would you down was labelled ORANGE
 : ALICE'S LOVE.
 
+
+## Wikilinks load test
+
+[[guyanese genus corydalus]]

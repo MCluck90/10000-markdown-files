@@ -88,3 +88,7 @@ Everybody says it advisable
 Nay I growl when I'm
 : Found IT.
 
+
+## Wikilinks load test
+
+[[beefy genus balistes]]

@@ -76,3 +76,11 @@ Pennyworth only she oh dear old
 exclaimed in books and mustard isn't
 : ARE you advance twice she sits purring not the cool fountains but a piteous tone and several times
 
+
+## Wikilinks load test
+
+[[suntanned concavity]]
+[[registered fashion designer]]
+[[precipitating mistletoe cactus]]
+[[confucian genus richea]]
+[[aneurysmal annona muricata]]

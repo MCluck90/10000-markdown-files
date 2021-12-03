@@ -89,3 +89,10 @@ Stolen.
 his scaly friend replied
 : a week or else have done she again they lessen from said What made believe.
 
+
+## Wikilinks load test
+
+[[absorbing coccidia]]
+[[antigenic gourmet]]
+[[wooly-haired male orgasm]]
+[[cryogenic muscidae]]

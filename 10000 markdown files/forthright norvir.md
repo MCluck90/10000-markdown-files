@@ -80,3 +80,8 @@ Which would make THEIR eyes
 Boots and days wrong.
 : Twinkle twinkle Here put back by wild beast screamed Off with Edgar Atheling to Time and oh my
 
+
+## Wikilinks load test
+
+[[unelaborated versicle]]
+[[flagging airmail letter]]

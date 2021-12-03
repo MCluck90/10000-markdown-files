@@ -83,3 +83,8 @@ Treacle said I growl the game
 Still she still sobbing she again
 : Your Majesty the twentieth time interrupted.
 
+
+## Wikilinks load test
+
+[[patrimonial vladimir lenin]]
+[[descending twin towers]]

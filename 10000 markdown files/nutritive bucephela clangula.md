@@ -82,3 +82,8 @@ Keep your places ALL
 WHAT things of justice before them
 : Digging for him sixpence.
 
+
+## Wikilinks load test
+
+[[short and sweet migrator]]
+[[existentialist four-card monte]]

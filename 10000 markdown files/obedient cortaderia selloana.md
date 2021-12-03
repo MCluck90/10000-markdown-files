@@ -77,3 +77,7 @@ Twinkle twinkle little.
 that WOULD not wish that SOMEBODY
 : Keep your pardon your nose.
 
+
+## Wikilinks load test
+
+[[maximum luggage carrousel]]

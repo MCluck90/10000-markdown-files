@@ -73,3 +73,11 @@ Therefore I'm getting extremely
 However I've fallen into that
 : Two days.
 
+
+## Wikilinks load test
+
+[[monastic superabundance]]
+[[breezy deportee]]
+[[unregulated bellerophon]]
+[[lentissimo department of the federal government]]
+[[sweeping francois maurice marie mitterrand]]

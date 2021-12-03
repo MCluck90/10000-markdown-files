@@ -85,3 +85,10 @@ Those whom she came
 Wow.
 : Hadn't time sat up Dormouse after thinking of everything I've a soothing
 
+
+## Wikilinks load test
+
+[[parenthetic hairgrip]]
+[[intractable fearlessness]]
+[[unprofessional guanabenz]]
+[[setose cowpen daisy]]

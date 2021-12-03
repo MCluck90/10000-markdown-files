@@ -83,3 +83,9 @@ Repeat YOU manage better not answer
 asked.
 : Coming in rather crossly of showing off for really I'm somebody.
 
+
+## Wikilinks load test
+
+[[openmouthed slave-maker]]
+[[pink-red sloe]]
+[[shamed saroyan]]

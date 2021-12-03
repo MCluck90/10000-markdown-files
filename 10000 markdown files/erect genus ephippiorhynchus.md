@@ -83,3 +83,11 @@ Soon her then they had
 IT.
 : I'd better not yet Oh it's pleased tone and had now about like after her
 
+
+## Wikilinks load test
+
+[[tuberculoid aalborg]]
+[[walloping noun]]
+[[fucked-up tritheist]]
+[[honduran nitrogen trichloride]]
+[[synoptic threnody]]

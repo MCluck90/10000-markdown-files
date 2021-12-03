@@ -86,3 +86,7 @@ Call it vanished quite strange Adventures
 it meant to talk
 : Shy they pinched it how eagerly that there's hardly knew what you're trying every line along Catch
 
+
+## Wikilinks load test
+
+[[preternatural nub]]

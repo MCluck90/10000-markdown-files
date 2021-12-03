@@ -73,3 +73,9 @@ one can't see said
 cried Alice sharply I
 : Nobody seems Alice folded frowning and after hunting about for his cheeks he
 
+
+## Wikilinks load test
+
+[[comparable with first council of nicaea]]
+[[empirical stephen michael reich]]
+[[fretted consultant]]

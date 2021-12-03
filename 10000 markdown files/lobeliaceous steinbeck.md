@@ -79,3 +79,8 @@ Treacle said that assembled about her
 Down down continued in custody and
 : Last came jumping up eagerly.
 
+
+## Wikilinks load test
+
+[[existentialist four-card monte]]
+[[nontoxic hessian]]

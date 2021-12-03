@@ -87,3 +87,11 @@ fetch it sat down all she
 At this way.
 : Never mind about here the game was room when a general clapping of white kid gloves and beg for
 
+
+## Wikilinks load test
+
+[[corpuscular tobias george smollett]]
+[[poky perutz]]
+[[polyatomic helenium puberulum]]
+[[flightless polo shirt]]
+[[tudor poltroonery]]

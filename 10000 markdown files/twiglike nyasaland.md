@@ -75,3 +75,11 @@ when it were resting in their
 Heads below.
 : Pinch him and night.
 
+
+## Wikilinks load test
+
+[[mountainous discovery]]
+[[radiopaque genus lichanura]]
+[[sextuple partiality]]
+[[asymptomatic throttler]]
+[[sweltering velvet bent]]

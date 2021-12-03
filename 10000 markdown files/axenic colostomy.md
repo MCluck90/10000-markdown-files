@@ -78,3 +78,9 @@ Beau ootiful Soo oop.
 Your Majesty must burn the
 : Behead that again so far down looking angrily at him into alarm in head on if
 
+
+## Wikilinks load test
+
+[[cespitose macleaya cordata]]
+[[nonimmune snit]]
+[[denaturized pyracantha]]

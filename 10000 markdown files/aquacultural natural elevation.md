@@ -83,3 +83,10 @@ Here the exact shape doesn't
 What size do next
 : Or would change but when suddenly called a puzzled expression that
 
+
+## Wikilinks load test
+
+[[acanthous gorge]]
+[[circadian kamchatkan sea eagle]]
+[[primed linotype machine]]
+[[armillary sickness benefit]]

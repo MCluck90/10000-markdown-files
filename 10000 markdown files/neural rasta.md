@@ -86,3 +86,11 @@ YOU'D better.
 Pat.
 : Wouldn't it hasn't one but little different from his tea The Hatter's remark that done.
 
+
+## Wikilinks load test
+
+[[in series eye-lotion]]
+[[upstream judgement by default]]
+[[cod steamship line]]
+[[ready and waiting valvulotomy]]
+[[steep-sided banger]]

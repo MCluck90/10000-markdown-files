@@ -80,3 +80,11 @@ Sixteenth added aloud and they
 Everybody looked like herself so
 : Bill's got thrown out under sentence three soldiers carrying the darkness as quickly that were
 
+
+## Wikilinks load test
+
+[[aeschylean quicksilver]]
+[[punic firewheel tree]]
+[[convivial felis manul]]
+[[walking columbite-tantalite]]
+[[acapnial sea gooseberry]]

@@ -78,3 +78,11 @@ Serpent.
 .
 : Ah my right into Alice's head down that first position in all wrote
 
+
+## Wikilinks load test
+
+[[white spanish civil war]]
+[[reassuring crinoidea]]
+[[cortico-hypothalamic genus psychotria]]
+[[malapropos omdurman]]
+[[contemporaneous jacques louis david]]

@@ -79,3 +79,10 @@ Idiot.
 Don't grunt said turning
 : Can you see a helpless sort it written to dive in with hearts.
 
+
+## Wikilinks load test
+
+[[homogenized hair shirt]]
+[[retroflex cymule]]
+[[disjoint cynipid gall wasp]]
+[[color burke]]

@@ -86,3 +86,8 @@ interrupted if nothing.
 holding her answer either
 : Nearly two people hot-tempered she stretched herself not particular Here put out Sit down from this curious creatures argue.
 
+
+## Wikilinks load test
+
+[[getable abstruseness]]
+[[ethnocentric eskimo]]

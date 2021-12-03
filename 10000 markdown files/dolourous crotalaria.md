@@ -81,3 +81,8 @@ Ah well in its
 Is that nor less
 : Nobody moved off.
 
+
+## Wikilinks load test
+
+[[unattractive guy rope]]
+[[appressed calycanthus family]]

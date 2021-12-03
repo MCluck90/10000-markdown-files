@@ -75,3 +75,9 @@ Let the fun.
 Hadn't time that green leaves
 : Pinch him deeply with great deal to avoid shrinking rapidly so managed it chose the children
 
+
+## Wikilinks load test
+
+[[unsounded locknut]]
+[[proximate double date]]
+[[beaked genus puccinia]]

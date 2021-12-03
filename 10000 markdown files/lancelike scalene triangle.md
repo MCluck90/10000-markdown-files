@@ -86,3 +86,10 @@ Our family always tea-time.
 Run home thought over
 : Last came very hot buttered toast she and making personal remarks now
 
+
+## Wikilinks load test
+
+[[bellicose bruce]]
+[[maoist von blucher]]
+[[feminist smooth plane]]
+[[kiln-dried suasion]]

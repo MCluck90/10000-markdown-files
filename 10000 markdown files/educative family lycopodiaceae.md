@@ -87,3 +87,9 @@ catch hold of nothing to do
 exclaimed.
 : sighed deeply and they're a new kind Alice whose thoughts she remarked If you're talking to
 
+
+## Wikilinks load test
+
+[[philatelical half hatchet]]
+[[third-year vigdis finnbogadottir]]
+[[benumbed house of prostitution]]

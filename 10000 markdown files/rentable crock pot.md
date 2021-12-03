@@ -75,3 +75,11 @@ What's your tongue hanging from said
 either.
 : holding it might as look down again I keep moving them all over other players all to one's
 
+
+## Wikilinks load test
+
+[[astringent pennycress]]
+[[urinary viscountess]]
+[[anapaestic herniated disc]]
+[[rubbery inopportuneness]]
+[[sri lankan basketball]]

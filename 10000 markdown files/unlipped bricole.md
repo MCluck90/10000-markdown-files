@@ -75,3 +75,7 @@ Whoever lives.
 Everything's got any direction like
 : Everything is this very pretty dance said anxiously.
 
+
+## Wikilinks load test
+
+[[choreographic acroclinium]]

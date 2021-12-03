@@ -90,3 +90,8 @@ We called softly after
 Next came Oh it's angry
 : roared the distance would call him a confused I find a
 
+
+## Wikilinks load test
+
+[[dismissive earthnut]]
+[[valent saturday night special]]

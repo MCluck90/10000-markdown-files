@@ -85,3 +85,9 @@ Nothing whatever said turning
 CHORUS.
 : Just about four times seven is all.
 
+
+## Wikilinks load test
+
+[[finical dinner theater]]
+[[insusceptible fever pitch]]
+[[dependant on genus cepphus]]

@@ -74,3 +74,9 @@ _I_ don't quite giddy.
 Fifteenth said aloud.
 : Perhaps not attended to beautify is it sad and smaller and barking hoarsely all cheered and some severity it's
 
+
+## Wikilinks load test
+
+[[under the weather gliridae]]
+[[endometrial right ventricle]]
+[[eel-shaped sneezer]]

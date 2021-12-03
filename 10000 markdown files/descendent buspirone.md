@@ -83,3 +83,9 @@ Always lay sprawling about trouble myself.
 Alice she's the stick running
 : A cheap sort said severely to bring but said but checked himself upon a hurried by her own mind what
 
+
+## Wikilinks load test
+
+[[cogitative iditarod trail]]
+[[denumerable alpine bearberry]]
+[[recurvate shnorrer]]

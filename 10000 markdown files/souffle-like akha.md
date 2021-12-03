@@ -82,3 +82,8 @@ Did you never get to say
 his spectacles.
 : With gently smiling jaws.
 
+
+## Wikilinks load test
+
+[[in play ceding back]]
+[[spiderlike ecclesiastical calendar]]

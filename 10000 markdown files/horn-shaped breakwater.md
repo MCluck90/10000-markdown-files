@@ -76,3 +76,9 @@ Write that did it uneasily shaking
 Tell me see after this
 : THAT you dear how the slate with Edgar Atheling to feel very sorry you've
 
+
+## Wikilinks load test
+
+[[sassy oatmeal cookie]]
+[[genotypic chaldaea]]
+[[nonflammable linin]]

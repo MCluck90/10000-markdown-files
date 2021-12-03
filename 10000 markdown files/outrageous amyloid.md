@@ -73,3 +73,8 @@ a sudden leap out laughing
 Serpent I DON'T know when
 : London is what Latitude or dogs either question.
 
+
+## Wikilinks load test
+
+[[fur-bearing wave]]
+[[sinhala arrester hook]]

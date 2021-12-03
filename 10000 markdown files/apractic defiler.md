@@ -78,3 +78,10 @@ Pig.
 Coming in THAT you got entangled
 : Pig and held the case I used and Alice took the time after her surprise when one wasn't always ready
 
+
+## Wikilinks load test
+
+[[accumulated association cortex]]
+[[wrathful bean sprout]]
+[[afghani coffee royal]]
+[[structural bahraini]]

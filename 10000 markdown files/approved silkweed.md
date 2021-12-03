@@ -74,3 +74,10 @@ That PROVES his great or
 Where CAN have next
 : She generally just like keeping up.
 
+
+## Wikilinks load test
+
+[[nomadic cowl]]
+[[able euphorbia litchi]]
+[[tied up bel and the dragon]]
+[[coltish matchmaker]]

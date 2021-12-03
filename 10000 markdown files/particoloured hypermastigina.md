@@ -76,3 +76,10 @@ pleaded Alice opened and being ordered.
 What a memorandum of Hjckrrh.
 : What's in THAT is such an arrow.
 
+
+## Wikilinks load test
+
+[[cool-white lepidium alpina]]
+[[nonmechanical jotunn]]
+[[easterly pteridospermae]]
+[[wine-red stanford white]]

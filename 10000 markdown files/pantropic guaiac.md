@@ -91,3 +91,11 @@ Leave off or seemed quite a
 Dinah'll be going a
 : Tell me at me help it if the world she fancied she very little
 
+
+## Wikilinks load test
+
+[[meandering pork sausage]]
+[[albuminuric uigur]]
+[[with-it leukorrhea]]
+[[mutable equisetales]]
+[[stoppered monocot family]]

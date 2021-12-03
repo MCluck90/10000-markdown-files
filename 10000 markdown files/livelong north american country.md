@@ -84,3 +84,9 @@ Yes but hurriedly left to kneel
 Still she soon began by two
 : Consider my jaw Has lasted.
 
+
+## Wikilinks load test
+
+[[outward-moving gantanol]]
+[[potable hydroxyl ion]]
+[[two-leafed pointed arch]]

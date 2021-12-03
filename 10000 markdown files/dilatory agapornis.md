@@ -80,3 +80,7 @@ YOU.
 No it'll seem to half-past
 : Idiot.
 
+
+## Wikilinks load test
+
+[[compendious central processing unit]]

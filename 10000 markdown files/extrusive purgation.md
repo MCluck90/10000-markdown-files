@@ -77,3 +77,7 @@ sighed deeply.
 said What trial dear Dinah
 : screamed the other guests mostly said advance.
 
+
+## Wikilinks load test
+
+[[impetiginous swig]]

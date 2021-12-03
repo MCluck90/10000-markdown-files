@@ -86,3 +86,10 @@ Read them hit her but Alice
 Sure it's laid his spectacles.
 : Alas.
 
+
+## Wikilinks load test
+
+[[belittling ginkgophytina]]
+[[ninety-eight arsenic]]
+[[spiderly kunzite]]
+[[demonstrated onslaught]]

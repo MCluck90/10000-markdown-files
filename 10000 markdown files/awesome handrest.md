@@ -76,3 +76,8 @@ Anything you find my
 Coming in hand again so easily
 : Soup.
 
+
+## Wikilinks load test
+
+[[neanderthalian periodical]]
+[[severed juvenile body]]

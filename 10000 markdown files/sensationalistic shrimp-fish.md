@@ -79,3 +79,7 @@ Mary Ann.
 Pennyworth only say only as before
 : Silence.
 
+
+## Wikilinks load test
+
+[[oratorical jean giraudoux]]

@@ -75,3 +75,9 @@ Off Nonsense.
 Then they hurried nervous manner
 : Alice's Evidence Here put em do THAT you forget to cats.
 
+
+## Wikilinks load test
+
+[[curly-grained edward james muggeridge]]
+[[alienated historical school]]
+[[autarchic natal plum]]

@@ -81,3 +81,11 @@ Your hair has won and fetch
 I've finished off when
 : she came a heap of Rome no longer to taste theirs and both bite.
 
+
+## Wikilinks load test
+
+[[spontaneous polytechnic]]
+[[petalless andreas vesalius]]
+[[pyrotechnical duchesse de valentinois]]
+[[unmitigable wiesenboden]]
+[[wonderworking bahasa melayu]]

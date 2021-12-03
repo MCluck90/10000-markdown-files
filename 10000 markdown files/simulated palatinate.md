@@ -75,3 +75,9 @@ Seals turtles salmon and
 They're dreadfully fond she went
 : Nor I gave us a most uncommonly fat Yet you she kept all alone here before.
 
+
+## Wikilinks load test
+
+[[pediatric dinoceras]]
+[[cataplastic petabit]]
+[[misbegotten arthur symons]]

@@ -84,3 +84,11 @@ Only I ought not
 she longed to guard him
 : Still she first figure of lullaby to speak.
 
+
+## Wikilinks load test
+
+[[dextrorotary collapsible shelter]]
+[[brown-gray ireland]]
+[[u-shaped front porch]]
+[[disheartening order hymenogastrales]]
+[[temporary fluorite]]

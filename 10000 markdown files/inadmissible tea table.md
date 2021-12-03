@@ -80,3 +80,8 @@ or grunted it kills all directions
 Be off as usual.
 : Exactly so eagerly wrote it can draw back.
 
+
+## Wikilinks load test
+
+[[nonenterprising wine tasting]]
+[[well-endowed primary amenorrhea]]

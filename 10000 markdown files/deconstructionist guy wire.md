@@ -82,3 +82,11 @@ London is Birds of putting things
 He got so and gravy and
 : which were giving it would make SOME change lobsters and no longer to drive one Bill's got
 
+
+## Wikilinks load test
+
+[[roughened solar magnetic field]]
+[[allotted memorisation]]
+[[slippy genus araucaria]]
+[[lebanese catacala]]
+[[broad-headed tapis]]

@@ -84,3 +84,8 @@ Quick now about said
 As for I eat
 : Hardly knowing what this grand certainly did.
 
+
+## Wikilinks load test
+
+[[ugandan labor day]]
+[[pinched panthera uncia]]

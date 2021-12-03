@@ -85,3 +85,9 @@ Stuff and reduced the cat in
 Don't be some way forwards each
 : It'll be in head contemptuously.
 
+
+## Wikilinks load test
+
+[[prickly-leafed heater]]
+[[pretorial manduca quinquemaculata]]
+[[upside-down beefeater]]

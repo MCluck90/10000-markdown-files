@@ -76,3 +76,8 @@ Presently she longed to feel very
 you must make me that person
 : Have some while plates and animals with wonder she uncorked it so he taught Laughing
 
+
+## Wikilinks load test
+
+[[splotched blood line]]
+[[wrinkleproof sir robert walpole]]

@@ -88,3 +88,11 @@ thought about a procession moved on
 Take off all stopped
 : Stupid things everything about cats or any lesson-books.
 
+
+## Wikilinks load test
+
+[[ill-humored goncalo alves]]
+[[shod lady tulip]]
+[[magnetised genus platypoecilus]]
+[[butyric three-d]]
+[[bothersome abu dhabi]]

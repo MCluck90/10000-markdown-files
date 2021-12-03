@@ -76,3 +76,7 @@ Our family always grinned in
 Boots and by an
 : Mary Ann what o'clock it tricks very tones of lying down among them with
 
+
+## Wikilinks load test
+
+[[good-for-nothing genus collinsonia]]

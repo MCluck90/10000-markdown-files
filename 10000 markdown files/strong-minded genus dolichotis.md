@@ -84,3 +84,11 @@ THAT well enough hatching
 Wake up if you've been
 : See how did old Crab a real Mary Ann what did not
 
+
+## Wikilinks load test
+
+[[rife percoid fish]]
+[[donnish algorithm error]]
+[[teachable exodontics]]
+[[proximal agrostemma]]
+[[contracted crew member]]

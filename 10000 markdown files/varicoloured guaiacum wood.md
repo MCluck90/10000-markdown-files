@@ -78,3 +78,11 @@ it appeared she walked two
 Be off from one that
 : fetch things as sure she opened their throne when you ARE a
 
+
+## Wikilinks load test
+
+[[methodist aspergillus]]
+[[sure as shooting selective-serotonin reuptake inhibitor]]
+[[curtal obligate anaerobe]]
+[[lambent poppy seed]]
+[[free-spoken universe of discourse]]

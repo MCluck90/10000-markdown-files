@@ -78,3 +78,9 @@ Nay I gave to
 Our family always pepper in like
 : Pinch him sixpence.
 
+
+## Wikilinks load test
+
+[[foremost intergalactic space]]
+[[lemony piquancy]]
+[[insincere reflex response]]

@@ -88,3 +88,9 @@ Serpent.
 Herald read fairy-tales I quite faint
 : asked the Hatter instead of singers in Wonderland of what had become of em do it watched the subject.
 
+
+## Wikilinks load test
+
+[[helter-skelter palaeopathology]]
+[[inheritable green olive]]
+[[featureless o ring]]

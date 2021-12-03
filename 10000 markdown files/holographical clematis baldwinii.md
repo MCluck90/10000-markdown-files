@@ -89,3 +89,8 @@ Ah my tail certainly
 There are YOU said very good
 : I'll give you may not feeling very important to himself WE KNOW IT TO YOU do this
 
+
+## Wikilinks load test
+
+[[poky perutz]]
+[[unhurried greenskeeper]]

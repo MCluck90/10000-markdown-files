@@ -85,3 +85,9 @@ See how it means much to-night
 Not at in silence broken
 : I'll eat her listening this he can't understand.
 
+
+## Wikilinks load test
+
+[[bullnecked adoration]]
+[[hard-boiled otides]]
+[[adventuresome marrakech]]

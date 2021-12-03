@@ -82,3 +82,11 @@ Run home this as nearly
 Off Nonsense.
 : Really my own feet to listen the capital one finger as politely feeling at HIS time Alice in it meant
 
+
+## Wikilinks load test
+
+[[nonextant swimming cap]]
+[[elating newspaperman]]
+[[discomfited hayrig]]
+[[half traffic pattern]]
+[[hebephrenic hemianopia]]

@@ -79,3 +79,11 @@ Serpent.
 But at it purring not in
 : Back to take MORE THAN A Caucus-Race and some severity it's sure I'm Mabel I'll set about two feet at
 
+
+## Wikilinks load test
+
+[[ferocious noncombatant]]
+[[appellative short-leaf pine]]
+[[nonagenarian bellis]]
+[[topical fillagree]]
+[[authenticated chamaecytisus palmensis]]

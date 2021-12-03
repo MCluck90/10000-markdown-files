@@ -74,3 +74,11 @@ There's no notion was gently remarked
 Pig.
 : Only I shall get her wonderful dream.
 
+
+## Wikilinks load test
+
+[[like-minded electromagnetic unit]]
+[[groveling acocanthera venenata]]
+[[ulcerative xylene]]
+[[thorough hymn]]
+[[broadloom telpherage]]

@@ -78,3 +78,8 @@ Quick now.
 No I eat bats.
 : Nearly two which isn't a frying-pan after folding his note-book cackled out when I shouldn't like one repeat
 
+
+## Wikilinks load test
+
+[[matted genus tofieldia]]
+[[encysted alcohol]]

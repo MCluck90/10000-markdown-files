@@ -81,3 +81,11 @@ Stuff and this it
 Either the sun and pulled
 : One two.
 
+
+## Wikilinks load test
+
+[[rachitic spiderflower]]
+[[drowsy committee for state security]]
+[[wysiwyg skateboard]]
+[[cortico-hypothalamic giant clam]]
+[[pyrogallic us military academy]]

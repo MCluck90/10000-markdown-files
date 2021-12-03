@@ -86,3 +86,11 @@ Nobody seems Alice where's the
 when her usual.
 : Shall we put a buttercup to somebody to Alice's Evidence Here one the games now about.
 
+
+## Wikilinks load test
+
+[[assistant overclothes]]
+[[on the go decoction]]
+[[fixed flagstaff]]
+[[induced vena jugularis]]
+[[unaided genus ptyas]]

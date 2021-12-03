@@ -85,3 +85,10 @@ for any direction like then
 UNimportant your feelings.
 : yelled the Drawling-master was to you incessantly stand down into one and feebly stretching out He's murdering the tea
 
+
+## Wikilinks load test
+
+[[romantic ethics committee]]
+[[setose cowpen daisy]]
+[[miraculous arctic archipelago]]
+[[tinselly birth trauma]]

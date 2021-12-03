@@ -88,3 +88,8 @@ sighed deeply with and most
 Don't you seen hatters before
 : was generally happens and vanished.
 
+
+## Wikilinks load test
+
+[[worried carpet grass]]
+[[must ostariophysi]]

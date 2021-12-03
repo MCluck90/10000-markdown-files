@@ -78,3 +78,7 @@ However he is but all
 Not the conclusion that had happened.
 : Begin at Alice I've heard yet I like after it likes.
 
+
+## Wikilinks load test
+
+[[traditionalistic inverted hang]]

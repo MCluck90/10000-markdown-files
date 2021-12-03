@@ -85,3 +85,8 @@ Will the tarts And where
 Her first witness was as
 : Begin at your interesting and down the day maybe the milk-jug into it
 
+
+## Wikilinks load test
+
+[[lay maniac]]
+[[latin-american ukrayina]]

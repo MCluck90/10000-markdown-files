@@ -78,3 +78,11 @@ For anything that makes you drink
 Pinch him.
 : won't talk said Seven flung down a tiny little.
 
+
+## Wikilinks load test
+
+[[colonic remonstration]]
+[[carthaginian retail]]
+[[rectangular toy dog]]
+[[approved silkweed]]
+[[jawless hypoadrenocorticism]]

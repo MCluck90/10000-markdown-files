@@ -84,3 +84,11 @@ THAT is I say it
 one place around it written
 : persisted.
 
+
+## Wikilinks load test
+
+[[tangential samuel rawson gardiner]]
+[[distributive polish monetary unit]]
+[[subaquatic taklamakan desert]]
+[[biddable anzac]]
+[[coral balarama]]

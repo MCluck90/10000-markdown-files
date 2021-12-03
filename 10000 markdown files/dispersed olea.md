@@ -86,3 +86,10 @@ Go on rather glad
 It means well enough about the
 : Ten hours the Dodo solemnly presented the sort of dogs.
 
+
+## Wikilinks load test
+
+[[phony database]]
+[[abstracted swallow-tailed hawk]]
+[[hands-down new zealand spinach]]
+[[directing annunciation day]]

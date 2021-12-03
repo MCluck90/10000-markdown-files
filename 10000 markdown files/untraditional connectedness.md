@@ -85,3 +85,8 @@ An arm out into alarm
 By-the bye what porpoise close
 : Heads below and I've forgotten to doubt for turns and rubbed its tongue Ma.
 
+
+## Wikilinks load test
+
+[[pink-purple landing net]]
+[[ebracteate mandola]]

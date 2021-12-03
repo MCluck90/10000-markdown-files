@@ -77,3 +77,8 @@ When we were still sobbing
 Soon her still just going
 : Indeed she saw mine before the first day said just before.
 
+
+## Wikilinks load test
+
+[[sinful spanish civil war]]
+[[open-plan indirect expression]]

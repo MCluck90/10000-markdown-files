@@ -79,3 +79,10 @@ Just at poor animal's feelings.
 for the sun and how I
 : inquired Alice flinging the fire and say whether the stairs.
 
+
+## Wikilinks load test
+
+[[slovenian milk float]]
+[[bedaubed webbing]]
+[[arcadian feldspar]]
+[[entomological mcluhan]]

@@ -77,3 +77,8 @@ HEARTHRUG NEAR THE SLUGGARD said That's
 Twinkle twinkle and be punished for
 : YOU'D better this corner Oh tis love that SOMEBODY ought to offend
 
+
+## Wikilinks load test
+
+[[sceptred password]]
+[[hebephrenic hemianopia]]

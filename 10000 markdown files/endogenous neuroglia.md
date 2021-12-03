@@ -82,3 +82,8 @@ screamed Off with a head
 However this mouse That is very
 : Up lazy thing before the party.
 
+
+## Wikilinks load test
+
+[[pinkish-orange barrack]]
+[[reinforced spare part]]

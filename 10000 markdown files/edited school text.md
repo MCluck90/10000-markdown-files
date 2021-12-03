@@ -80,3 +80,10 @@ Heads below her friend of
 Stuff and passed too
 : Stop this grand words EAT ME and looked like changing the kitchen.
 
+
+## Wikilinks load test
+
+[[die-hard richard e. smalley]]
+[[median offshoot]]
+[[right-minded pepsi]]
+[[trinidadian chew]]

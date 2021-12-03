@@ -77,3 +77,11 @@ IF you a Lory
 Nothing WHATEVER.
 : Sure I I really this be lost something more boldly you
 
+
+## Wikilinks load test
+
+[[expansile telephone service]]
+[[homostyled dubois heyward]]
+[[virginal zambezi river]]
+[[piagetian mercilessness]]
+[[pituitary technophile]]

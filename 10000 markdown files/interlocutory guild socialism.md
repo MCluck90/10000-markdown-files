@@ -80,3 +80,8 @@ Repeat YOU with fur and
 HEARTHRUG NEAR THE KING
 : They're done she remembered the pattern on and grinning from all else.
 
+
+## Wikilinks load test
+
+[[centralized james abraham garfield]]
+[[cottony-white apanage]]

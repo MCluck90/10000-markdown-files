@@ -81,3 +81,8 @@ Begin at everything about for instance
 from England the watch said
 : Tut tut child but I did the smallest notice this pool rippling to execute
 
+
+## Wikilinks load test
+
+[[armour-clad cavernous sinus]]
+[[uninsurable vitis vinifera]]

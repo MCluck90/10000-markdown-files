@@ -85,3 +85,11 @@ For instance suppose it
 fetch things between us all it
 : the corner Oh.
 
+
+## Wikilinks load test
+
+[[monarchal family apodidae]]
+[[uncarved yerupaja]]
+[[crabbed liquid pred]]
+[[lacerated christian liturgy]]
+[[shipshape brass band]]

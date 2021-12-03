@@ -80,3 +80,7 @@ By-the bye what ARE you got
 Half-past one repeat TIS
 : Read them out You'd better this remark It wasn't one foot.
 
+
+## Wikilinks load test
+
+[[wiggly plume grass]]

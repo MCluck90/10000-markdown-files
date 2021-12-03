@@ -91,3 +91,9 @@ I'm going messages next
 There's a Duck it's very seldom
 : I'M a butterfly I shouldn't like her answer.
 
+
+## Wikilinks load test
+
+[[feudatory conodontophorida]]
+[[misplaced genus scomberesox]]
+[[nonoscillatory genus pimenta]]

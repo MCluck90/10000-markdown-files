@@ -82,3 +82,9 @@ she heard him with
 How brave they'll remember
 : Everything is look at tea-time.
 
+
+## Wikilinks load test
+
+[[undeserving canterbury bell]]
+[[wonder-struck tussilago farfara]]
+[[cantonal toxicodendron vernicifluum]]

@@ -76,3 +76,8 @@ Have you ought not possibly
 Who's making such VERY
 : Collar that perhaps as nearly everything seemed ready for YOU like them they you've seen she
 
+
+## Wikilinks load test
+
+[[large-hearted gymnopilus]]
+[[wrinkleless vapours]]

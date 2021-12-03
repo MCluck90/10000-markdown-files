@@ -78,3 +78,10 @@ Can you sir if the moon
 Who's making faces in such confusion
 : Stolen.
 
+
+## Wikilinks load test
+
+[[leafed merostomata]]
+[[pucka ball cartridge]]
+[[disgusted law offender]]
+[[preliterate currency]]

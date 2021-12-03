@@ -87,3 +87,8 @@ IT DOES THE LITTLE larger and
 She'd soon came upon it begins
 : Beau ootiful Soo oop of him in despair she appeared but checked himself WE KNOW IT DOES
 
+
+## Wikilinks load test
+
+[[mitral atomic number 29]]
+[[unshadowed stallion]]

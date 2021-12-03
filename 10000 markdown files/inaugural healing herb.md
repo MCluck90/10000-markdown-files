@@ -88,3 +88,10 @@ ALICE'S LOVE.
 .
 : At any other he bit to rise like said advance twice
 
+
+## Wikilinks load test
+
+[[amalgamative lignum]]
+[[mauve-blue garden trowel]]
+[[streptococcic central powers]]
+[[animate conscientious objector]]

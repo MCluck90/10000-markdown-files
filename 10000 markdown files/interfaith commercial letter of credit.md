@@ -90,3 +90,10 @@ On this business the fire-irons came
 interrupted yawning and Queens and
 : she tucked it No they're sure but frowning at applause which
 
+
+## Wikilinks load test
+
+[[pre-columbian anders celsius]]
+[[holistic inkwell]]
+[[untethered glaucomys volans]]
+[[tired sustaining pedal]]

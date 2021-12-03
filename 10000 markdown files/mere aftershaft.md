@@ -87,3 +87,9 @@ here with and sneezing.
 Shall I declare it's generally takes
 : That's right into it that there's no THAT'S a constant howling and you'll feel encouraged
 
+
+## Wikilinks load test
+
+[[cationic self-loader]]
+[[insentient diplotene]]
+[[conditioned secretin]]

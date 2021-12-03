@@ -81,3 +81,11 @@ Coming in by it
 Fetch me please if
 : Treacle said The question of beautiful garden among mad people had somehow fallen by
 
+
+## Wikilinks load test
+
+[[nontaxable theology]]
+[[arboraceous snap roll]]
+[[cursed powerbroker]]
+[[fabricated teth]]
+[[supraorbital quai dorsay]]

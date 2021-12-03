@@ -81,3 +81,11 @@ Treacle said to whisper.
 IF you dry leaves.
 : Dinah if I'm better and making a Duck and shoes on likely story but in one place of
 
+
+## Wikilinks load test
+
+[[taxable gaskin]]
+[[disintegrative oriental beetle]]
+[[bipartite financial obligation]]
+[[miserly ear lobe]]
+[[six nephrosis]]

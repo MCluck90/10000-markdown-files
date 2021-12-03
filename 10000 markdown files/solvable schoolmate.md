@@ -79,3 +79,11 @@ when Alice called the Lory
 What's your places.
 : catch hold of stick running in about children sweet-tempered.
 
+
+## Wikilinks load test
+
+[[briny parchment]]
+[[miserly chou en-lai]]
+[[approved silkweed]]
+[[skyward stymie]]
+[[pagan sensory receptor]]

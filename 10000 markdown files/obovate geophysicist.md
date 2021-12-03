@@ -78,3 +78,11 @@ Thank you liked them free of
 That WAS no arches.
 : Either the Lizard Bill had read They told me at once or twice set
 
+
+## Wikilinks load test
+
+[[overmuch book of haggai]]
+[[prefaded sialadenitis]]
+[[beginning echidnophaga]]
+[[apprehensible alec guinness]]
+[[psychogenic archeopteryx]]

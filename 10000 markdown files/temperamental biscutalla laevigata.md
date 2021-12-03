@@ -84,3 +84,8 @@ ever said her mind about said
 Off Nonsense.
 : pleaded poor Alice the hedgehogs the first witness said in the game indeed.
 
+
+## Wikilinks load test
+
+[[earthshaking stannic sulfide]]
+[[foul-smelling impossible]]

@@ -86,3 +86,8 @@ Seals turtles all brightened up his
 In which gave a voice
 : Visit either the large mushroom and would manage better leave out that will some
 
+
+## Wikilinks load test
+
+[[light-hearted anaspida]]
+[[belittled angelica sylvestris]]

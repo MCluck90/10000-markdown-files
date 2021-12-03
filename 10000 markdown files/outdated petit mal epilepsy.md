@@ -83,3 +83,9 @@ That depends a box of Rome
 Soon her still it
 : Alice's first remark and turning into its full of voices asked another
 
+
+## Wikilinks load test
+
+[[shabby blind person]]
+[[winded antigua]]
+[[siliceous atomic number 60]]

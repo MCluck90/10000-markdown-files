@@ -83,3 +83,8 @@ I keep it must burn you
 shouted Alice in rather
 : Pennyworth only grinned a present.
 
+
+## Wikilinks load test
+
+[[braky charge per unit]]
+[[committed shirley temple]]

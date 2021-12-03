@@ -81,3 +81,9 @@ Somebody said in search of
 May it set them as he
 : Which brought it so indeed.
 
+
+## Wikilinks load test
+
+[[ungraceful medulla]]
+[[coal-burning marlinspike]]
+[[photoconductive perspicacity]]

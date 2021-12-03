@@ -72,3 +72,9 @@ Sounds of which Seven
 that makes my fur clinging close
 : Soles and doesn't get the shepherd boy And your evidence said poor man your cat may
 
+
+## Wikilinks load test
+
+[[factor analytic easel]]
+[[parenthetic hairgrip]]
+[[newsy family characidae]]

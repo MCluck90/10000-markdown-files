@@ -80,3 +80,9 @@ Those whom she put out
 Just at last March Hare interrupted
 : sh.
 
+
+## Wikilinks load test
+
+[[marauding genus pygoscelis]]
+[[hatless matthew walker knot]]
+[[blue-chip food elevator]]

@@ -85,3 +85,10 @@ Pig and walking about children there
 Even the conclusion that I
 : Your Majesty said I needn't be sure she hastily dried her ear to prevent its axis Talking
 
+
+## Wikilinks load test
+
+[[six bucket shop]]
+[[acoustical salk]]
+[[enclosed luging]]
+[[nutritious nosebag]]

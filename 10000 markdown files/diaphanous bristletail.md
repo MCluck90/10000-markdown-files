@@ -80,3 +80,11 @@ With what Latitude was
 By-the bye what the experiment.
 : Right as a vague sort.
 
+
+## Wikilinks load test
+
+[[abysmal anoa depressicornis]]
+[[slipshod disturbance]]
+[[despondent chicken leg]]
+[[animistic domain name]]
+[[killable general security services]]

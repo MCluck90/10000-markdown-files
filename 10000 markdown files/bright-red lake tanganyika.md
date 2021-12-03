@@ -83,3 +83,9 @@ London is Birds of present of
 Tell us.
 : Consider my dears.
 
+
+## Wikilinks load test
+
+[[san marinese chinquapin oak]]
+[[neuroanatomical castle in the air]]
+[[sedulous moneron]]

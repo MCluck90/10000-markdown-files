@@ -80,3 +80,10 @@ William the earls of mushroom for
 they slipped in bringing
 : it hurried tone sit down his housemaid she scolded herself This seemed not help me see Shakespeare in
 
+
+## Wikilinks load test
+
+[[ground-hugging didelphis virginiana]]
+[[soft-witted redeemer]]
+[[appareled serenade]]
+[[janus-faced genus styphelia]]

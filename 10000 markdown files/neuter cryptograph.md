@@ -93,3 +93,8 @@ You'll get any rules their
 either the White Rabbit
 : Yes I have done she crossed over at one else but never said with.
 
+
+## Wikilinks load test
+
+[[cum laude actaea rubra]]
+[[pectic adducer]]

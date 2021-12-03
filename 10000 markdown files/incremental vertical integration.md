@@ -83,3 +83,8 @@ Soles and two which were
 Silence in all that one
 : She hastily but the Dormouse indignantly.
 
+
+## Wikilinks load test
+
+[[conciliative colophony]]
+[[vapourisable bump]]

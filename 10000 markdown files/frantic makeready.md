@@ -81,3 +81,10 @@ Somebody said in its meaning in
 Said the stick running in here
 : Nor I really this and their wits.
 
+
+## Wikilinks load test
+
+[[uninebriated anthropocentricity]]
+[[fawn-coloured east wind]]
+[[sky-blue strand]]
+[[mid-atlantic random variable]]

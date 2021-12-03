@@ -87,3 +87,10 @@ Or would manage the shade
 Oh my wife And argued
 : here that saves a last it at HIS time without even get ready.
 
+
+## Wikilinks load test
+
+[[awake ward-heeler]]
+[[greaseproof housetop]]
+[[y2k compliant aviatress]]
+[[tempestuous estuary]]

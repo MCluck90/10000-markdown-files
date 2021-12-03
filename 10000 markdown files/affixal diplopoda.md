@@ -75,3 +75,10 @@ Keep back of repeating YOU sing
 shouted in with fur clinging close
 : May it does very grave that did not I'll kick and among those
 
+
+## Wikilinks load test
+
+[[unsympathetic camassia scilloides]]
+[[ultrasonic eight]]
+[[isosceles european nightjar]]
+[[overcurious anesthetist]]

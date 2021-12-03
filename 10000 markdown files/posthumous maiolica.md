@@ -79,3 +79,9 @@ Not the fact there's half
 Same as for turns
 : Alice after the proposal.
 
+
+## Wikilinks load test
+
+[[edentate drumlin]]
+[[petrous sterculia gum]]
+[[mediterranean drift ice]]

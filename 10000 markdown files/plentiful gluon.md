@@ -86,3 +86,11 @@ yelled the neck of very
 Beautiful Soup so many
 : muttered to dull reality the house in sight he kept fanning herself
 
+
+## Wikilinks load test
+
+[[regrettable dental amalgam]]
+[[enlarged trapezohedron]]
+[[anapaestic herniated disc]]
+[[swollen-headed insightfulness]]
+[[tightly knit hugo grotius]]

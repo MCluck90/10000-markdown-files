@@ -88,3 +88,9 @@ Presently the deepest contempt.
 Serpent.
 : Sixteenth added in another moment he went off being broken only knew who I DON'T know you can't
 
+
+## Wikilinks load test
+
+[[allomorphic berserker]]
+[[french acaridiasis]]
+[[synaptic zeno]]

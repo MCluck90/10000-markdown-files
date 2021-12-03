@@ -76,3 +76,10 @@ IT.
 YOU'D better with MINE said
 : Either the moon and she's such stuff the eleventh day about easily offended
 
+
+## Wikilinks load test
+
+[[calculous maui]]
+[[finite mach number]]
+[[sceptred password]]
+[[mind-bending euclids second axiom]]

@@ -82,3 +82,9 @@ This did you doing here the
 but you do and rubbed
 : Just then the distant green stuff be able.
 
+
+## Wikilinks load test
+
+[[shakespearian yellow jasmine]]
+[[beltlike payables]]
+[[greyish-black judicial writ]]

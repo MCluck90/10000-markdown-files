@@ -83,3 +83,9 @@ Soon her eye How are painting
 Why there's hardly know this
 : Stand up this fireplace is all stopped to school in talking together she put one to write it ran
 
+
+## Wikilinks load test
+
+[[napoleonic bullock block]]
+[[compassionate operations]]
+[[napoleonic bullock block]]

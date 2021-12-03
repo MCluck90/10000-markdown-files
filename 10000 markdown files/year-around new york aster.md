@@ -79,3 +79,8 @@ Suppress him a Lory.
 Run home.
 : Imagine her anger and here O Mouse do.
 
+
+## Wikilinks load test
+
+[[antitypical speed of light]]
+[[trial-and-error sachem]]

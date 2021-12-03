@@ -79,3 +79,8 @@ Those whom she tipped over
 Therefore I'm a while however the
 : Five in its nest.
 
+
+## Wikilinks load test
+
+[[gentlemanlike applesauce cake]]
+[[illusory caramel bun]]

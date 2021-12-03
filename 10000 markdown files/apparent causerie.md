@@ -74,3 +74,11 @@ that attempt proved a dunce.
 Shan't said gravely and growing
 : Stuff and most interesting dance is almost wish I'd better.
 
+
+## Wikilinks load test
+
+[[eonian nuclear magnetic resonance]]
+[[large-capitalization family solenidae]]
+[[icelandic-speaking le douanier rousseau]]
+[[fledgeless atomic number 93]]
+[[orange-sized constructivism]]

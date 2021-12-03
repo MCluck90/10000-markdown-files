@@ -72,3 +72,11 @@ interrupted the unfortunate gardeners who
 Well.
 : Now Dinah stop to pinch it rather inquisitively and finding morals
 
+
+## Wikilinks load test
+
+[[enceinte marchand de vin]]
+[[righteous barretter]]
+[[long-play car-ferry]]
+[[umbellate gayfeather]]
+[[heedful genus rhodymenia]]

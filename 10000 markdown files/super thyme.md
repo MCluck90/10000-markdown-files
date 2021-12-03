@@ -81,3 +81,8 @@ Do come back of
 See how the doubled-up soldiers
 : Hadn't time.
 
+
+## Wikilinks load test
+
+[[twiglike nyasaland]]
+[[neuroendocrine mr.]]

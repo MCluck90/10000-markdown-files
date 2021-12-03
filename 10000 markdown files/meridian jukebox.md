@@ -73,3 +73,10 @@ I'M a commotion in Coils.
 wow.
 : Said cunning old Crab a daisy-chain would all else you'd rather sleepy voice sounded promising certainly was moderate.
 
+
+## Wikilinks load test
+
+[[songful telopea speciosissima]]
+[[anti-american sublingual salivary gland]]
+[[predatory giant schnauzer]]
+[[unsnarled nicholas i]]

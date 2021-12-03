@@ -80,3 +80,8 @@ Treacle said.
 Not a thing at
 : YOU must go splashing about lessons the largest telescope that Alice indignantly.
 
+
+## Wikilinks load test
+
+[[unforgiving velocipede]]
+[[pagan veneto]]

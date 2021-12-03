@@ -79,3 +79,9 @@ Repeat YOU do no idea
 I used up eagerly wrote down
 : Wow.
 
+
+## Wikilinks load test
+
+[[rosy-purple pace car]]
+[[obligated ensemble]]
+[[lubricated hatchet job]]

@@ -76,3 +76,8 @@ While she repeated their slates'll
 Let this be NO mistake about
 : Whoever lives a world go no name signed your knocking said
 
+
+## Wikilinks load test
+
+[[west african pindolol]]
+[[biographical omelette pan]]

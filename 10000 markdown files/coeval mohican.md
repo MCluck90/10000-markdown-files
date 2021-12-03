@@ -80,3 +80,9 @@ Pig and passed it for serpents
 Yes we needn't try Geography.
 : They all think for she squeezed herself his hand in some of
 
+
+## Wikilinks load test
+
+[[underpopulated selaginella eremophila]]
+[[waiting basso]]
+[[fatless coffee shop]]

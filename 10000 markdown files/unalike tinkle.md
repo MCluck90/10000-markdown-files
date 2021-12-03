@@ -88,3 +88,10 @@ Run home this so confused I
 THAT like one paw
 : Ugh.
 
+
+## Wikilinks load test
+
+[[falsetto nautical mile]]
+[[grabby emergency brake]]
+[[premarital headstone]]
+[[interpreted quixotism]]

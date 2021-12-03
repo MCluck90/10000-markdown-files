@@ -79,3 +79,10 @@ Hadn't time while and
 Stupid things I went
 : A nice little wider.
 
+
+## Wikilinks load test
+
+[[southbound spatangoida]]
+[[non compos mentis edison]]
+[[wasp-waisted registered security]]
+[[terse bulnesia sarmienti]]

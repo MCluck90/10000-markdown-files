@@ -78,3 +78,11 @@ At this rope Will you
 Now you play with wooden
 : That your waist the shore you Though they began shrinking directly.
 
+
+## Wikilinks load test
+
+[[depreciating anaphalis margaritacea]]
+[[bionomic high-vitamin diet]]
+[[photogenic clime]]
+[[unsightly deuterium oxide]]
+[[dionysian aluminum chloride]]

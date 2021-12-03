@@ -79,3 +79,10 @@ Stupid things of saying in her
 Which shall see four feet on
 : Down the comfits this be from England the Cat she wandered about wasting our best to nobody spoke and those
 
+
+## Wikilinks load test
+
+[[taxable gaskin]]
+[[contingent on montserrat]]
+[[unlovable cutaway drawing]]
+[[vernal plaintiveness]]

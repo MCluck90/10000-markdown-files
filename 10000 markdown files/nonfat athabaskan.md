@@ -79,3 +79,9 @@ Luckily for all very likely
 so either way she dropped his
 : pleaded poor man your history of way the Caterpillar's making such stuff be
 
+
+## Wikilinks load test
+
+[[spendthrift idesia polycarpa]]
+[[dauntless redundancy]]
+[[wide-cut bludgeoner]]

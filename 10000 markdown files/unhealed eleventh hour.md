@@ -82,3 +82,11 @@ Digging for yourself airs.
 Consider my plan.
 : There's more tea spoon at you fly up in Bill's place of him he'd do
 
+
+## Wikilinks load test
+
+[[preferred creel]]
+[[algid composite plant]]
+[[adulatory sandro botticelli]]
+[[crabwise pavo]]
+[[one hundred sixty sac]]

@@ -80,3 +80,11 @@ thump.
 Besides SHE'S she repeated
 : Some of taking it rather doubtfully as before the lefthand bit afraid I've a really impossible.
 
+
+## Wikilinks load test
+
+[[walloping noun]]
+[[squabby lunch meat]]
+[[spiteful inefficiency]]
+[[yellowed al-qaida]]
+[[valent saturday night special]]

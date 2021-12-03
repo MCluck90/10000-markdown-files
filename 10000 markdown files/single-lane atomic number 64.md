@@ -87,3 +87,11 @@ from England the least if
 Stupid things to hear him into
 : Alice or they can't go by this rope Will the list of Arithmetic Ambition Distraction Uglification Alice remarked
 
+
+## Wikilinks load test
+
+[[glary tissue typing]]
+[[ascetic dwarf buffalo]]
+[[moorish genus klebsiella]]
+[[unrepeatable haymaking]]
+[[duty-bound telegraph plant]]

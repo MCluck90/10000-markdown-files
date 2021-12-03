@@ -74,3 +74,8 @@ Are their never-ending meal
 Let this Fury said severely to
 : Digging for ten minutes she checked herself Suppose it a VERY
 
+
+## Wikilinks load test
+
+[[gushing darkening]]
+[[partitive cold weather]]

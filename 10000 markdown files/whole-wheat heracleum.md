@@ -89,3 +89,9 @@ You.
 Will you come once to
 : Pat.
 
+
+## Wikilinks load test
+
+[[closed-door xxy-syndrome]]
+[[pandemic lovers knot]]
+[[flirtatious ploy]]

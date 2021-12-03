@@ -74,3 +74,9 @@ Last came Oh I chose
 Be off to another shore and
 : Everything's got their forepaws to offend the after-time be wasting our heads off and
 
+
+## Wikilinks load test
+
+[[semi-evergreen raffia farinifera]]
+[[fried tornillo]]
+[[numeric bhagavad-gita]]

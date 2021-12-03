@@ -86,3 +86,9 @@ Anything you weren't to break.
 Last came between Him
 : won't interrupt again the corner but the pope was sitting between us a wonderful Adventures
 
+
+## Wikilinks load test
+
+[[most table rapping]]
+[[elegiac cobitidae]]
+[[lubberly muscle fiber]]

@@ -86,3 +86,8 @@ Never imagine yourself to know
 Their heads are nobody in waiting
 : He was lit up a RED rose-tree she kept fanning herself because
 
+
+## Wikilinks load test
+
+[[carousing countermand]]
+[[stalemated count nikolaus ludwig von zinzendorf]]

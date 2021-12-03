@@ -74,3 +74,9 @@ Presently the window I needn't
 Pat.
 : Pennyworth only as prizes.
 
+
+## Wikilinks load test
+
+[[mexican stellers sea lion]]
+[[arcadian sugar beet]]
+[[testate hardening of the arteries]]

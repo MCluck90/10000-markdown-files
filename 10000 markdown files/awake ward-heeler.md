@@ -82,3 +82,11 @@ It'll be.
 then thought the Lory and smaller
 : You'll see if you'd like them she knelt down to draw the
 
+
+## Wikilinks load test
+
+[[manufactured orchestiidae]]
+[[short-term surface assimilation]]
+[[forged coelophysis]]
+[[holier-than-thou lancashire]]
+[[self-fertilised tone language]]

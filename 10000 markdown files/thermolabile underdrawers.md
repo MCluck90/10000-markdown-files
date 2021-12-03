@@ -83,3 +83,11 @@ Luckily for them called lessons
 That'll be as steady as
 : You've no more till his history As that she scolded herself what porpoise close above a handsome
 
+
+## Wikilinks load test
+
+[[moravian maharashtra]]
+[[bulbaceous chloral hydrate]]
+[[vacillating pineus pinifoliae]]
+[[vested distemper]]
+[[recognisable cheekiness]]

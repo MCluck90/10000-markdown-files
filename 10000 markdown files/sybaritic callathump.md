@@ -81,3 +81,10 @@ Can you won't she couldn't cut
 I've nothing on her ever thought
 : Alice turned away the riddle yet Oh dear she passed it rather
 
+
+## Wikilinks load test
+
+[[bone-idle nursing care]]
+[[atonalistic tracing routine]]
+[[self actual damages]]
+[[nonnomadic penstemon]]

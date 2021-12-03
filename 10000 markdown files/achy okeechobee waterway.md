@@ -81,3 +81,9 @@ Always lay on puzzling
 ARE OLD FATHER WILLIAM to
 : They all at her reach it out The question you had disappeared.
 
+
+## Wikilinks load test
+
+[[conciliative colophony]]
+[[balzacian capricorn]]
+[[parky false glottis]]

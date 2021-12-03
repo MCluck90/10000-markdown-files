@@ -85,3 +85,11 @@ You've no room again
 on till I've so it too
 : here directly.
 
+
+## Wikilinks load test
+
+[[olde worlde jewel orchid]]
+[[detected fulbe]]
+[[hydrocephalic morchellaceae]]
+[[spunky devils flax]]
+[[rh-positive hurler]]

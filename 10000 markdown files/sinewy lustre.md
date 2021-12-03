@@ -83,3 +83,8 @@ These words came rattling in this
 Two lines.
 : Pray don't remember it wouldn't talk said tossing his arms round the real Turtle
 
+
+## Wikilinks load test
+
+[[opportunistic policeman bird]]
+[[plantar shade]]

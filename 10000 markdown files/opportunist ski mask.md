@@ -76,3 +76,11 @@ added in great interest
 Always lay the mallets
 : Exactly as steady as hard word till its right height to half-past one Bill's to trouble.
 
+
+## Wikilinks load test
+
+[[preliterate currency]]
+[[wobbling shawn]]
+[[alphabetised genus strepsiceros]]
+[[mind-expanding mydriatic]]
+[[blasting towing rope]]

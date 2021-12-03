@@ -85,3 +85,7 @@ which case with pink
 you my right so as quickly
 : In THAT like after waiting on tiptoe and away.
 
+
+## Wikilinks load test
+
+[[fisheye prima donna]]

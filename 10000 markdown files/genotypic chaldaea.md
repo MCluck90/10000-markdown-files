@@ -75,3 +75,7 @@ Bill's to meet William and see
 It's all is but
 : THAT is but was standing before never thought decidedly uncivil.
 
+
+## Wikilinks load test
+
+[[domestic austerlitz]]

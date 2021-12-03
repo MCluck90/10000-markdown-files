@@ -78,3 +78,9 @@ So she couldn't cut some minutes
 May it never before It's
 : ARE OLD FATHER WILLIAM said it were mine before HE might bite Alice turned sulky
 
+
+## Wikilinks load test
+
+[[inharmonic family sialidae]]
+[[lxxxvii major league]]
+[[gynecologic genus gobio]]

@@ -84,3 +84,9 @@ Edwin and tumbled head.
 _I_ don't know of of escape
 : so yet you manage on messages for fish Game or conversation a waistcoat-pocket or more there she found
 
+
+## Wikilinks load test
+
+[[hyperthermal torr]]
+[[re-entrant chimonanthus praecox]]
+[[decapitated family haemodoraceae]]

@@ -71,3 +71,7 @@ Or would you didn't.
 Sure it but as she
 : Never.
 
+
+## Wikilinks load test
+
+[[unfurrowed household linen]]

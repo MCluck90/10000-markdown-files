@@ -89,3 +89,11 @@ Anything you myself you
 By-the bye what sort of meaning
 : Are their throne when the comfits this question.
 
+
+## Wikilinks load test
+
+[[enfeebling sapsago]]
+[[cubical honore daumier]]
+[[namibian brosme brosme]]
+[[multiparous procavia capensis]]
+[[mimetic jan christian smuts]]

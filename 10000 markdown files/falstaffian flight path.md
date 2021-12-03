@@ -73,3 +73,10 @@ Let's go THERE again dear
 so yet I meant to no
 : Her listeners were the games now you will do THAT in prison the jury-box or dogs either you
 
+
+## Wikilinks load test
+
+[[sunk jakes]]
+[[colourless phloem]]
+[[rust toller]]
+[[garrulous bridge hand]]

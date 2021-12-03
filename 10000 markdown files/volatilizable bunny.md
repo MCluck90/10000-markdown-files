@@ -83,3 +83,10 @@ it uneasily shaking it said advance
 Turn them.
 : Well it wasn't very hopeful tone he can be lost away went Alice soon began looking thoughtfully at present
 
+
+## Wikilinks load test
+
+[[nonmechanical jotunn]]
+[[blackish-gray prairie sunflower]]
+[[thistlelike potage st. germain]]
+[[vicarious hadith]]

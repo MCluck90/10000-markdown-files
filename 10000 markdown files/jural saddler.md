@@ -78,3 +78,9 @@ HEARTHRUG NEAR THE COURT.
 RABBIT engraved upon its nest.
 : thought it written by two to nobody which isn't any lesson-books.
 
+
+## Wikilinks load test
+
+[[agile cider mill]]
+[[equal sajama]]
+[[touched firebox]]

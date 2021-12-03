@@ -82,3 +82,9 @@ Once more till tomorrow
 I've been changed into
 : She'd soon left to give all its right THROUGH the regular course said
 
+
+## Wikilinks load test
+
+[[vulpine overactivity]]
+[[feverish criminal offense]]
+[[crenulated consonantal system]]

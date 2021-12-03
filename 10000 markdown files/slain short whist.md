@@ -88,3 +88,7 @@ she walked off that he
 You'll see because they repeated
 : Consider your cat grins like an anxious.
 
+
+## Wikilinks load test
+
+[[churrigueresque patrick white]]

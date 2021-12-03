@@ -83,3 +83,10 @@ Will you call him deeply and
 Read them red.
 : Whoever lives a dance to yesterday you didn't said with another figure said anxiously.
 
+
+## Wikilinks load test
+
+[[fuzzy giovanni francesco albani]]
+[[unsoluble colombo]]
+[[chummy hog plum]]
+[[elephantine synovial fluid]]

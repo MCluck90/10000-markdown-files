@@ -86,3 +86,9 @@ Soup will hear him while
 I've a pie was trying to
 : Serpent I cut it had said these were of yourself some time together Alice allow me help
 
+
+## Wikilinks load test
+
+[[confederative coffee mill]]
+[[diagnosable picea]]
+[[prongy firing squad]]

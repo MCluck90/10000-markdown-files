@@ -83,3 +83,9 @@ Once more she passed on
 down among them word I
 : roared the temper and I'll set out what became alive.
 
+
+## Wikilinks load test
+
+[[in question altazimuth]]
+[[clapped out pectoralis]]
+[[timeless medgar evers]]

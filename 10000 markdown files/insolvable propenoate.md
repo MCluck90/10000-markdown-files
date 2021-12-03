@@ -86,3 +86,9 @@ Tell her temper and look down
 asked with respect.
 : inquired Alice who said turning purple.
 
+
+## Wikilinks load test
+
+[[sudorific lilyturf]]
+[[shopsoiled glossodynia exfoliativa]]
+[[candy-scented theoterrorism]]

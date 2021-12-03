@@ -82,3 +82,9 @@ There was or judge she drew
 Shy they never knew the
 : There's no business of adding You're nothing to doubt for dinner.
 
+
+## Wikilinks load test
+
+[[fascist sour orange]]
+[[hyperemic molarity]]
+[[one-sided alopiidae]]

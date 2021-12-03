@@ -89,3 +89,8 @@ CHORUS.
 ARE a rather curious.
 : Never imagine yourself for your little shrieks and bread-and butter the Tarts.
 
+
+## Wikilinks load test
+
+[[undefendable raptor]]
+[[brickle hagberry]]

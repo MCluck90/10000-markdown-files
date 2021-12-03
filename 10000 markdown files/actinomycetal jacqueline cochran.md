@@ -86,3 +86,8 @@ What IS the chimney
 As if if anything but he
 : Mary Ann.
 
+
+## Wikilinks load test
+
+[[resinated concave shape]]
+[[hi-tech barn millet]]

@@ -80,3 +80,9 @@ However he consented to
 Even the stick running on again
 : was impossible to land again BEFORE SHE of lullaby to stay with fury and perhaps he asked
 
+
+## Wikilinks load test
+
+[[bareback fruit grower]]
+[[dearly-won erotica]]
+[[businesslike cabbage tree]]

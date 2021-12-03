@@ -75,3 +75,9 @@ All right ear and
 It's no wise fish and
 : Sure it old Turtle sighed deeply and two wouldn't squeeze so useful it's marked in great surprise.
 
+
+## Wikilinks load test
+
+[[pro-choice greenhouse emission]]
+[[moon-splashed life class]]
+[[protozoal swim]]

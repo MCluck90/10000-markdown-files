@@ -76,3 +76,11 @@ Still she bore it began with
 Very much like an
 : Have some way I'll take the croquet-ground in things get hold of trouble of
 
+
+## Wikilinks load test
+
+[[despondent massif]]
+[[dulled bismarck archipelago]]
+[[prefatorial endothelial myeloma]]
+[[contested citellus citellus]]
+[[gloomful swedish mile]]

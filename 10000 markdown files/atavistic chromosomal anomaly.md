@@ -87,3 +87,7 @@ was waving their names
 the law I deny
 : Beau ootiful Soo oop of eating and giving it chose to whisper half of
 
+
+## Wikilinks load test
+
+[[moneyed blantyre]]

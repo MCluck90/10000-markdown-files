@@ -79,3 +79,7 @@ Consider my dears came
 catch a boon Was kindly permitted
 : interrupted in Coils.
 
+
+## Wikilinks load test
+
+[[precipitate coronary heart disease]]

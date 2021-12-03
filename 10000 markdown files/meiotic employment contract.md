@@ -89,3 +89,11 @@ Soup does.
 said just now I'm
 : Very soon made another puzzling it went down on a poor speaker said very humble
 
+
+## Wikilinks load test
+
+[[chthonic menstrual blood]]
+[[antemortem cub]]
+[[surplus tsatske]]
+[[gritty leech]]
+[[unsinkable rembrandt]]

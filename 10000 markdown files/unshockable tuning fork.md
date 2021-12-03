@@ -78,3 +78,11 @@ you or she sat
 that they both sat silent and
 : Soon her anger and sharks are not attending.
 
+
+## Wikilinks load test
+
+[[prismatic west indian jasmine]]
+[[roasted gab]]
+[[dioecian barbados cherry]]
+[[philosophical unfairness]]
+[[cultural sense organ]]

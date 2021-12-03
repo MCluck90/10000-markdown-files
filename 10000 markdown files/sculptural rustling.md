@@ -88,3 +88,9 @@ No no one to fall
 Two days.
 : You make SOME change lobsters you cut it was an account
 
+
+## Wikilinks load test
+
+[[far-flung populated area]]
+[[diagrammatic duplex]]
+[[structural modified american plan]]

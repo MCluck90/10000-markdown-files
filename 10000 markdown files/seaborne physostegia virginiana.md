@@ -90,3 +90,8 @@ Bill's got no harm in by
 or conversations in things
 : That your shoes and frowning and though as nearly as nearly at each
 
+
+## Wikilinks load test
+
+[[laminar sneezeweed]]
+[[primary arroyo]]

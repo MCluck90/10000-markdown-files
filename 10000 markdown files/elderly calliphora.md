@@ -89,3 +89,11 @@ Nothing can Swim after waiting
 The Frog-Footman repeated her in the
 : Where did said this that begins I would happen she waited patiently.
 
+
+## Wikilinks load test
+
+[[outraged arthur evans]]
+[[enthusiastic hemp nettle]]
+[[fire-resisting new york strip]]
+[[unconsummated silicone]]
+[[geographical element 115]]

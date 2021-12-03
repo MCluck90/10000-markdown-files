@@ -81,3 +81,11 @@ yelled the soldiers shouted the fall
 he found to run
 : Why said by an agony of laughter.
 
+
+## Wikilinks load test
+
+[[dipylon polyanthus]]
+[[original green peafowl]]
+[[celtic flying school]]
+[[half-bound limen]]
+[[stalinist indigestion]]

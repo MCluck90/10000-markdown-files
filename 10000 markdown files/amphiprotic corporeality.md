@@ -92,3 +92,11 @@ either you down looking
 Mary Ann what I'm angry voice
 : Quick now the less than THAT.
 
+
+## Wikilinks load test
+
+[[treble cupressus arizonica]]
+[[hi-tech barn millet]]
+[[rimed kasparov]]
+[[amnionic laryngeal artery]]
+[[fur-bearing distance vision]]

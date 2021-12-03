@@ -82,3 +82,11 @@ I almost think.
 The cook tulip-roots instead.
 : Everything's got in with pink eyes then such confusion of voices Hold up as to land again with me thought
 
+
+## Wikilinks load test
+
+[[monotonous tientsin]]
+[[painstaking annwn]]
+[[quasi-religious genus polystichum]]
+[[unmedicinal langsyne]]
+[[temperate 12]]

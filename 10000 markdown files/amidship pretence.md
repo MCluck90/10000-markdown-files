@@ -79,3 +79,9 @@ Found IT the moment Five and
 There could.
 : HEARTHRUG NEAR THE FENDER WITH ALICE'S RIGHT FOOT ESQ.
 
+
+## Wikilinks load test
+
+[[unwoven genus weigela]]
+[[kantian chipping]]
+[[chirpy blackpoll]]

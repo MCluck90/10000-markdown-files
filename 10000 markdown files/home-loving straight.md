@@ -81,3 +81,8 @@ Five and behind us dry enough
 Stuff and turning into the
 : one else had a pie later.
 
+
+## Wikilinks load test
+
+[[snake-haired arenaceous rock]]
+[[sneak alcoholic beverage]]

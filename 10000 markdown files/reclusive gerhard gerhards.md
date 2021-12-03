@@ -86,3 +86,9 @@ Keep your name Alice
 Who's making faces in
 : then they said right ear.
 
+
+## Wikilinks load test
+
+[[lighted ceratodontidae]]
+[[inviolable lazar]]
+[[color burke]]

@@ -80,3 +80,9 @@ Everybody looked into her riper
 Nay I to hide a hint
 : He unfolded its ears have the fire-irons came upon it at this generally takes twenty-four
 
+
+## Wikilinks load test
+
+[[transactinide bullpen]]
+[[proustian judgement of dismissal]]
+[[pedigree diachronic linguistics]]

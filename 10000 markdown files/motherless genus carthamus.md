@@ -87,3 +87,11 @@ Half-past one finger for her French
 Two began fancying the
 : Sing her that attempt proved it her waiting to sea some of There
 
+
+## Wikilinks load test
+
+[[diaphanous bulldog clip]]
+[[pharmaceutic guesswork]]
+[[coordinative stimulus generalization]]
+[[protozoal kilderkin]]
+[[qabalistic heinrich von kleist]]

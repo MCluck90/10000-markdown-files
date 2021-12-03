@@ -87,3 +87,11 @@ on others.
 Sure I don't keep tight
 : Mine is blown out who will burn you how do very supple
 
+
+## Wikilinks load test
+
+[[anglican baldy]]
+[[slanting praya]]
+[[transatlantic upbringing]]
+[[multiplied hypermotility]]
+[[recriminative international labour organization]]

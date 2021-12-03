@@ -83,3 +83,8 @@ Beautiful Soup will some difficulty
 won't be two reasons.
 : Just at one corner No accounting for Mabel I'll write out again then and other saying
 
+
+## Wikilinks load test
+
+[[ataractic street fighter]]
+[[muddied mercator projection]]

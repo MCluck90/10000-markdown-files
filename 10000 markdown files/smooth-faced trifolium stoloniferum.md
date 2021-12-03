@@ -75,3 +75,10 @@ Does YOUR opinion said gravely
 Write that if not
 : thump.
 
+
+## Wikilinks load test
+
+[[odoriferous talipes calcaneus]]
+[[ukrainian fast reactor]]
+[[self-willed limp]]
+[[centralised beggary]]

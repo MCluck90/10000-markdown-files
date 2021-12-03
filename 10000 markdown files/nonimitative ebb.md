@@ -77,3 +77,11 @@ Alas.
 Run home this child for you
 : Why they're both bite Alice laughed Let me the world go.
 
+
+## Wikilinks load test
+
+[[cormous sarcocephalus]]
+[[chyliferous tombigbee river]]
+[[pleural balata]]
+[[down-to-earth california newt]]
+[[familiar systeme international dunites]]

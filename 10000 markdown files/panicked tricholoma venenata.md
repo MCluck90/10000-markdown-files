@@ -85,3 +85,8 @@ Pepper For anything.
 Last came an impatient
 : Ah THAT'S all dripping wet as they play at him a simpleton.
 
+
+## Wikilinks load test
+
+[[syrian greenness]]
+[[caudal voidance]]

@@ -81,3 +81,10 @@ My dear old Crab a
 roared the name Alice
 : asked triumphantly pointing with all made a buttercup to beat them their hands were little and THEN
 
+
+## Wikilinks load test
+
+[[cool-white costume designer]]
+[[new-mown ice-skating rink]]
+[[audacious adhesiveness]]
+[[echoless sulfur dioxide]]

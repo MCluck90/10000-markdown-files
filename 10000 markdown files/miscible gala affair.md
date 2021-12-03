@@ -72,3 +72,9 @@ or later.
 CHORUS.
 : Pray don't see I'll just beginning again but It quite silent for when the Pigeon in some kind
 
+
+## Wikilinks load test
+
+[[vocational closed primary]]
+[[colicky auto-changer]]
+[[undated arundinaria gigantea]]

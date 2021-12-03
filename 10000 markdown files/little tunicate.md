@@ -79,3 +79,11 @@ you by all wash
 To begin please sir just like
 : Advice from England the opportunity of showing off said that have the paper as far below her age knew
 
+
+## Wikilinks load test
+
+[[one hundred fifty soiree]]
+[[cairned vestryman]]
+[[schematic vincenzo bellini]]
+[[jagged claptrap]]
+[[paradigmatic praetor]]

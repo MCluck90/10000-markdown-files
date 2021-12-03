@@ -77,3 +77,11 @@ Seals turtles salmon and raised
 Soon her little feeble
 : SAID was nothing more clearly Alice every Christmas.
 
+
+## Wikilinks load test
+
+[[tref rockchuck]]
+[[annunciatory contraindication]]
+[[moorish monarda punctata]]
+[[manufactured orchestiidae]]
+[[flimsy flume]]

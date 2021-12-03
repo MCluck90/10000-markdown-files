@@ -83,3 +83,8 @@ Sixteenth added and things being
 Oh you coward.
 : That's the sea.
 
+
+## Wikilinks load test
+
+[[cloddish producer gas]]
+[[vapourisable bump]]

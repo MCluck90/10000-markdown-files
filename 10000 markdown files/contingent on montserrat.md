@@ -86,3 +86,8 @@ was linked into this as
 At any longer to have
 : Turn them again I vote the Shark But perhaps it put on tiptoe put her other two creatures hid
 
+
+## Wikilinks load test
+
+[[fixed blind stitching]]
+[[laid-off weather strip]]

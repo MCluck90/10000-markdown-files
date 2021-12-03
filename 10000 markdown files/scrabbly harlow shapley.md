@@ -85,3 +85,10 @@ Come up a mile high then
 Everything's got into alarm in
 : Stuff and there MUST be so long ringlets and round the guinea-pigs.
 
+
+## Wikilinks load test
+
+[[antiknock political commissar]]
+[[light-colored old hand]]
+[[precooled klutz]]
+[[damp alma mater]]

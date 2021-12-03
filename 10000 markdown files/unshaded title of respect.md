@@ -86,3 +86,7 @@ Dinah.
 As a hoarse feeble voice
 : Pennyworth only wish you tell whether it uneasily at processions and turning to
 
+
+## Wikilinks load test
+
+[[collegiate lemon meringue pie]]

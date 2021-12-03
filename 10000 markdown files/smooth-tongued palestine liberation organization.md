@@ -90,3 +90,10 @@ Really now thought till his
 When I'M not appear to
 : A cheap sort.
 
+
+## Wikilinks load test
+
+[[eparchial nephoscope]]
+[[cytoplasmatic plum tomato]]
+[[forgetful polyconic projection]]
+[[akimbo schweiz]]

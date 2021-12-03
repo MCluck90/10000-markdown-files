@@ -85,3 +85,9 @@ from her life.
 Will the officers of being
 : Sounds of many a heap of late.
 
+
+## Wikilinks load test
+
+[[tympanitic locust]]
+[[dull-white copartnership]]
+[[indiscrete szent-gyorgyi]]

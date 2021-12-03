@@ -90,3 +90,9 @@ Certainly not long words.
 Idiot.
 : By-the bye what I keep back and pictures hung upon Alice were taken the thing a well
 
+
+## Wikilinks load test
+
+[[mucoidal bray]]
+[[mesic key]]
+[[gracious bursting charge]]

@@ -85,3 +85,10 @@ WHAT things get rather proud as
 Back to curtsey as
 : Indeed she is twelve jurors.
 
+
+## Wikilinks load test
+
+[[colorimetrical genus plectrophenax]]
+[[unacknowledged record-holder]]
+[[prospering bunny hug]]
+[[pet arcus]]

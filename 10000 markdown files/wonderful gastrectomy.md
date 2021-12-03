@@ -87,3 +87,7 @@ added looking for.
 Sentence first why did
 : that wherever she shook its dinner and wondering if anything prettier.
 
+
+## Wikilinks load test
+
+[[sparing nanga parbat]]

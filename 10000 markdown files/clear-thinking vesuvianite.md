@@ -88,3 +88,11 @@ Silence.
 Behead that only of
 : wow.
 
+
+## Wikilinks load test
+
+[[baptistic tasse]]
+[[light-tight ordinal]]
+[[methodist aspergillus]]
+[[free-enterprise kordofan]]
+[[umbilical muslimism]]

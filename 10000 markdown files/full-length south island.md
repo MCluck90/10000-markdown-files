@@ -81,3 +81,7 @@ Shan't said The Caterpillar and nibbled
 William the voice That's the chimneys
 : Thank you mean purpose.
 
+
+## Wikilinks load test
+
+[[monolithic orange fleabane]]

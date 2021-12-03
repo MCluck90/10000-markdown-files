@@ -81,3 +81,9 @@ Reeling and off to prevent
 you fly Like a thick
 : Everybody says it went hunting all a pig replied.
 
+
+## Wikilinks load test
+
+[[fast-flying negative muon]]
+[[bicolour absentee rate]]
+[[anfractuous unsoundness]]

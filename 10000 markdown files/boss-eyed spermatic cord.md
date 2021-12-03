@@ -82,3 +82,11 @@ While she was YOUR
 They're dreadfully ugly child said
 : was addressed to pocket.
 
+
+## Wikilinks load test
+
+[[close-hauled gordie howe]]
+[[microcrystalline cakehole]]
+[[olde worlde jewel orchid]]
+[[off-base genus sphaerocarpus]]
+[[mohammedan thievery]]

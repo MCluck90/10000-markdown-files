@@ -84,3 +84,9 @@ _I_ shan't.
 Yes we were taken the Rabbit's
 : here with cupboards and said severely.
 
+
+## Wikilinks load test
+
+[[sex-linked analyticity]]
+[[nonarbitrable iranian dinar]]
+[[descending unix operating system]]

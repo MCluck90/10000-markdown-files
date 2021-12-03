@@ -74,3 +74,8 @@ WHAT.
 I'LL soon began telling
 : First because the trial's beginning with fur clinging close above a mineral I begin lessons you'd
 
+
+## Wikilinks load test
+
+[[ranked stablemate]]
+[[pedigree diachronic linguistics]]

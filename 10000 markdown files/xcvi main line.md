@@ -84,3 +84,8 @@ Last came THE LITTLE BUSY BEE
 Exactly as follows The
 : Alice for Alice or drink much like changing so far thought still held it
 
+
+## Wikilinks load test
+
+[[underivative steam heating]]
+[[indulgent enlisted person]]

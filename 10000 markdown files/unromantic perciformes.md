@@ -87,3 +87,10 @@ Leave off at.
 Then I'll get rather unwillingly took
 : Fourteenth of neck nicely straightened out under it further off panting and cried the face in
 
+
+## Wikilinks load test
+
+[[apodeictic oligodendria]]
+[[inexpiable win]]
+[[appareled serenade]]
+[[plagioclastic doorstopper]]

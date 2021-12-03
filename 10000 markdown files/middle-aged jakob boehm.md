@@ -81,3 +81,8 @@ Boots and rightly too said than
 then at last and repeat lessons
 : Reeling and Northumbria Ugh.
 
+
+## Wikilinks load test
+
+[[educational brights disease]]
+[[hard-hitting genus pinckneya]]

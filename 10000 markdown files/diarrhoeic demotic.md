@@ -79,3 +79,9 @@ or courtiers or conversation dropped
 Suddenly she considered a
 : She'd soon.
 
+
+## Wikilinks load test
+
+[[autogenous james wyatt]]
+[[victimised douay-rheims version]]
+[[prismatic west indian jasmine]]

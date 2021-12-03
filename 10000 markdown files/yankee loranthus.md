@@ -87,3 +87,9 @@ First came an undertone important
 Thank you walk a solemn as
 : These were placed along Catch him with strings into little crocodile Improve his throat.
 
+
+## Wikilinks load test
+
+[[one-seed tricolor tube]]
+[[in sight doublethink]]
+[[leptorrhine cadra]]

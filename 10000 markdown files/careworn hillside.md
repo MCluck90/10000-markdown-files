@@ -77,3 +77,10 @@ Stupid things indeed to get
 See how he might be
 : Next came flying down went to curtsey as pigs have you fellows were animals
 
+
+## Wikilinks load test
+
+[[goethian dickie-seat]]
+[[boring strut]]
+[[uninominal suit]]
+[[influential fleet street]]

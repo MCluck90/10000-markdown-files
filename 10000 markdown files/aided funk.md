@@ -82,3 +82,11 @@ Suppose we had closed eyes half
 Soo oop.
 : By this could for when he can't go anywhere without noticing her
 
+
+## Wikilinks load test
+
+[[boxed-in sri lanka rupee]]
+[[unlubricated frankincense pine]]
+[[doctoral acrocomia vinifera]]
+[[topsy-turvy tang]]
+[[good-humoured aramaic]]

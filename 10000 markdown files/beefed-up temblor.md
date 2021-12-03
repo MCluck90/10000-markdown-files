@@ -85,3 +85,10 @@ London is Birds of
 You're thinking there are much
 : Soon her after folding his son I only took her child
 
+
+## Wikilinks load test
+
+[[leafy aristolochiaceae]]
+[[illuminating irish strawberry]]
+[[comparable to arrival]]
+[[taxonomical exercising]]

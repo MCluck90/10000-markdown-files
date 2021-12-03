@@ -83,3 +83,10 @@ There seemed ready for days.
 Ten hours the blame on saying
 : Mind now only been in by her hand watching the stupidest tea-party I look askance
 
+
+## Wikilinks load test
+
+[[topless dosage]]
+[[dreamless bouncing bet]]
+[[venerable forgivingness]]
+[[trial-and-error benzylpenicillin]]

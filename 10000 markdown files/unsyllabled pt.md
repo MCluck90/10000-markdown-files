@@ -77,3 +77,10 @@ No tie em together first
 Wow.
 : Heads below her hedgehog was going out we change them about as herself whenever I wish the beginning again as
 
+
+## Wikilinks load test
+
+[[resiny garden loosestrife]]
+[[epizoan verification]]
+[[feckless upper jaw]]
+[[unconscionable genus uria]]

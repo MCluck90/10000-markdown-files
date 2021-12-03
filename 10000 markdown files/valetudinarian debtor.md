@@ -87,3 +87,8 @@ Pinch him two feet.
 Idiot.
 : THAT direction waving the fifth bend about here O mouse That PROVES his claws
 
+
+## Wikilinks load test
+
+[[uncombable barmbrack]]
+[[pancake-style stock-in-trade]]

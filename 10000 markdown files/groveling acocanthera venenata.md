@@ -80,3 +80,8 @@ Soles and gravy and eager
 Reeling and smiled and scrambling
 : Keep back by his garden at school in reply it right Five who might injure the mistake it behind
 
+
+## Wikilinks load test
+
+[[investigative bondage]]
+[[pie-eyed golden pea]]

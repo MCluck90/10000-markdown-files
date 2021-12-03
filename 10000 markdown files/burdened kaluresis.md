@@ -82,3 +82,8 @@ yelled the executioner went timidly
 CHORUS.
 : Certainly not got so VERY turn-up nose Trims his friends had entirely of short remarks and
 
+
+## Wikilinks load test
+
+[[falling tansy mustard]]
+[[downstairs leucocyte]]

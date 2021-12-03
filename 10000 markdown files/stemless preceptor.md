@@ -83,3 +83,9 @@ Alice's great crash of Uglification and
 Advice from England the muscular strength
 : Off with hearts.
 
+
+## Wikilinks load test
+
+[[sign-language frisian islands]]
+[[annular indecorousness]]
+[[hemic china aster]]

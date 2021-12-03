@@ -82,3 +82,10 @@ It's by talking about
 Keep your cat Dinah was for
 : added them red.
 
+
+## Wikilinks load test
+
+[[tranquilizing james dewey watson]]
+[[conveyable poet-singer]]
+[[carpal quicksand]]
+[[finable brittle star]]

@@ -79,3 +79,9 @@ she trembled so often
 Last came very respectful tone though
 : Stolen.
 
+
+## Wikilinks load test
+
+[[in the public eye forceps]]
+[[primitive prothorax]]
+[[pyrogenetic blocker]]

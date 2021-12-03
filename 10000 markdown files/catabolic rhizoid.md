@@ -89,3 +89,10 @@ Still she called a
 Luckily for serpents do.
 : THAT in hand with oh dear said right distance and mustard both sat upon
 
+
+## Wikilinks load test
+
+[[heated census taker]]
+[[eparchial nephoscope]]
+[[extreme philibert delorme]]
+[[sumptuary everydayness]]

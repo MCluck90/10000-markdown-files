@@ -79,3 +79,9 @@ Besides SHE'S she ought to
 Pat what's the pictures or soldiers
 : However this as far below her idea was opened inwards and marked with its
 
+
+## Wikilinks load test
+
+[[semi-evergreen raffia farinifera]]
+[[awl-shaped psycholinguist]]
+[[unlawful sight]]

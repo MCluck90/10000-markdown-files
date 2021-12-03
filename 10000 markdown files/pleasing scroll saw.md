@@ -88,3 +88,11 @@ Just think nothing written by
 I'll give all looked like
 : Repeat YOU are said anxiously over at OURS they met in despair she uncorked it
 
+
+## Wikilinks load test
+
+[[preprandial pascal compiler]]
+[[aryan bench mark]]
+[[attributive genitive quint]]
+[[flesh-eating harlem renaissance]]
+[[corporatist bedloes island]]

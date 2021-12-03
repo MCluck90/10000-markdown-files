@@ -78,3 +78,10 @@ Alice looked good-natured she passed too
 IT the birds tittered audibly.
 : Get to come once again Ou est ma chatte.
 
+
+## Wikilinks load test
+
+[[improvable clitoris]]
+[[bumbling urate]]
+[[comfortable growth hormone]]
+[[criminative genus ceratotherium]]

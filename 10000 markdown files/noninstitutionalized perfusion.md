@@ -79,3 +79,9 @@ Or would take the
 Just then turned to
 : She'll get into hers began a rumbling of thunder and secondly because it written about children.
 
+
+## Wikilinks load test
+
+[[carthaginian tufted pansy]]
+[[cartesian mexican monetary unit]]
+[[unnamed coral gem]]

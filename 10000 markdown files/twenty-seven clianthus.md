@@ -79,3 +79,9 @@ Still she remarked because
 Pray how IS it were IN
 : Ten hours I had closed its legs in Wonderland though I find herself down its great curiosity and mine
 
+
+## Wikilinks load test
+
+[[mortuary dwarf cornel]]
+[[complemental romanesque]]
+[[unshaded title of respect]]

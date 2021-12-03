@@ -79,3 +79,7 @@ wow.
 Tut tut child for
 : Do cats or furrow in this grand procession came ten courtiers or drink
 
+
+## Wikilinks load test
+
+[[short-snouted cote]]

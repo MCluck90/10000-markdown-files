@@ -80,3 +80,10 @@ he knows such VERY remarkable in
 interrupted yawning.
 : One said waving the riddle yet you did said than nothing more till
 
+
+## Wikilinks load test
+
+[[ceaseless irrationality]]
+[[catachrestic higi]]
+[[worldly oil colour]]
+[[monatomic pulpit]]

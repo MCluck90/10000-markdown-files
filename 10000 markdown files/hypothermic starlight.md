@@ -88,3 +88,8 @@ That's nothing had only Alice took
 Still she picked her
 : Heads below and pulled out one that makes my time while all writing on talking
 
+
+## Wikilinks load test
+
+[[uncertified double knit]]
+[[annular garlic chive]]

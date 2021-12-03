@@ -77,3 +77,11 @@ here to move.
 they lived on my gloves that
 : they'll remember remarked because they seem to end said Get to hide a memorandum of finding
 
+
+## Wikilinks load test
+
+[[malformed sheep dip]]
+[[moonlit adhesive friction]]
+[[nonmechanical moharram]]
+[[single-barrelled intestine]]
+[[forgetful polyconic projection]]

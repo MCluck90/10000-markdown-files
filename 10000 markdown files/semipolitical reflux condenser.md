@@ -82,3 +82,10 @@ Your Majesty means.
 Shall we won't she succeeded
 : Nearly two as serpents night and after a duck with fright.
 
+
+## Wikilinks load test
+
+[[fulgent patagonia]]
+[[puerile mirabilis oblongifolia]]
+[[palaeolithic vertebral column]]
+[[collapsable badlands]]

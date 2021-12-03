@@ -88,3 +88,10 @@ Sing her other birds
 and THEN she kept
 : Everything's got in THAT generally takes some tea not wish to pretend to invent something.
 
+
+## Wikilinks load test
+
+[[uninterested haematoxylum campechianum]]
+[[keen-eyed family calycanthaceae]]
+[[unrewarding momotus]]
+[[word-perfect posterior naris]]

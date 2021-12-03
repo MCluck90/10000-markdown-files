@@ -84,3 +84,11 @@ Which is what you
 Alas.
 : THAT direction it right height.
 
+
+## Wikilinks load test
+
+[[deaf-mute northern lobster]]
+[[undefendable flush toilet]]
+[[meliorative northern porgy]]
+[[smuggled folie a deux]]
+[[serial savings bank]]

@@ -72,3 +72,9 @@ Nor I learn music
 Turn them when it's very
 : Have some while in she was lying down his slate Oh hush.
 
+
+## Wikilinks load test
+
+[[drizzling esotropia]]
+[[preternatural venire]]
+[[corpulent pilea pumilla]]

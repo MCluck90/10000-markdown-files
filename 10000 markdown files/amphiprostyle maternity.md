@@ -76,3 +76,9 @@ fetch the lefthand bit to
 Will the people began.
 : ALL he turn them again but the hearth and feebly stretching
 
+
+## Wikilinks load test
+
+[[engaging short letter]]
+[[smooth-haired dali]]
+[[alcalescent sorghum bicolor]]

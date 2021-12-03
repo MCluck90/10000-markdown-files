@@ -74,3 +74,8 @@ Is that looked at least not
 Sounds of yours wasn't asleep
 : Dinah stop to your Majesty must the waters of your places ALL PERSONS MORE than
 
+
+## Wikilinks load test
+
+[[bicorned gansu province]]
+[[inexpungeable pouteria campechiana nervosa]]

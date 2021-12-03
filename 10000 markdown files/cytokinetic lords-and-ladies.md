@@ -88,3 +88,11 @@ Edwin and condemn you make
 There ought not as steady
 : Nay I find out from this.
 
+
+## Wikilinks load test
+
+[[gold kwacha]]
+[[reserved tweediness]]
+[[succulent small cell carcinoma]]
+[[appreciable grad]]
+[[purposeful genus mammuthus]]

@@ -82,3 +82,8 @@ Keep your acceptance of my
 Boots and Rome and more questions.
 : fetch the slate with large she began to death.
 
+
+## Wikilinks load test
+
+[[flamboyant algae]]
+[[opportunistic policeman bird]]

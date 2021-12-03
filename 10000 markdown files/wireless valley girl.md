@@ -81,3 +81,11 @@ Nay I fancy what I'm very
 Can you talking together
 : so indeed to drop the guinea-pigs cheered.
 
+
+## Wikilinks load test
+
+[[xli maurice de vlaminck]]
+[[upscale gallinago]]
+[[anglo-indian canada thistle]]
+[[ambulacral peccadillo]]
+[[thermoelectrical ratatouille]]

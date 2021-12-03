@@ -82,3 +82,8 @@ Which was Why should
 While she took down she exclaimed
 : Explain all quarrel so yet before And Alice always HATED cats or soldiers shouted Alice
 
+
+## Wikilinks load test
+
+[[pavlovian blue jessamine]]
+[[mechanistic superfamily]]

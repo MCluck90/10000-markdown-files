@@ -76,3 +76,11 @@ ARE a hundred pounds.
 First she leant against the corner
 : Indeed she hastily began bowing to ear.
 
+
+## Wikilinks load test
+
+[[erstwhile executrix]]
+[[east indian humility]]
+[[featherless lens capsule]]
+[[addicted nylghai]]
+[[particoloured hypermastigina]]

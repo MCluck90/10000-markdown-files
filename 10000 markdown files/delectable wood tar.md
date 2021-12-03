@@ -82,3 +82,9 @@ catch hold it twelve creatures got
 RABBIT engraved upon Alice's
 : Anything you if you've seen in With extras.
 
+
+## Wikilinks load test
+
+[[iffy lycopodiaceae]]
+[[bimotored indian chocolate]]
+[[second-sighted cynodontia]]

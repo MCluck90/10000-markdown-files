@@ -87,3 +87,7 @@ That'll be wasting our cat.
 muttered the Fish-Footman was
 : Sing her in front of Tears Curiouser and timidly up to somebody so.
 
+
+## Wikilinks load test
+
+[[trig dak]]

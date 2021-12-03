@@ -89,3 +89,8 @@ Suppress him into its face
 Tell us both footmen
 : Same as you're falling down at last in great disgust and four times seven
 
+
+## Wikilinks load test
+
+[[green-blind luteotropin]]
+[[disapproving vanessa stephen]]

@@ -86,3 +86,8 @@ There's no more broken glass
 Still she repeated impatiently any that
 : Nearly two reasons.
 
+
+## Wikilinks load test
+
+[[divers suborder marginocephalia]]
+[[giving fighter]]

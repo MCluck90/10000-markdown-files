@@ -83,3 +83,8 @@ Same as I'd been in
 Everything's got down into
 : Beau ootiful Soo oop.
 
+
+## Wikilinks load test
+
+[[dark-coloured pall mall]]
+[[transdermic lxxx]]

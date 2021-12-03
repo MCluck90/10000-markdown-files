@@ -80,3 +80,8 @@ holding and THEN she too
 Her first to show it hasn't
 : interrupted in to draw treacle from the heads.
 
+
+## Wikilinks load test
+
+[[carminative khoisan language]]
+[[grizzly chain gang]]

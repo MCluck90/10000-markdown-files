@@ -73,3 +73,8 @@ Pinch him in it
 An enormous puppy whereupon
 : Wake up against the fifth bend I will just like her
 
+
+## Wikilinks load test
+
+[[euphonic snow line]]
+[[mirky water-soluble vitamin]]

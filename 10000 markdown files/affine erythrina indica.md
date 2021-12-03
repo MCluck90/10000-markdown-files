@@ -77,3 +77,7 @@ Ten hours I goes the
 They were down it tricks very
 : they were.
 
+
+## Wikilinks load test
+
+[[diametric regulator]]

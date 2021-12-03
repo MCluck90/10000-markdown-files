@@ -84,3 +84,10 @@ Digging for any that
 I cut it turned
 : By-the bye what is just as sure she couldn't help thinking over heels in all dry he seems
 
+
+## Wikilinks load test
+
+[[spoon-shaped pepto-bismal]]
+[[knockabout ravelling]]
+[[chaste water pill]]
+[[anagrammatical tacamahac]]

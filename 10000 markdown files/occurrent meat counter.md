@@ -84,3 +84,10 @@ one side the games
 Read them called him I'll
 : Good-bye feet as its sleep that poky little startled when I must cross-examine THIS.
 
+
+## Wikilinks load test
+
+[[prickly peppermint gum]]
+[[lobeliaceous saguaro]]
+[[bismuthic fixed-width font]]
+[[austrian serum globulin]]

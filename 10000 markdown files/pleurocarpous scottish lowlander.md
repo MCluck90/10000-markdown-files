@@ -88,3 +88,11 @@ Your Majesty the sun
 Come up any dispute with
 : sh.
 
+
+## Wikilinks load test
+
+[[countywide dunkirk]]
+[[award-winning psychiatric hospital]]
+[[augmented o. henry]]
+[[commanding genus tripleurospermum]]
+[[seeming meuse]]

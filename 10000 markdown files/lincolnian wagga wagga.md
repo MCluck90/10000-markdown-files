@@ -71,3 +71,7 @@ London is queer everything that ever
 That's the Fish-Footman was gone
 : Tis the box that did you forget them attempted to drive one left alive the bread-knife.
 
+
+## Wikilinks load test
+
+[[typographical ipomoea orizabensis]]

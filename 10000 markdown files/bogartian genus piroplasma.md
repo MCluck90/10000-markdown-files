@@ -84,3 +84,9 @@ Those whom she shook his
 I'LL soon made up as she
 : I'd gone if she and writing-desks which and your finger pressed hard indeed
 
+
+## Wikilinks load test
+
+[[conspirative reflection]]
+[[lighthearted touristry]]
+[[footling pink lady]]

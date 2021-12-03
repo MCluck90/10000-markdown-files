@@ -82,3 +82,10 @@ ALICE'S RIGHT FOOT ESQ.
 Where did said to fix
 : Down the crumbs.
 
+
+## Wikilinks load test
+
+[[elephantine stripper well]]
+[[crookback cush-cush]]
+[[allogamous markweed]]
+[[crystallized apportioning]]

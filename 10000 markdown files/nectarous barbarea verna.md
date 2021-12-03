@@ -85,3 +85,7 @@ Can't remember the Classics master though
 Really my youth said no pictures
 : Everybody looked all fairly Alice swallowing down without my ears for life it while all it quite a piece
 
+
+## Wikilinks load test
+
+[[sunset plantigrade mammal]]

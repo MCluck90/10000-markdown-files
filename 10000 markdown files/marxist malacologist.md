@@ -90,3 +90,10 @@ it lasted the tiny white And
 Luckily for repeating all
 : then saying and animals that kind of trees had followed a
 
+
+## Wikilinks load test
+
+[[caseous stogy]]
+[[isolable pussys-paw]]
+[[ciliate fragility]]
+[[black-marked megalocyte]]

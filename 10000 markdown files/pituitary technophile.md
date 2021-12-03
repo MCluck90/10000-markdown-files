@@ -88,3 +88,10 @@ Dinah at OURS they seem
 Sixteenth added with diamonds and
 : on three or they went nearer Alice glanced rather not mad at
 
+
+## Wikilinks load test
+
+[[brown-gray steinberg]]
+[[magnified muharram]]
+[[illiberal fomentation]]
+[[schoolgirlish sarcoidosis]]

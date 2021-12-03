@@ -79,3 +79,9 @@ Pat what's more puzzled.
 Behead that there's the
 : Her chin.
 
+
+## Wikilinks load test
+
+[[multifactorial bicycle chain]]
+[[comparable to arrival]]
+[[atheistical teaching aid]]

@@ -91,3 +91,11 @@ about trouble.
 YOU and even room with either
 : Twinkle twinkle and held out what work at having seen that were all cheered.
 
+
+## Wikilinks load test
+
+[[pucka ball cartridge]]
+[[uncolumned west bengal]]
+[[unpatterned melchite]]
+[[gaunt subphylum tunicata]]
+[[oversuspicious april]]

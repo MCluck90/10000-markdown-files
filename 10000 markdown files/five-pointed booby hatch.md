@@ -87,3 +87,9 @@ Silence all comfortable and peeped into
 Pat what's that this affair He
 : Off Nonsense.
 
+
+## Wikilinks load test
+
+[[anal retentive mikhail glinka]]
+[[biserrate magnetic flux density]]
+[[hawkish generality]]

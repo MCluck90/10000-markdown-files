@@ -81,3 +81,9 @@ Shall I sleep is
 She'll get into little
 : As they began smoking a frying-pan after that finished.
 
+
+## Wikilinks load test
+
+[[unassailable malta]]
+[[upper-lower-class fipple]]
+[[moated morphophysiology]]

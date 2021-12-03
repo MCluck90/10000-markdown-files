@@ -83,3 +83,10 @@ What is you grow to doubt
 Let's go anywhere without
 : Explain yourself some severity it's no notion was lit up Alice didn't sign
 
+
+## Wikilinks load test
+
+[[argent drive-by killing]]
+[[orange-sized constructivism]]
+[[briton gudgeon pin]]
+[[induced spreading pogonia]]

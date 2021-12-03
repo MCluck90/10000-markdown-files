@@ -90,3 +90,9 @@ To begin lessons and fighting
 Perhaps not stoop.
 : or small.
 
+
+## Wikilinks load test
+
+[[larboard television receiver]]
+[[sufferable calluna vulgaris]]
+[[sedgy saving]]

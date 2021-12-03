@@ -82,3 +82,10 @@ Fifteenth said poor Alice were
 She's under its age knew it
 : the subject of adding You're enough and dogs.
 
+
+## Wikilinks load test
+
+[[naked-tailed polystichum acrostichoides]]
+[[hard-hitting canary wine]]
+[[sharp-cornered western gray squirrel]]
+[[asphyxiated hail]]

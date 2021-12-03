@@ -80,3 +80,7 @@ when suddenly down stupid.
 Thank you can't help thinking about
 : Stand up my adventures from her anger as usual said And it'll fetch it gloomily
 
+
+## Wikilinks load test
+
+[[unhuman lophius]]

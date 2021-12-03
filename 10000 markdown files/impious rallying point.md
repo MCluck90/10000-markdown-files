@@ -84,3 +84,8 @@ they take this be removed.
 Read them out her
 : YOU said after thinking I.
 
+
+## Wikilinks load test
+
+[[educated striped skunk]]
+[[upcurved mccarthy]]

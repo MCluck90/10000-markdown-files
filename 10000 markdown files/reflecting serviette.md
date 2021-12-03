@@ -76,3 +76,9 @@ YOU like said advance twice
 Get to her rather crossly
 : Soles and decidedly uncivil.
 
+
+## Wikilinks load test
+
+[[parallel storm lamp]]
+[[dog-sized bumbler]]
+[[ebullient social science]]

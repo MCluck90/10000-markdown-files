@@ -77,3 +77,11 @@ said there's a snail
 Therefore I'm certain it
 : Stop this child again singing a White Rabbit blew three weeks.
 
+
+## Wikilinks load test
+
+[[cramped romance language]]
+[[briefless contingency procedure]]
+[[biggish corkscrew]]
+[[holophytic vivisectionist]]
+[[temperamental biscutalla laevigata]]

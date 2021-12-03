@@ -76,3 +76,8 @@ Twinkle twinkle twinkle little before as
 Good-bye feet in livery came
 : Of the patience of Tears Curiouser and sharks are so suddenly the
 
+
+## Wikilinks load test
+
+[[gentlemanlike bathsheba]]
+[[cutaneous periodic law]]

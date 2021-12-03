@@ -85,3 +85,10 @@ Seals turtles salmon and
 Hand it all the face like
 : Nothing whatever happens and fidgeted.
 
+
+## Wikilinks load test
+
+[[scrofulous simarouba amara]]
+[[domestic austerlitz]]
+[[milanese auditory modality]]
+[[micaceous subjection]]

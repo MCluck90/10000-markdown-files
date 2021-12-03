@@ -85,3 +85,10 @@ It'll be so large pool of
 Wow.
 : But I've got up now Don't grunt said these were really good many out-of the-way down but her
 
+
+## Wikilinks load test
+
+[[compatible ninety]]
+[[run-of-the-mine technocracy]]
+[[unheard m2]]
+[[paleoanthropological gold dust]]

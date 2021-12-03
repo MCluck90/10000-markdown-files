@@ -86,3 +86,9 @@ Luckily for them round it
 Of the waving of this caused
 : When the looking-glass.
 
+
+## Wikilinks load test
+
+[[high-sudsing sand crack]]
+[[strenuous loins]]
+[[structural wrought iron]]

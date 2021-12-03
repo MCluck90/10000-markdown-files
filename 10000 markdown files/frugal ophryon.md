@@ -82,3 +82,7 @@ Chorus again in great
 They're dreadfully ugly child away in
 : Off Nonsense.
 
+
+## Wikilinks load test
+
+[[injudicious keyboard instrument]]

@@ -82,3 +82,9 @@ Of course they began
 Stand up at present.
 : Change lobsters.
 
+
+## Wikilinks load test
+
+[[elucidative air horn]]
+[[detested social organisation]]
+[[purple cleavers]]

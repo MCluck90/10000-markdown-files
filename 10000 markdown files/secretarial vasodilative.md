@@ -79,3 +79,7 @@ HEARTHRUG NEAR THE BOOTS AND
 Seven said that poky little
 : Take care of things happening.
 
+
+## Wikilinks load test
+
+[[compounded religious mystic]]

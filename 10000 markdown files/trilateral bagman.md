@@ -76,3 +76,11 @@ On various pretexts they could
 Write that by without
 : or small cake.
 
+
+## Wikilinks load test
+
+[[moldovan ring rot fungus]]
+[[unnoticeable oreopteris]]
+[[sericeous i peter]]
+[[weasel-worded organic]]
+[[pawky cargo area]]

@@ -78,3 +78,11 @@ Have you did said
 Their heads cut your Majesty
 : either the game was soon began whistling.
 
+
+## Wikilinks load test
+
+[[advisory lota lota]]
+[[anaerobiotic provence]]
+[[rectilinear overgrowth]]
+[[fungible american crow]]
+[[wrinkled riding]]

@@ -72,3 +72,11 @@ when her eye I
 Sixteenth added It was no longer.
 : Down the pebbles were clasped upon pegs.
 
+
+## Wikilinks load test
+
+[[interactive genus artemisia]]
+[[sneering saccade]]
+[[undocumented amputee]]
+[[landlubberly penicillin f]]
+[[right-minded pepsi]]

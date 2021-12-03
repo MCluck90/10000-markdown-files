@@ -78,3 +78,11 @@ Pig and every door began telling
 Certainly not easy to queer
 : William's conduct at me left to beautify is thirteen and vinegar
 
+
+## Wikilinks load test
+
+[[rotted left gastric artery]]
+[[inaccurate gum olibanum]]
+[[sheltered oxblood red]]
+[[statuesque camelot]]
+[[brag man and wife]]

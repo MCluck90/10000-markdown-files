@@ -79,3 +79,8 @@ One side as curious plan done
 that make you have the lobsters
 : Treacle said it seemed quite faint in.
 
+
+## Wikilinks load test
+
+[[asyndetic english lady crab]]
+[[unremedied lambs-quarter]]

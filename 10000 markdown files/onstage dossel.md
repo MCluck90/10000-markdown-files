@@ -87,3 +87,9 @@ A cat may stand beating.
 ever saw in couples
 : Seven said Alice she's the looking-glass.
 
+
+## Wikilinks load test
+
+[[sown battleground]]
+[[verbalised present progressive]]
+[[parky argonautidae]]

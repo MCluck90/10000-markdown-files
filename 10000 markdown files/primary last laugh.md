@@ -81,3 +81,9 @@ Five.
 Everything's got thrown out to
 : Reeling and low-spirited.
 
+
+## Wikilinks load test
+
+[[outlawed amazon river]]
+[[spearhead-shaped blok]]
+[[driving banded rudderfish]]

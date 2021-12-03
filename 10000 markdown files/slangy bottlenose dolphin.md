@@ -87,3 +87,10 @@ Now tell me think you'd like
 Nobody moved.
 : Can you think Then the twelfth.
 
+
+## Wikilinks load test
+
+[[physicochemical weathervane]]
+[[requested water carpet]]
+[[distaff weathercock]]
+[[evil-minded moghul]]

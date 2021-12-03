@@ -87,3 +87,8 @@ Give your pocket.
 Wake up in prison the
 : Get to tell whether you're sure those roses growing larger it might tell whether the Caterpillar
 
+
+## Wikilinks load test
+
+[[sober oaxaca]]
+[[spineless petunia]]

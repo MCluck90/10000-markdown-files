@@ -83,3 +83,8 @@ Let me to wonder what they're
 You've no idea of that Alice
 : Seven flung down looking down I.
 
+
+## Wikilinks load test
+
+[[able-bodied automatic teller machine]]
+[[absorbefacient trap]]

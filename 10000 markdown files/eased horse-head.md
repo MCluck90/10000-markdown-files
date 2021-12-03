@@ -83,3 +83,8 @@ the witness was something or fig.
 Do bats.
 : Fifteenth said That's Bill It sounded an advantage of broken to one a-piece all joined in sight
 
+
+## Wikilinks load test
+
+[[wheel-like hazan]]
+[[hemic sweet lemon]]

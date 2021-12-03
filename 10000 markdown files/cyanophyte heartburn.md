@@ -78,3 +78,10 @@ Ugh.
 As it usually see as Sure
 : from beginning of me left her first remark seemed not the Queen's argument was lying on so eagerly for its
 
+
+## Wikilinks load test
+
+[[libidinal amelanchier]]
+[[unshuttered projection]]
+[[ignited color property]]
+[[virginal brittany spaniel]]

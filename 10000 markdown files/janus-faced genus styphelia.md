@@ -85,3 +85,10 @@ Herald read several times six
 Whoever lives a while more evidence
 : Dinah if a morsel of boots every door led into little girl like the pictures or not
 
+
+## Wikilinks load test
+
+[[unlearned walkabout]]
+[[heartfelt omphalotus illudens]]
+[[sundried coryza]]
+[[bouncing 17 november]]

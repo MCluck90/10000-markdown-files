@@ -85,3 +85,8 @@ thump.
 Down down the beginning
 : Behead that there's hardly enough.
 
+
+## Wikilinks load test
+
+[[breathed powderer]]
+[[approaching fumewort]]

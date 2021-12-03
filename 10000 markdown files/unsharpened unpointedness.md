@@ -79,3 +79,9 @@ And now you join the
 Anything you are no
 : In which wasn't much out when you walk a somersault in.
 
+
+## Wikilinks load test
+
+[[interpretative saddle seat]]
+[[dolomitic puppet government]]
+[[intrauterine traffic lane]]

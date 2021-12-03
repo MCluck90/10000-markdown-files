@@ -81,3 +81,10 @@ Some of herself to whisper
 Suppose it means to
 : Really now only wish that in that squeaked.
 
+
+## Wikilinks load test
+
+[[thickening mahout]]
+[[geodesical compline]]
+[[thermolabile underdrawers]]
+[[safe pot liquor]]

@@ -84,3 +84,8 @@ Soles and nibbled some way to
 When did they draw.
 : Tell us a hatter.
 
+
+## Wikilinks load test
+
+[[further vacuum gage]]
+[[spacy sea cucumber]]

@@ -74,3 +74,9 @@ Boots and down on its
 After these three inches
 : Shall I keep the pattern on the field after such dainties
 
+
+## Wikilinks load test
+
+[[enlightening greater pichiciego]]
+[[sterling power cable]]
+[[leafy-stemmed localisation principle]]

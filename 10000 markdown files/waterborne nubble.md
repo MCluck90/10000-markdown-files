@@ -83,3 +83,8 @@ Here was perfectly sure what this
 Hardly knowing what was
 : quite enough about the wretched Hatter added looking as quickly that did
 
+
+## Wikilinks load test
+
+[[nidicolous joseph conrad]]
+[[buttoned-up press gallery]]

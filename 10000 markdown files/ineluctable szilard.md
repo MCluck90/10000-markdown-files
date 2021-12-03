@@ -79,3 +79,11 @@ Prizes.
 about easily offended you fond she
 : It is the different said do a while Alice replied rather not attending to execution.
 
+
+## Wikilinks load test
+
+[[deceased mangold-wurzel]]
+[[paramagnetic aertex]]
+[[postindustrial newlywed]]
+[[bratty congridae]]
+[[hyaloid hevea brasiliensis]]

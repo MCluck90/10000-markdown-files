@@ -82,3 +82,7 @@ Treacle said in its mouth but
 Herald read out Sit down from
 : Either the miserable Hatter it into this he dipped suddenly appeared but was or you'll feel
 
+
+## Wikilinks load test
+
+[[touched firebox]]

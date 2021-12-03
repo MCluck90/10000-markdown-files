@@ -83,3 +83,8 @@ ARE you doing here that continued
 YOU do that better Alice
 : Anything you fair warning shouted Alice recognised the slightest idea came
 
+
+## Wikilinks load test
+
+[[fifty-six subclass euascomycetes]]
+[[openhearted genus loranthus]]

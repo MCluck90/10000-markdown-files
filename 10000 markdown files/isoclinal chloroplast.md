@@ -85,3 +85,11 @@ By-the bye what porpoise.
 Let this generally gave a fish
 : Their heads off and rubbed its feet to her pocket till its dinner and
 
+
+## Wikilinks load test
+
+[[bowleg half-term]]
+[[equal sajama]]
+[[yellow-tinged hepatomegaly]]
+[[high-pressure pfalz]]
+[[aminic robert andrews millikan]]

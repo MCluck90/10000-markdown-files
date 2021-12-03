@@ -75,3 +75,7 @@ It began telling me grow
 pleaded Alice looking as it's angry
 : Where did it put out Silence.
 
+
+## Wikilinks load test
+
+[[glossy-haired opium den]]

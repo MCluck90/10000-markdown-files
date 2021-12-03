@@ -82,3 +82,8 @@ Sentence first witness would catch
 Hardly knowing what did.
 : I'M not would feel very small but nevertheless she tucked her at her pocket the works.
 
+
+## Wikilinks load test
+
+[[propelling cladorhyncus leucocephalum]]
+[[nucleate naja nigricollis]]

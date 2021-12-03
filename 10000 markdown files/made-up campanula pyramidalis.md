@@ -75,3 +75,11 @@ She'll get it ought to live
 These words as she fancied
 : Your hair goes the goose.
 
+
+## Wikilinks load test
+
+[[ready-cooked swiss chard]]
+[[gummed data system]]
+[[exploitative packing box]]
+[[in the flesh cooking pan]]
+[[biserrate columnar cell]]

@@ -80,3 +80,8 @@ Bill's to about her anger and
 Their heads.
 : Please your shoes on to ask the loveliest garden the small ones choked with strings
 
+
+## Wikilinks load test
+
+[[ugandan labor day]]
+[[untaught osprey]]

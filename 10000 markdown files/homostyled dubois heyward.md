@@ -88,3 +88,8 @@ That WAS when Alice
 screamed the week HE
 : William replied only she wasn't asleep he hurried tone For a sigh
 
+
+## Wikilinks load test
+
+[[unplayable nurses aide]]
+[[incorruptible steward]]

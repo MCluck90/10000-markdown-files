@@ -86,3 +86,11 @@ Stolen.
 Hold up this there
 : Chorus again sitting sad.
 
+
+## Wikilinks load test
+
+[[riblike capitulum]]
+[[boeotian autograph album]]
+[[unmortgaged spore]]
+[[upscale gallinago]]
+[[gradual tile]]

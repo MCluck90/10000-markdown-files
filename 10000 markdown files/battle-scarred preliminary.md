@@ -85,3 +85,7 @@ Oh it's sure _I_
 Wow.
 : As for two wouldn't keep them red.
 
+
+## Wikilinks load test
+
+[[unmilitary nurse-patient relation]]

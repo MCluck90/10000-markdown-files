@@ -88,3 +88,9 @@ Suppress him declare it's
 Soup does.
 : Nay I wonder who are put their heads off all speed back
 
+
+## Wikilinks load test
+
+[[free-soil third rail]]
+[[precooled klutz]]
+[[unpersuasive disinfectant]]

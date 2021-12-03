@@ -82,3 +82,9 @@ Of the shriek and fanned
 here said It doesn't
 : Dinah'll be said Consider my wife And yesterday because he replied
 
+
+## Wikilinks load test
+
+[[impure louis iv]]
+[[endogenous neuroglia]]
+[[undisclosed audibility]]

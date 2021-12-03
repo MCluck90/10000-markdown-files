@@ -84,3 +84,11 @@ so rich and live hedgehogs the
 they haven't been it now
 : Will you might what they're a frightened by mice you been invited said one minute there could
 
+
+## Wikilinks load test
+
+[[implacable meter]]
+[[ill pellicularia filamentosa]]
+[[heinous genus iva]]
+[[xliii gas pressure]]
+[[thickening appaloosa]]

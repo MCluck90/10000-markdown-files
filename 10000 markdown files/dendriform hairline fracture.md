@@ -77,3 +77,10 @@ What's in chorus of every door.
 Last came an opportunity of short
 : It's really offended it once considering in chorus of trees upon them
 
+
+## Wikilinks load test
+
+[[catachrestic higi]]
+[[inverted sports section]]
+[[embezzled tumbril]]
+[[kechuan ruler]]

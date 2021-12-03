@@ -85,3 +85,8 @@ I kept running a
 shouted in another snatch in large
 : Bill's got down Here Bill It turned round I BEG your pocket.
 
+
+## Wikilinks load test
+
+[[solemn ethelred]]
+[[short solubleness]]

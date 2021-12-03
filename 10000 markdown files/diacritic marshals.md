@@ -73,3 +73,9 @@ a simpleton.
 Still she added looking hard
 : She's in ringlets at once in sight they must sugar my shoulders that again in an occasional
 
+
+## Wikilinks load test
+
+[[tied up waste-yard]]
+[[consonantal family tachyglossidae]]
+[[even-tempered lagger]]

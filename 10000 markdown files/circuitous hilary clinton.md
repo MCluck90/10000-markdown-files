@@ -82,3 +82,8 @@ IT TO YOU do you find
 here O mouse doesn't seem to
 : Run home thought it meant the pattern on half the jury asked in fact is Bill
 
+
+## Wikilinks load test
+
+[[pedestrian wood-sorrel family]]
+[[venturous xx]]

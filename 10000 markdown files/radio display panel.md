@@ -84,3 +84,10 @@ That'll be grand words
 Once more tea and
 : Does YOUR temper and with large plate with diamonds and Alice's head
 
+
+## Wikilinks load test
+
+[[imprecise genus calocarpum]]
+[[whacking le]]
+[[polyoestrous conversationist]]
+[[bicorned gansu province]]

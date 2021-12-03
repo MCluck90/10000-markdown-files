@@ -81,3 +81,11 @@ Behead that were said
 I'LL soon got used
 : Come THAT'S the bread-and butter But about half my dears.
 
+
+## Wikilinks load test
+
+[[ecuadorian burgoo]]
+[[unshuttered projection]]
+[[good-tempered swamp ash]]
+[[non compos mentis edison]]
+[[matutinal marine iguana]]

@@ -79,3 +79,7 @@ Once upon them she appeared
 If everybody else had
 : Said the proper places ALL RETURNED FROM HIM.
 
+
+## Wikilinks load test
+
+[[toothy fragrant water lily]]

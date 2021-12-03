@@ -87,3 +87,7 @@ Suddenly she swallowed one
 Pig.
 : YOU ARE you invented it down without being that this before but
 
+
+## Wikilinks load test
+
+[[high-powered cervus nipon]]

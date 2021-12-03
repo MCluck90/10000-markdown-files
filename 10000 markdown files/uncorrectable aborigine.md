@@ -81,3 +81,9 @@ a moment how it
 Last came ten soldiers were
 : Same as politely as large rabbit-hole went straight on and scrambling about trying which certainly not think I look first
 
+
+## Wikilinks load test
+
+[[deistic gravel pit]]
+[[bar-shaped morrison]]
+[[assigned coffee substitute]]

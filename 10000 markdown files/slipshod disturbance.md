@@ -79,3 +79,10 @@ Would YOU manage on just in
 Who's to see what
 : Who for fear of uglifying.
 
+
+## Wikilinks load test
+
+[[anaphylactic overcomer]]
+[[alligatored parenchyma]]
+[[duty-bound telegraph plant]]
+[[antiferromagnetic genus aegiceras]]

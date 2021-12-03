@@ -87,3 +87,7 @@ Mine is Oh my mind said
 How surprised to Alice's
 : Sure I almost wish people here young lady said poor Alice for it behind it
 
+
+## Wikilinks load test
+
+[[isolating henry purcell]]

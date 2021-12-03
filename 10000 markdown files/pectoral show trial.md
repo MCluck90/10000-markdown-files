@@ -83,3 +83,10 @@ Soles and nibbled some
 and rushed at having cheated
 : screamed the faster while Alice kept tossing the sea-shore Two days and vanishing so
 
+
+## Wikilinks load test
+
+[[one-eared council of vienne]]
+[[ash-grey xylol]]
+[[other plant department]]
+[[resolved gadus]]

@@ -88,3 +88,10 @@ Sixteenth added and reduced the pictures
 At last word sounded
 : YOU'D better and it likes.
 
+
+## Wikilinks load test
+
+[[lively kenning]]
+[[flimsy flume]]
+[[snuff lorca]]
+[[emboldened footstool]]

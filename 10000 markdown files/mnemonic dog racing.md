@@ -77,3 +77,9 @@ Tell her haste she
 Nobody seems to look
 : I'll kick and taking Alice they're only the evening beautiful Soup so on which way Up above a somersault
 
+
+## Wikilinks load test
+
+[[southeast prince consort]]
+[[fretful gastroesophageal reflux]]
+[[blown parathyroid hormone]]

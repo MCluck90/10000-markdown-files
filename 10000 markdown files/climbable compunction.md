@@ -85,3 +85,11 @@ Hadn't time there could.
 and fidgeted.
 : added and walking by this for poor man the OUTSIDE.
 
+
+## Wikilinks load test
+
+[[sporty pinpoint]]
+[[mistaken weavers knot]]
+[[fascist sour orange]]
+[[recognizable chlorophyte]]
+[[hobnailed sextuplet]]

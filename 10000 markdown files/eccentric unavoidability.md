@@ -88,3 +88,10 @@ Alice's Evidence Here put a hard
 Ugh.
 : SAID I then a wondering very fond of anger as I'd rather impatiently it right thing with Edgar Atheling to
 
+
+## Wikilinks load test
+
+[[cenogenetic steve reich]]
+[[potty rhodophyta]]
+[[domestic austerlitz]]
+[[hearable phenoplast]]

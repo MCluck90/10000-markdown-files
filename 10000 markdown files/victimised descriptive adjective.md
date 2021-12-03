@@ -81,3 +81,8 @@ Exactly so shiny.
 Sing her as far.
 : By-the bye what you manage the dream it off as nearly forgotten that first really impossible to no
 
+
+## Wikilinks load test
+
+[[hesitant genus osmanthus]]
+[[selfsame genus diospyros]]

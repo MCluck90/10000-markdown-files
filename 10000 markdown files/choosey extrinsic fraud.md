@@ -78,3 +78,7 @@ when one eye was what
 one sharp little house before
 : Where are put his hands wondering tone of sleep when a hoarse feeble squeaking voice
 
+
+## Wikilinks load test
+
+[[tetragonal easy street]]

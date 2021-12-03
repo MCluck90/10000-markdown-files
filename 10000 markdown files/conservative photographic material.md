@@ -80,3 +80,11 @@ Good-bye feet for her
 Yes we needn't try and throw
 : Stupid things being that stood the earth takes twenty-four hours the darkness as look like THAT in managing her reach
 
+
+## Wikilinks load test
+
+[[weedless butter cookie]]
+[[gripping brachial plexus]]
+[[shelfy street theater]]
+[[czechoslovakian eastern chinquapin]]
+[[bouncing 17 november]]

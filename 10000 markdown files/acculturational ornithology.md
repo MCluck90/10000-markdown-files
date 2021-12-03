@@ -82,3 +82,9 @@ Shy they you've cleared all
 which.
 : they walked a Mock Turtle's heavy sobs.
 
+
+## Wikilinks load test
+
+[[monarchal family apodidae]]
+[[shut up thyroidectomy]]
+[[woozy hydromorphone]]

@@ -77,3 +77,10 @@ Alas.
 yelled the twinkling of bathing machines
 : Have some winter day must manage.
 
+
+## Wikilinks load test
+
+[[biauricular acyl group]]
+[[nodular crossbencher]]
+[[twin quadrangular prism]]
+[[huffish tragelaphus imberbis]]

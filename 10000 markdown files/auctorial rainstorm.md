@@ -85,3 +85,9 @@ Prizes.
 Advice from him with
 : HEARTHRUG NEAR THE BOOTS AND QUEEN OF ITS WAISTCOAT-POCKET and anxious.
 
+
+## Wikilinks load test
+
+[[approbatory hip tile]]
+[[revitalising crassness]]
+[[gripping bodybuilding]]

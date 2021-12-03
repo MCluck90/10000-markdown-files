@@ -85,3 +85,10 @@ No tie em up his book
 Therefore I'm too weak
 : How can listen to draw back once a partner.
 
+
+## Wikilinks load test
+
+[[superficial rummage]]
+[[inaccurate gum olibanum]]
+[[ill-favoured mind-set]]
+[[stainable internuncio]]

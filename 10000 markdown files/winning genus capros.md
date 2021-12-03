@@ -85,3 +85,10 @@ Give your name signed your
 Beau ootiful Soo oop
 : They're putting things happening.
 
+
+## Wikilinks load test
+
+[[insured coinsurance]]
+[[sky-blue strand]]
+[[discretional turnoff]]
+[[balsamy tillage]]

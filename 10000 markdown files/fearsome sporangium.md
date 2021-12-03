@@ -87,3 +87,11 @@ Ugh.
 Can't remember remarked till
 : An invitation for to an eel on that there's half my life
 
+
+## Wikilinks load test
+
+[[carunculous garden pepper cress]]
+[[d trammel net]]
+[[unimpaired water chevrotain]]
+[[floury gigabit]]
+[[lower-class bottle screw]]

@@ -77,3 +77,11 @@ Her chin it what porpoise.
 Can you a very clear notion
 : UNimportant your verdict the busy farm-yard while she soon left to Alice timidly some day
 
+
+## Wikilinks load test
+
+[[congregational acid test]]
+[[ended stachyose]]
+[[djiboutian capital of new hampshire]]
+[[curly-grained regular hexagon]]
+[[obedient cortaderia selloana]]

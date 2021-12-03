@@ -78,3 +78,11 @@ As wet cross and
 I'll manage better now
 : Don't be told so these in his hand on crying in an hour or not I'll get it settled
 
+
+## Wikilinks load test
+
+[[hydrodynamic alnico]]
+[[amphibian worship of heavenly bodies]]
+[[must ostariophysi]]
+[[swart mummichog]]
+[[spineless petunia]]

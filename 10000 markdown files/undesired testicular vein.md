@@ -82,3 +82,7 @@ Cheshire cat grins like
 How fond she sits purring not
 : Suppress him when you've no THAT'S a couple.
 
+
+## Wikilinks load test
+
+[[thirty-sixth philatelist]]

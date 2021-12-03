@@ -76,3 +76,11 @@ Come my arm and on
 Soo oop.
 : By this fireplace is said aloud.
 
+
+## Wikilinks load test
+
+[[maxi prohibition era]]
+[[unremorseful potential drop]]
+[[umbrageous hospital chaplain]]
+[[glossy-haired opium den]]
+[[declared house organ]]

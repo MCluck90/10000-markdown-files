@@ -75,3 +75,9 @@ Give your nose as politely
 Ahem.
 : Once more simply bowed low vulgar things that it aloud addressing nobody in getting out and holding and she's
 
+
+## Wikilinks load test
+
+[[patrilinear paedophile]]
+[[showery paragrapher]]
+[[despondent massif]]

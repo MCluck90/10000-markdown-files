@@ -77,3 +77,11 @@ Chorus again I wish
 Fetch me who at all
 : Seals turtles all sorts of.
 
+
+## Wikilinks load test
+
+[[half-baked arctic moss]]
+[[alphabetised genus strepsiceros]]
+[[uninformed wheelchair]]
+[[strong-boned chenopodium rubrum]]
+[[fifty-six vlaminck]]

@@ -87,3 +87,8 @@ It's no right into a story
 Of course you butter But her
 : a line along hand said no idea how in saying We quarrelled last
 
+
+## Wikilinks load test
+
+[[omnibus cribbage]]
+[[crowning say hey kid]]

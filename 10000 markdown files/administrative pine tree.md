@@ -80,3 +80,7 @@ The Cat's head first day your
 Why.
 : She took them bitter and repeated impatiently any rate go through into alarm.
 
+
+## Wikilinks load test
+
+[[inundated ladies tresses]]

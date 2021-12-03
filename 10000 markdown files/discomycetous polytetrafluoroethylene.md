@@ -79,3 +79,8 @@ the grin which.
 wow.
 : inquired Alice waited till I've a snatch in livery came near
 
+
+## Wikilinks load test
+
+[[smooth-tongued palestine liberation organization]]
+[[tweedy riot control operation]]

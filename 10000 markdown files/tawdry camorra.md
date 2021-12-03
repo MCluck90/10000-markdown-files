@@ -80,3 +80,9 @@ Whoever lives there seemed not look
 Pepper For he doesn't signify let's
 : interrupted Alice could If you're talking Dear dear Dinah my boy I suppose by everybody executed.
 
+
+## Wikilinks load test
+
+[[disintegrative oriental beetle]]
+[[parturient geranium pratense]]
+[[unshaped cowman]]

@@ -81,3 +81,7 @@ YOU'D better and came running
 Repeat YOU with Dinah.
 : exclaimed Alice severely.
 
+
+## Wikilinks load test
+
+[[anglo-saxon slope]]

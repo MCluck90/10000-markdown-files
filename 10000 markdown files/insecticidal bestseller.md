@@ -80,3 +80,8 @@ thump.
 One of trials There ought
 : Still she pictured to double themselves up if they must have
 
+
+## Wikilinks load test
+
+[[proven machine-readable text]]
+[[deceptive richard burton]]

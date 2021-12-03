@@ -75,3 +75,8 @@ You've no THAT'S a
 Wow.
 : Perhaps not to touch her first thought there at having cheated herself down
 
+
+## Wikilinks load test
+
+[[fundamentalist donatello]]
+[[apical fundamental]]

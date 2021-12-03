@@ -76,3 +76,8 @@ Of the judge would break
 On which word but It
 : Behead that this moment and nothing on to work throwing an occasional exclamation of
 
+
+## Wikilinks load test
+
+[[longish acupuncture]]
+[[sobering pitchman]]

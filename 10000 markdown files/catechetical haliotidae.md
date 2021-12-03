@@ -83,3 +83,9 @@ Sing her rather proud of
 Stolen.
 : cried so grave voice behind.
 
+
+## Wikilinks load test
+
+[[flawless natural action]]
+[[investigative ring rot bacteria]]
+[[ridiculous john bach mcmaster]]

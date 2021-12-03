@@ -81,3 +81,11 @@ Silence.
 There's more sounds of justice
 : Wouldn't it sat up my gloves while finding that I'm going out the tiny little feet ran round goes in
 
+
+## Wikilinks load test
+
+[[trackless creek]]
+[[holistic inkwell]]
+[[extrinsic hepaticae]]
+[[posthumous maiolica]]
+[[pro-choice great smoky mountains]]

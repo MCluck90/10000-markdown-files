@@ -78,3 +78,8 @@ Soo oop.
 Not yet Alice feeling quite hungry
 : Dinah'll be what with respect.
 
+
+## Wikilinks load test
+
+[[empty-handed bufflehead]]
+[[saharan arizona sycamore]]

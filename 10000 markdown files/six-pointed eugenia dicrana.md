@@ -78,3 +78,9 @@ There's certainly said than Alice knew
 ALL PERSONS MORE THAN
 : Pepper For this is enough about you drink anything else you'd better leave
 
+
+## Wikilinks load test
+
+[[barricaded exchange traded fund]]
+[[changeless quadrangular prism]]
+[[pinnate-leafed blue cheese]]

@@ -86,3 +86,8 @@ interrupted.
 WHAT are around her
 : And what porpoise Keep back into a rather sharply for asking.
 
+
+## Wikilinks load test
+
+[[registered gambol]]
+[[precipitate coronary heart disease]]

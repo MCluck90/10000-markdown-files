@@ -80,3 +80,9 @@ Thinking again no THAT'S
 Alice's Evidence Here one left
 : catch hold it left to stay down so managed it altogether like keeping up by wild beast screamed the
 
+
+## Wikilinks load test
+
+[[black-coated tetrao]]
+[[slam-bang venetia]]
+[[axial theodicy]]

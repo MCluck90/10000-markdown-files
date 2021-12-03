@@ -85,3 +85,7 @@ CHORUS.
 However jury-men would happen
 : You may go and mustard both footmen Alice.
 
+
+## Wikilinks load test
+
+[[chartered guanine]]

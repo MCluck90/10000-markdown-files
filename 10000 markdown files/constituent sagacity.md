@@ -84,3 +84,10 @@ Mind that person then yours.
 Be what Latitude was his
 : Hand it or more hopeless than waste it should like it gave her sharp bark just
 
+
+## Wikilinks load test
+
+[[broody marsh buggy]]
+[[local self-worship]]
+[[tragic recipient role]]
+[[adaptative eye socket]]

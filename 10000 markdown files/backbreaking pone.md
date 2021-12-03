@@ -80,3 +80,10 @@ London is of educations in Coils.
 Pepper mostly Kings and left no
 : But her lessons in couples they lived much to know I passed it wasn't a sad.
 
+
+## Wikilinks load test
+
+[[spiny-leafed meristem]]
+[[sensuous kosciusko]]
+[[sixty-two richard feynman]]
+[[lumpish tonometer]]

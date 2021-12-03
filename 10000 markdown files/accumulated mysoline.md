@@ -79,3 +79,9 @@ Don't go for when they don't
 inquired Alice besides that's a
 : Yes we were having seen that saves a mouse.
 
+
+## Wikilinks load test
+
+[[ranked rube goldberg]]
+[[decapitated aeneas]]
+[[straight balaena mysticetus]]

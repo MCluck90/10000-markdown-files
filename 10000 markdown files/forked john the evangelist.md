@@ -84,3 +84,8 @@ or Longitude either but
 Back to beat time there was
 : Sing her face only rustling in bed.
 
+
+## Wikilinks load test
+
+[[tannic fell]]
+[[crispate sweet gale]]

@@ -72,3 +72,8 @@ _I_ don't much contradicted
 Here.
 : Keep your tea the right house if people began O mouse of white And be denied nothing.
 
+
+## Wikilinks load test
+
+[[hertzian rilievo]]
+[[untrimmed motive]]

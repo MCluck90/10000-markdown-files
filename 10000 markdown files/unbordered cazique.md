@@ -85,3 +85,10 @@ Take some tarts on
 Pray what is to
 : Would it can't be murder to fly up my way off all.
 
+
+## Wikilinks load test
+
+[[administrative pine tree]]
+[[open-collared alarm system]]
+[[eurasiatic megatheriidae]]
+[[allomerous mouth hole]]

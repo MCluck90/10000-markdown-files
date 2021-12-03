@@ -81,3 +81,11 @@ you join the regular rule
 HE was shrinking rapidly
 : Indeed she sat down their faces.
 
+
+## Wikilinks load test
+
+[[overgenerous entomophthoraceae]]
+[[confutative running stitch]]
+[[archaean ado]]
+[[pet pitchman]]
+[[watery collectivist]]

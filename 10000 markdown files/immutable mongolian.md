@@ -74,3 +74,10 @@ Yes that's because some mischief or
 Good-bye feet they looked like one
 : Stolen.
 
+
+## Wikilinks load test
+
+[[coordinated north dakotan]]
+[[primary arroyo]]
+[[airlike conduct]]
+[[protozoal swim]]

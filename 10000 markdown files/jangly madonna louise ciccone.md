@@ -81,3 +81,8 @@ Prizes.
 To begin lessons to
 : sh.
 
+
+## Wikilinks load test
+
+[[jet-propelled pathology]]
+[[ok groundwork]]

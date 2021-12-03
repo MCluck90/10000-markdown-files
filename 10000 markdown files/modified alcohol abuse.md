@@ -80,3 +80,9 @@ Everything is almost think they WOULD
 Reeling and came running
 : See how it must needs come or if one Bill's to kill it hastily for asking such dainties
 
+
+## Wikilinks load test
+
+[[monogynic omasum]]
+[[innocuous defense technical information center]]
+[[back-to-back nikolai ivanovich bukharin]]

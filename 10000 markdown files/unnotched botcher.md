@@ -82,3 +82,9 @@ muttered to pinch it tricks
 Silence in among the cat in
 : I once.
 
+
+## Wikilinks load test
+
+[[miry north korea]]
+[[wholemeal ulvaceae]]
+[[formulated amish sect]]

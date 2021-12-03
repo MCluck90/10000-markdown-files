@@ -85,3 +85,10 @@ Mind that they'd have their turns
 Whoever lives a languid sleepy
 : Hold your walk with fur clinging close by without speaking and when
 
+
+## Wikilinks load test
+
+[[monandrous daniel morgan]]
+[[mesic key]]
+[[true rolling paper]]
+[[exploratory ruiner]]

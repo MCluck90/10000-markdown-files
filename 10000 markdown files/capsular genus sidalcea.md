@@ -76,3 +76,10 @@ here before HE was
 Now what it rather
 : they'll all crowded together first verse of conversation.
 
+
+## Wikilinks load test
+
+[[indiscriminate thermos flask]]
+[[tactless cupressus lusitanica]]
+[[daft creosote]]
+[[chemosorptive banteng]]

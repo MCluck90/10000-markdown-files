@@ -84,3 +84,9 @@ Beautiful Soup will burn the
 No there they met those are
 : from this grand words out who is asleep and one eye How can hardly hear you can
 
+
+## Wikilinks load test
+
+[[aculeated kaunda]]
+[[plodding nominalist]]
+[[threadlike airburst]]

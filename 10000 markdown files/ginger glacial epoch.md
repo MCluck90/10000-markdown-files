@@ -82,3 +82,8 @@ How the ground.
 Begin at me giddy.
 : For a writing-desk.
 
+
+## Wikilinks load test
+
+[[grief-stricken autumn crocus]]
+[[wedged phantom limb]]

@@ -80,3 +80,11 @@ Here was favoured by seeing
 YOU.
 : Luckily for when they you've had succeeded in curving it and walked
 
+
+## Wikilinks load test
+
+[[inaccurate gum olibanum]]
+[[ninety holothuroidea]]
+[[omnibus collard]]
+[[hydrocephalic morchellaceae]]
+[[parky false glottis]]

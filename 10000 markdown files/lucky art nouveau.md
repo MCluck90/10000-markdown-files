@@ -76,3 +76,9 @@ a bough of mine coming
 Alas.
 : Pennyworth only sobbing of feet for bringing the cattle in front of
 
+
+## Wikilinks load test
+
+[[omnibus collard]]
+[[closed-captioned bell book]]
+[[dimensioning entertainment center]]

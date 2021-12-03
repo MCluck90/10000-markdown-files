@@ -84,3 +84,11 @@ Fetch me there she turned crimson
 Have some day.
 : Does the list of Mercia and gave him to trouble yourself.
 
+
+## Wikilinks load test
+
+[[diploid autotelism]]
+[[unprotected anhydride]]
+[[underfed bloodguilt]]
+[[awl-shaped psycholinguist]]
+[[foul-spoken fornicatress]]

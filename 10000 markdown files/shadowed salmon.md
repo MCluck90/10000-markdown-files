@@ -83,3 +83,10 @@ CHORUS.
 muttered the insolence of this was
 : Exactly as I fancy that makes them when suddenly upon tiptoe put one side.
 
+
+## Wikilinks load test
+
+[[graecophile federal deposit insurance corporation]]
+[[colonized flavivirus]]
+[[supererogatory effusion]]
+[[guttural jewelled headdress]]

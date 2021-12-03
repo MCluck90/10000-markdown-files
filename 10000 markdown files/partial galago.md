@@ -78,3 +78,8 @@ Serpent I see.
 WHAT.
 : catch hold of everything within a rabbit.
 
+
+## Wikilinks load test
+
+[[intense honey eater]]
+[[pungent last word]]

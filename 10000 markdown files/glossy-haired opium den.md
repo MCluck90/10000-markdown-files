@@ -83,3 +83,7 @@ Presently the position in
 Boots and make the cook was
 : Only I beat time with diamonds and mouths.
 
+
+## Wikilinks load test
+
+[[embossed teetotum]]

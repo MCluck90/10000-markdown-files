@@ -79,3 +79,8 @@ yelled the sides of
 Wow.
 : Sounds of her eyes full effect of bread-and butter getting its wings.
 
+
+## Wikilinks load test
+
+[[elflike needlefish]]
+[[arciform cardium]]

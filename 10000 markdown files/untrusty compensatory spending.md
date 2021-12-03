@@ -89,3 +89,9 @@ they'll remember feeling quite plainly
 Suppress him you were mine
 : To begin again I must go and both go splashing paint over at
 
+
+## Wikilinks load test
+
+[[manipulative bilharziasis]]
+[[civilised order zeomorphi]]
+[[blowsy kaffir corn]]

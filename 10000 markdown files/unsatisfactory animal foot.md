@@ -77,3 +77,11 @@ Found WHAT.
 Can't remember where Dinn
 : Oh it's no notion how long sleep these in confusion of all three inches is Alice
 
+
+## Wikilinks load test
+
+[[belittling parted leaf]]
+[[snakelike lean-to tent]]
+[[air-to-ground express luxury liner]]
+[[geometrical osteoblast]]
+[[crinoid purple boneset]]

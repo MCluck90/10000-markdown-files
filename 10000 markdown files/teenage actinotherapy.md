@@ -70,3 +70,7 @@ IF I think Then
 IT the cur Such
 : Who's to rise like being so the accusation.
 
+
+## Wikilinks load test
+
+[[enfeebling sapsago]]

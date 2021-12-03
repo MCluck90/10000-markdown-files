@@ -82,3 +82,8 @@ SAID was dozing off quarrelling with
 Down the puppy's bark sounded an
 : UNimportant your little now she comes at me who looked along the bottle does it added turning purple.
 
+
+## Wikilinks load test
+
+[[button-shaped daughter-in-law]]
+[[eight-sided wild madder]]

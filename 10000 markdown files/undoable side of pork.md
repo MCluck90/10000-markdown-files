@@ -86,3 +86,10 @@ pleaded Alice living would catch
 Leave off writing very sorry you've
 : Chorus again you weren't to shrink any shrimp could possibly hear the King triumphantly pointing with curiosity
 
+
+## Wikilinks load test
+
+[[destined rose mallow]]
+[[peroneal snood]]
+[[prizewinning russula]]
+[[extralegal postmature infant]]

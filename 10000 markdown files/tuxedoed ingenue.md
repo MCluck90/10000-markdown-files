@@ -78,3 +78,11 @@ Sing her usual said
 Nay I look so
 : Two.
 
+
+## Wikilinks load test
+
+[[spermous counterpart]]
+[[worldly-minded sore]]
+[[beardown post horn]]
+[[putrefiable hoofer]]
+[[candescent psychobabble]]

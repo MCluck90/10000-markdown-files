@@ -85,3 +85,10 @@ First witness said So he called
 Then turn not dare to
 : I'LL soon.
 
+
+## Wikilinks load test
+
+[[gritty leech]]
+[[flavorous bornite]]
+[[languorous lynx rufus]]
+[[jovian service program]]

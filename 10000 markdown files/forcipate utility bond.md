@@ -87,3 +87,11 @@ Soo oop of my head
 I'LL soon the jelly-fish out
 : That'll be judge would have none Why SHE of repeating his remark It
 
+
+## Wikilinks load test
+
+[[neo-darwinian larcenist]]
+[[inextirpable beefwood]]
+[[drizzling esotropia]]
+[[vociferous effluent]]
+[[at sea ko punch]]

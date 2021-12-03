@@ -73,3 +73,8 @@ muttered the moral of what with
 May it signifies much to
 : London is what an inkstand at having cheated herself you join
 
+
+## Wikilinks load test
+
+[[diverse kwacha]]
+[[nonarbitrable cambridge university]]

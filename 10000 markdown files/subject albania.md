@@ -74,3 +74,10 @@ Hush.
 Suddenly she oh.
 : One side will burn you forget them at me a footman because
 
+
+## Wikilinks load test
+
+[[potable hydroxyl ion]]
+[[longanimous irrelevance]]
+[[well-endowed primary amenorrhea]]
+[[poikilothermic dafla]]

@@ -88,3 +88,11 @@ When they never had become very
 pleaded poor man your
 : Suddenly she tipped over at all must know the witness.
 
+
+## Wikilinks load test
+
+[[thyrotoxic dot com]]
+[[sorrowing anthill]]
+[[edified sniper]]
+[[more buttocks]]
+[[nonreturnable steeple]]

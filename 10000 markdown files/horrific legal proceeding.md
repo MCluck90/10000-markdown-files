@@ -88,3 +88,10 @@ thump.
 Presently she walked down in
 : Perhaps not an oyster.
 
+
+## Wikilinks load test
+
+[[sanctionative liliaceae]]
+[[microelectronic spontaneous generation]]
+[[cognisable genus agalinis]]
+[[etched levanter]]

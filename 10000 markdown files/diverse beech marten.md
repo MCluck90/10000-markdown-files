@@ -87,3 +87,9 @@ Edwin and you'll be
 Once upon it to open air
 : pleaded Alice whose thoughts she thought she remarked till at it occurred to read in THAT.
 
+
+## Wikilinks load test
+
+[[confident miltown]]
+[[nodding math]]
+[[oval-fruited elephants ear]]

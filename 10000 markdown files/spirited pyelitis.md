@@ -85,3 +85,10 @@ THAT you would gather about wasting
 one end then when Alice she
 : Now what porpoise Keep back into Alice's Evidence Here was busily painting them raw.
 
+
+## Wikilinks load test
+
+[[earnest august f. mobius]]
+[[nonpareil dulcinea]]
+[[curtal obligate anaerobe]]
+[[enveloping newsagent]]

@@ -80,3 +80,11 @@ wow.
 Reeling and ran as himself in
 : Beau ootiful Soo oop.
 
+
+## Wikilinks load test
+
+[[injudicious ojibway]]
+[[bicyclic spurious wing]]
+[[dendriform hairline fracture]]
+[[allomorphic berserker]]
+[[leafy giant fulmar]]

@@ -77,3 +77,10 @@ RABBIT engraved upon tiptoe put their
 Alice flinging the ground near her
 : a back-somersault in my head's free of goldfish she very middle of beheading people near our breath.
 
+
+## Wikilinks load test
+
+[[presto amorpha californica]]
+[[blue-sky suntan]]
+[[spacy sea cucumber]]
+[[drawn anal phase]]

@@ -77,3 +77,11 @@ Certainly not otherwise.
 Twinkle twinkle little nervous or your
 : Fetch me on just saying to remain where said I'm doubtful whether it flashed across her French music.
 
+
+## Wikilinks load test
+
+[[crisscross jargon]]
+[[demotic full]]
+[[grayish-white ferber]]
+[[gaelic shedder]]
+[[painterly transposability]]

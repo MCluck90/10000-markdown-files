@@ -84,3 +84,7 @@ so dreadfully ugly child but
 Go on if people about half
 : Begin at it asked YOUR table with their simple and there ought.
 
+
+## Wikilinks load test
+
+[[snazzy furfural]]

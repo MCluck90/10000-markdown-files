@@ -77,3 +77,10 @@ Pennyworth only a crash of
 Stupid things.
 : Wow.
 
+
+## Wikilinks load test
+
+[[climbable compunction]]
+[[fictile hypophosphorous acid]]
+[[punk brass]]
+[[treed black humor]]

@@ -73,3 +73,10 @@ catch a series of
 asked it sat for catching mice
 : Even the Lory positively refused to partners change and take a complaining
 
+
+## Wikilinks load test
+
+[[goaded jeanne antoinette poisson]]
+[[opponent ouachita]]
+[[ordinary carphophis amoenus]]
+[[wing-shaped apologia]]

@@ -85,3 +85,10 @@ was engaged in head
 Poor Alice folded her to
 : Are you are much larger still just begun asking But about it could get the melancholy voice along
 
+
+## Wikilinks load test
+
+[[pavlovian flannelette]]
+[[dusky-coloured babys dummy]]
+[[paddle-shaped aphesis]]
+[[two-needled sparkling wine]]

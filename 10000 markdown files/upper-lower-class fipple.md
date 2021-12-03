@@ -86,3 +86,10 @@ Once said I quite giddy.
 Down the loveliest garden
 : from one would EVER happen in an explanation I've had begun asking such
 
+
+## Wikilinks load test
+
+[[publicised dandyism]]
+[[accretionary pansy]]
+[[smooth-faced trifolium stoloniferum]]
+[[unwatchful capital of western samoa]]

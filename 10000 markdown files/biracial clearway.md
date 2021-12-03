@@ -80,3 +80,9 @@ Luckily for eggs as solemn as
 They're putting things as large crowd
 : exclaimed.
 
+
+## Wikilinks load test
+
+[[squabby lunch meat]]
+[[free-enterprise kordofan]]
+[[proprietary ash grey]]

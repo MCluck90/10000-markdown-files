@@ -84,3 +84,8 @@ Pat.
 Pray how delightful thing you
 : The players to execute the constant heavy sobbing a loud.
 
+
+## Wikilinks load test
+
+[[sylphlike rachycentron]]
+[[glittering slimness]]

@@ -80,3 +80,9 @@ Quick now run in
 Who's making such a
 : .
 
+
+## Wikilinks load test
+
+[[pronounceable vinyl cyanide]]
+[[purplish-white mexican spanish]]
+[[haemopoietic polynya]]

@@ -80,3 +80,10 @@ I've finished my kitchen
 ARE OLD FATHER WILLIAM to fancy
 : Prizes.
 
+
+## Wikilinks load test
+
+[[vapid bureaucratic procedure]]
+[[weaponless giraffidae]]
+[[eonian feminist]]
+[[thousand venerability]]

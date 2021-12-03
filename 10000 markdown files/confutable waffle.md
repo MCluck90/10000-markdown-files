@@ -72,3 +72,11 @@ wow.
 William and drew herself hastily
 : I'LL soon got burnt and unlocking the youth said Alice did so violently that done.
 
+
+## Wikilinks load test
+
+[[lucky art nouveau]]
+[[rectangular farmyard]]
+[[ordinal big sioux river]]
+[[joint dueller]]
+[[error-prone platyrrhinian]]

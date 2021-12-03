@@ -81,3 +81,8 @@ Stolen.
 Mine is look about ravens and
 : That'll be afraid of bathing machines in Coils.
 
+
+## Wikilinks load test
+
+[[inaccurate pumpkin vine]]
+[[brusk brazil-nut tree]]

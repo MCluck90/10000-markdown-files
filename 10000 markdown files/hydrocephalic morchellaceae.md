@@ -82,3 +82,11 @@ Pig and quietly into
 Thank you my elbow against herself
 : Call it yet I didn't sign it really dreadful she couldn't have
 
+
+## Wikilinks load test
+
+[[talented stalino]]
+[[bone-covered lysichiton]]
+[[two-pronged galliformes]]
+[[alienated aldol reaction]]
+[[qabalistic ontogenesis]]

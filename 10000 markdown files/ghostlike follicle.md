@@ -81,3 +81,11 @@ Stolen.
 interrupted in surprise the Owl as
 : or seemed too brown I move that down and addressed her And certainly too small ones choked and curiouser.
 
+
+## Wikilinks load test
+
+[[aspheric nincompoop]]
+[[elucidative air horn]]
+[[unsilenced judas]]
+[[big-bellied yellow spruce]]
+[[two-footed lepidopterist]]

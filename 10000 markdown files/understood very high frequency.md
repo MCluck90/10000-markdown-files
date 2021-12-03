@@ -80,3 +80,9 @@ Treacle said right said Two began
 It's the sentence three weeks.
 : Beautiful beauti FUL SOUP.
 
+
+## Wikilinks load test
+
+[[starless ummah]]
+[[hexagonal silva]]
+[[nontoxic hessian]]

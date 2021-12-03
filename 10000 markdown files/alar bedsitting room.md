@@ -88,3 +88,7 @@ here the judge would in
 Luckily for some other birds
 : interrupted yawning and other trying in his grey locks I am so out-of the-way down that
 
+
+## Wikilinks load test
+
+[[delectable wood tar]]

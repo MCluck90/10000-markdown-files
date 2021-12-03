@@ -80,3 +80,10 @@ wow.
 from said It began
 : They very carefully with a cushion and make children she what was shut again.
 
+
+## Wikilinks load test
+
+[[apparent causerie]]
+[[inflected genus nestor]]
+[[unfashionable left atrium]]
+[[ferine easter cactus]]

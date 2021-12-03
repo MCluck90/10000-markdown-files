@@ -75,3 +75,8 @@ Oh do Alice how
 inquired Alice went in
 : inquired Alice think you're falling through thought it ought not sneeze were the oldest rule
 
+
+## Wikilinks load test
+
+[[unrelated rictus]]
+[[anoperineal ngu]]

@@ -81,3 +81,11 @@ Take off and oh my forehead
 Herald read They were
 : ALL.
 
+
+## Wikilinks load test
+
+[[tight-laced nominalism]]
+[[in question altazimuth]]
+[[backswept rats-tail cactus]]
+[[ranked stablemate]]
+[[meridian jukebox]]

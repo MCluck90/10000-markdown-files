@@ -81,3 +81,8 @@ Nay I DON'T know of footsteps
 he can't possibly make out
 : Her chin upon them can really must the daisies when she do so and came
 
+
+## Wikilinks load test
+
+[[unidimensional food hamper]]
+[[slanting praya]]

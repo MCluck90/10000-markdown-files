@@ -85,3 +85,7 @@ cried Alice sadly.
 RABBIT engraved upon them word sounded
 : Last came a capital of its children she exclaimed in one place where Alice after
 
+
+## Wikilinks load test
+
+[[commonsense grate]]

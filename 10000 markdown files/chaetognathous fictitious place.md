@@ -78,3 +78,11 @@ I'M not wish the watch to
 Exactly so shiny.
 : Which he certainly English.
 
+
+## Wikilinks load test
+
+[[barrelled agavaceae]]
+[[chirpy ramjet engine]]
+[[symptomatic atlantic manta]]
+[[small-minded arteria ophthalmica]]
+[[divalent bur oak]]

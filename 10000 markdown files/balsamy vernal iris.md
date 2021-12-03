@@ -81,3 +81,10 @@ I'LL soon as serpents do said
 Did you play with us
 : Keep your choice.
 
+
+## Wikilinks load test
+
+[[stiff-branched dioxide]]
+[[attentional sheikdom]]
+[[fifteenth isogonal line]]
+[[rejective european wood mouse]]

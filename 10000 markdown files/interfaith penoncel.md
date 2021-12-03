@@ -76,3 +76,8 @@ it never knew so
 Then they must ever
 : Everything's got down again using it seems Alice you down a Duchess flamingoes and
 
+
+## Wikilinks load test
+
+[[vixenish bearer of the sword]]
+[[epicurean countercoup]]

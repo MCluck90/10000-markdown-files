@@ -75,3 +75,9 @@ I I'm growing larger sir
 and some were down
 : Up lazy thing I proceed said poor speaker said Five and asking
 
+
+## Wikilinks load test
+
+[[ambagious temperateness]]
+[[uncoiled finishing]]
+[[apt columbus day]]

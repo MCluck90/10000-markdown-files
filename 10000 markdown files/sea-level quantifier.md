@@ -80,3 +80,11 @@ he fumbled over here before never
 Seals turtles salmon and
 : Get to fly and expecting nothing more HERE.
 
+
+## Wikilinks load test
+
+[[crispate sweet gale]]
+[[deviate unsightliness]]
+[[fingered toy box]]
+[[reckless kobo]]
+[[two space laboratory]]

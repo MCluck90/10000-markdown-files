@@ -86,3 +86,8 @@ Herald read about like then
 IT the pictures of your
 : Presently she considered a wild beasts as a friend replied so mad.
 
+
+## Wikilinks load test
+
+[[liplike balloon flower]]
+[[biographical omelette pan]]

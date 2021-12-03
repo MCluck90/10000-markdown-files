@@ -83,3 +83,11 @@ Nothing can tell you like
 pleaded Alice looking for
 : Ahem.
 
+
+## Wikilinks load test
+
+[[coral-red operoseness]]
+[[bimotored indian chocolate]]
+[[incredible levant cotton]]
+[[amphiprostyle hyper-eutectoid steel]]
+[[accustomed pingpong paddle]]

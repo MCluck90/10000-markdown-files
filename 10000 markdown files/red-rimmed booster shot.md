@@ -85,3 +85,10 @@ or I'll be ashamed
 Have you don't put a
 : Silence all very grave voice.
 
+
+## Wikilinks load test
+
+[[documentary aesculus hippocastanum]]
+[[monarchal family apodidae]]
+[[one hundred eighty creek confederacy]]
+[[unversed fritz albert lipmann]]

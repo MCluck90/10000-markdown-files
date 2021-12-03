@@ -71,3 +71,8 @@ Let's go by his
 Poor Alice felt unhappy
 : _I_ don't.
 
+
+## Wikilinks load test
+
+[[cenogenetic tribal chief]]
+[[telltale morletts crocodile]]

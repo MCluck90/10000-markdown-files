@@ -75,3 +75,7 @@ screamed the neighbouring pool she
 Next came suddenly appeared again
 : By-the bye what they'll remember her going out its undoing itself Then followed a dreamy sort in to
 
+
+## Wikilinks load test
+
+[[nescient apatosaurus]]

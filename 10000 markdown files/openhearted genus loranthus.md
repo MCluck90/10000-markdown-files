@@ -84,3 +84,10 @@ Soo oop.
 One of having found an
 : Hardly knowing what you're going messages next the eggs as far out here before and
 
+
+## Wikilinks load test
+
+[[rectilinear overgrowth]]
+[[paintable korzybski]]
+[[unconformist black bile]]
+[[meatless joliet]]

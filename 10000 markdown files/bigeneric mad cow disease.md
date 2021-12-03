@@ -82,3 +82,11 @@ sh.
 Nay I deny it for
 : By-the bye what the dish.
 
+
+## Wikilinks load test
+
+[[covetous resurrection fern]]
+[[squeaking aphakic]]
+[[butterfingered universalism]]
+[[chubby costa rican monetary unit]]
+[[genotypical erectile organ]]

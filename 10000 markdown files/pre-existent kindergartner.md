@@ -80,3 +80,10 @@ Really now more questions about it
 Or would deny it does it
 : Hush.
 
+
+## Wikilinks load test
+
+[[skilled radiant flux]]
+[[unmortgaged spore]]
+[[two-dimensional bond]]
+[[tendencious william saroyan]]

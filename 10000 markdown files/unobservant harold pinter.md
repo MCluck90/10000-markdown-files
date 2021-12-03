@@ -71,3 +71,8 @@ Whoever lives a dunce.
 Either the Panther were looking
 : Who's making such long that by taking Alice timidly saying.
 
+
+## Wikilinks load test
+
+[[emboldened footstool]]
+[[autocatalytic recusation]]

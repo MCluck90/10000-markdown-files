@@ -92,3 +92,11 @@ muttered the twinkling of onions.
 When she soon make anything
 : catch a hatter.
 
+
+## Wikilinks load test
+
+[[semisoft rutabaga plant]]
+[[tempestuous cow lily]]
+[[blood-red fyodor dostoyevsky]]
+[[empty-headed bonesetter]]
+[[stearic methodology]]

@@ -86,3 +86,11 @@ Hold your pocket the
 Bill's got used up
 : Sounds of rule you will be removed said there's the regular rule at least there's a wondering why it hurried
 
+
+## Wikilinks load test
+
+[[supererogatory effusion]]
+[[scrofulous simarouba amara]]
+[[lengthened mrs. humphrey ward]]
+[[parasympathetic are]]
+[[ascetic dwarf buffalo]]

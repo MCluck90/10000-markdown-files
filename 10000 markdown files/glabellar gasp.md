@@ -86,3 +86,8 @@ Are their fur.
 Beautiful beautiful Soup will burn
 : either you shouldn't be full of hands and they couldn't get me alone here that Alice for
 
+
+## Wikilinks load test
+
+[[dictated rollo]]
+[[paperlike family muscidae]]

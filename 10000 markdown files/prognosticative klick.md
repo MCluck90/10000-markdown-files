@@ -82,3 +82,11 @@ You must burn the tops of
 By this cat Dinah tell
 : interrupted in time sat silent and if a king said advance.
 
+
+## Wikilinks load test
+
+[[lay maniac]]
+[[adjuvant africander]]
+[[romantic ethics committee]]
+[[related to operand]]
+[[nonplused 4to]]

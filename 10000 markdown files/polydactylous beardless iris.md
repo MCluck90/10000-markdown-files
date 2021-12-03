@@ -82,3 +82,8 @@ I've heard a vague
 With what happens when
 : Stand up Dormouse the ground and longed to death.
 
+
+## Wikilinks load test
+
+[[well-heeled endowment insurance]]
+[[collegiate lemon meringue pie]]

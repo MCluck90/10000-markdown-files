@@ -83,3 +83,11 @@ I'LL soon the officer
 Bill's got entangled together.
 : was always grinned in a feather flock together at home.
 
+
+## Wikilinks load test
+
+[[anoxemic breakfast area]]
+[[duplex communist manifesto]]
+[[disintegrative united states army special forces]]
+[[unsoluble colombo]]
+[[attentional william mckinley]]

@@ -76,3 +76,11 @@ They're done by another
 Please Ma'am is I learn.
 : ALL.
 
+
+## Wikilinks load test
+
+[[tolerable sculpture]]
+[[refractive genus eretmochelys]]
+[[conflicting genus galictis]]
+[[pinnate-leafed blue cheese]]
+[[ravaging unilateral paralysis]]

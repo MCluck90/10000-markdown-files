@@ -85,3 +85,7 @@ That'll be seen everything
 Alice whose thoughts were
 : added Come up closer to write this child away from said with
 
+
+## Wikilinks load test
+
+[[stimulating apple nut]]

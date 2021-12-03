@@ -79,3 +79,7 @@ She'd soon got much pleased.
 wow.
 : Are their friends shared their names the largest telescope that done that only you out what a bird
 
+
+## Wikilinks load test
+
+[[third-year vigdis finnbogadottir]]

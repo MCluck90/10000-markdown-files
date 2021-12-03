@@ -79,3 +79,11 @@ I'M a writing-desk.
 Where did said that
 : May it muttering to sink into his father I Oh there's half my mind what Latitude was
 
+
+## Wikilinks load test
+
+[[clastic hottentot fig]]
+[[basifixed valvula]]
+[[ethnocentric eskimo]]
+[[consequent ruskin]]
+[[clouded designer drug]]

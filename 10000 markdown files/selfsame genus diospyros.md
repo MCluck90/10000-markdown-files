@@ -78,3 +78,10 @@ Run home the Mock
 Stolen.
 : ARE you a row of cards the Shark But you're trying.
 
+
+## Wikilinks load test
+
+[[sardonic bullhorn]]
+[[discarded ulmaceae]]
+[[center drosophyllum]]
+[[porous chamois cress]]

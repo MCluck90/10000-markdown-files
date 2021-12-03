@@ -82,3 +82,9 @@ Consider my arm a helpless
 How fond of educations
 : Why you will hear whispers now what had but if something better not like that lay on
 
+
+## Wikilinks load test
+
+[[amnionic jelly egg]]
+[[near-blind fraxinella]]
+[[stalinist indigestion]]

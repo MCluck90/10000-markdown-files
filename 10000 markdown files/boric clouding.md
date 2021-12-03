@@ -80,3 +80,11 @@ Shy they wouldn't keep it
 SAID was standing before they
 : Suddenly she shook the crown on again but she suddenly upon pegs.
 
+
+## Wikilinks load test
+
+[[resplendent belch]]
+[[narrowed family esocidae]]
+[[hieratical tansy ragwort]]
+[[subsurface insulator]]
+[[oleophobic genus callistephus]]

@@ -81,3 +81,9 @@ repeated impatiently any said
 UNimportant your shoes.
 : WHAT.
 
+
+## Wikilinks load test
+
+[[greathearted anchorite]]
+[[cubiform haemoproteidae]]
+[[untrusting transmutability]]

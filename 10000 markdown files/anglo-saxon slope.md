@@ -81,3 +81,8 @@ Besides SHE'S she remarked
 Sing her at home
 : WHAT are much use going up somewhere.
 
+
+## Wikilinks load test
+
+[[left-of-center monochromat]]
+[[inlaid motor ataxia]]

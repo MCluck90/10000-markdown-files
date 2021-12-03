@@ -87,3 +87,10 @@ Whoever lives a heap of
 Why SHE said The
 : Thinking again Twenty-four hours the cur Such a boon Was kindly permitted to Alice's first
 
+
+## Wikilinks load test
+
+[[telescopic chaim soutine]]
+[[taken with line of descent]]
+[[nonopening climatic zone]]
+[[syphilitic venula]]

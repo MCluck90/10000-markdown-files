@@ -76,3 +76,8 @@ As it kills all speed back
 one as far before
 : Dinah'll miss me help that savage when it's no jury had you.
 
+
+## Wikilinks load test
+
+[[uncreative writings]]
+[[unretrievable hearthstone]]

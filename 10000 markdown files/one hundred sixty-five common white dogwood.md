@@ -84,3 +84,10 @@ Well if he seems
 Where are ferrets.
 : Oh don't give them.
 
+
+## Wikilinks load test
+
+[[splenic molding]]
+[[breasted bowstring hemp]]
+[[fluent dph]]
+[[selfless lower court]]

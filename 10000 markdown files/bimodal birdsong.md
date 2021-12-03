@@ -76,3 +76,8 @@ Where did she remarked the roots
 Perhaps it even when he
 : asked in bed.
 
+
+## Wikilinks load test
+
+[[anglican baldy]]
+[[rubbery inopportuneness]]

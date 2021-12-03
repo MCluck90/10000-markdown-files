@@ -79,3 +79,8 @@ holding and crawled away
 Only mustard both the
 : thump.
 
+
+## Wikilinks load test
+
+[[avenged sunscreen]]
+[[scheming bench warrant]]

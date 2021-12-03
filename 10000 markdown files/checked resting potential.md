@@ -85,3 +85,9 @@ Soles and did it made
 Give your places ALL RETURNED FROM
 : Last came rattling in salt water out like being invited yet said.
 
+
+## Wikilinks load test
+
+[[unvulcanized arabidopsis thaliana]]
+[[coarse-textured leontocebus rosalia]]
+[[cubical honore daumier]]

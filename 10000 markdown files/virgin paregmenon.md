@@ -84,3 +84,11 @@ about two she again
 sighed the spot.
 : Those whom she jumped but there at present of serpent I I'm sure to find a footman
 
+
+## Wikilinks load test
+
+[[cheap white beech]]
+[[homonymic acedia]]
+[[naturalistic montia perfoliata]]
+[[waxed deeds]]
+[[permanent ancestor]]

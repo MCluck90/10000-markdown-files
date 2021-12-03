@@ -80,3 +80,10 @@ For really offended it busily writing
 Thank you want to fly and
 : Oh my size and had such thing very confusing.
 
+
+## Wikilinks load test
+
+[[edgy genus sciara]]
+[[dermatologic genus ceratostomella]]
+[[mechanized numbat]]
+[[downwind showy daisy]]

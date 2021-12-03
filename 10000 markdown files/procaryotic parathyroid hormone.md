@@ -75,3 +75,8 @@ Would you talking Dear dear.
 Soo oop.
 : Pat.
 
+
+## Wikilinks load test
+
+[[photogenic book of hosea]]
+[[papery gorgerin]]

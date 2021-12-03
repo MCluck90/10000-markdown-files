@@ -88,3 +88,10 @@ Last came up Dormouse sulkily
 muttered to make personal remarks
 : Stolen.
 
+
+## Wikilinks load test
+
+[[amerciable laminariaceae]]
+[[nonconscious genus callinectes]]
+[[verified troy pound]]
+[[divided genus equus]]

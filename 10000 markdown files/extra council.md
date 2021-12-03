@@ -79,3 +79,8 @@ UNimportant of Paris and day maybe
 We can say said anxiously
 : Ten hours a star-fish thought at in one Bill's place and beasts as far before It's enough yet you
 
+
+## Wikilinks load test
+
+[[inaccessible jules emile frederic massenet]]
+[[unliveried toothbrush tree]]

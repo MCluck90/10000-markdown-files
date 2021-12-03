@@ -77,3 +77,7 @@ but a back-somersault in
 Yes it did the
 : An enormous puppy made entirely of great delight it flashed across
 
+
+## Wikilinks load test
+
+[[deep-laid one-ten-thousandth]]

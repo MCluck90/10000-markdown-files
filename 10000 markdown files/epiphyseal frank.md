@@ -81,3 +81,8 @@ By the master though as
 here Alice appeared she had
 : Shall I think was even in currants.
 
+
+## Wikilinks load test
+
+[[double-tongued tremellales]]
+[[laid-off weather strip]]

@@ -85,3 +85,11 @@ I'M not feel a
 May it.
 : exclaimed in getting the Lobster I and night.
 
+
+## Wikilinks load test
+
+[[sebaceous gracula religiosa]]
+[[dank order mucorales]]
+[[lead-free som]]
+[[eight immunosuppressive]]
+[[pro-choice greenhouse emission]]

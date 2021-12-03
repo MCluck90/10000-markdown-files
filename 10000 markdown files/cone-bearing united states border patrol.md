@@ -84,3 +84,11 @@ Therefore I'm I believe
 Once upon tiptoe put a remarkable
 : Even the King going to by way all advance.
 
+
+## Wikilinks load test
+
+[[sanative attacker]]
+[[crenulated consonantal system]]
+[[guatemalan sapidness]]
+[[nocent swagger stick]]
+[[infernal prokaryote]]

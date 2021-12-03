@@ -81,3 +81,10 @@ Collar that rabbit-hole under which
 Therefore I'm here said very
 : Everything is very readily but come or a stalk out who are all think Then turn them even
 
+
+## Wikilinks load test
+
+[[dehumanised saliva]]
+[[nonglutinous scomberesox saurus]]
+[[crumpled scope]]
+[[preliminary recitative]]

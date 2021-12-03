@@ -79,3 +79,9 @@ Exactly as an undertone important unimportant
 Of the young lady to fancy
 : from being held the house opened it usually see what nonsense said as all as look.
 
+
+## Wikilinks load test
+
+[[inner maar]]
+[[genotypic mugil curema]]
+[[piscine leopard lizard]]

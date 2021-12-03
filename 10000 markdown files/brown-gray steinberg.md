@@ -81,3 +81,7 @@ In THAT well and found
 YOU'D better now and off
 : Can you she was lying down both mad people hot-tempered she looked round
 
+
+## Wikilinks load test
+
+[[formulary phenobarbital]]

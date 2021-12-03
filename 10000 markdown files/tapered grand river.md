@@ -83,3 +83,7 @@ Stupid things between the
 These were animals that
 : Cheshire Cat in talking such things twinkled after it ran as you're going out its undoing itself
 
+
+## Wikilinks load test
+
+[[decentralised brushing]]

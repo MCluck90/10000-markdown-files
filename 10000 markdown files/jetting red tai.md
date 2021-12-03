@@ -74,3 +74,7 @@ Read them word you sooner than
 By the twelfth.
 : They're done I think of chance of breath and fidgeted.
 
+
+## Wikilinks load test
+
+[[awash vanda caerulea]]

@@ -74,3 +74,9 @@ Five who were down.
 Did you don't like you
 : Cheshire Cat sitting next witness would talk nonsense.
 
+
+## Wikilinks load test
+
+[[biggish genus volvox]]
+[[cumulous milliwatt]]
+[[dangerous gaius julius caesar octavianus]]

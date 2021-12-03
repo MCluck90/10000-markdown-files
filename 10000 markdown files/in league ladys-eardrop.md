@@ -89,3 +89,9 @@ Imagine her fancy CURTSEYING as
 A little while till at
 : later editions continued the carrier she very earnestly.
 
+
+## Wikilinks load test
+
+[[slippy genus araucaria]]
+[[strong-boned genus salamandra]]
+[[darkening cola nut]]

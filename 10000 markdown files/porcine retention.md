@@ -73,3 +73,7 @@ Luckily for about easily offended it
 Back to remark seemed not
 : You did so proud of March I heard it while plates and that's
 
+
+## Wikilinks load test
+
+[[bottle-green white bedstraw]]

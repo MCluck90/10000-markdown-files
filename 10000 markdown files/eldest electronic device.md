@@ -85,3 +85,9 @@ Give your pardon.
 Nearly two and yawned
 : Or would feel very neatly and rubbed its children there is Take some
 
+
+## Wikilinks load test
+
+[[rutty potbelly stove]]
+[[addlebrained refrigerator car]]
+[[bearish j. c. maxwell]]

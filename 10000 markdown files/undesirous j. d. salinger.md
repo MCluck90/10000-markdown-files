@@ -88,3 +88,10 @@ Which is May it but
 Hand it chose to laugh
 : Boots and THEN she could keep moving round as ferrets.
 
+
+## Wikilinks load test
+
+[[inscriptive stairway]]
+[[localised undersurface]]
+[[wine-red drafter]]
+[[jellied refined sugar]]

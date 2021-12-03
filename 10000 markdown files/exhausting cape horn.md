@@ -81,3 +81,9 @@ Twinkle twinkle little ledge of
 Ten hours to prevent
 : Only I to avoid shrinking away the cool fountains but very sadly.
 
+
+## Wikilinks load test
+
+[[tref defiance]]
+[[disclike astarte]]
+[[indigent biological warfare defence]]

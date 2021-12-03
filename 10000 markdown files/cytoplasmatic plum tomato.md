@@ -85,3 +85,11 @@ That's enough and felt
 Nor I then turning
 : Alas.
 
+
+## Wikilinks load test
+
+[[slaty-gray self-command]]
+[[ossicular hemp family]]
+[[roman catholic helmet]]
+[[hematological chauvinist]]
+[[clownish galiella rufa]]

@@ -75,3 +75,11 @@ May it myself about his history
 Next came in confusion
 : wow.
 
+
+## Wikilinks load test
+
+[[large-cap inverted pleat]]
+[[forty-eighth spanish oak]]
+[[latvian platelayer]]
+[[stock-still timework]]
+[[amygdaliform ezra pound]]

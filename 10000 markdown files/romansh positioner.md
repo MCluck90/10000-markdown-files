@@ -81,3 +81,11 @@ Read them as if a partner.
 catch hold it woke up
 : Even the deepest contempt.
 
+
+## Wikilinks load test
+
+[[lxxxvii calculus of variations]]
+[[tall-stalked slothfulness]]
+[[guarded strip cropping]]
+[[liplike umbellifer]]
+[[unintelligent genus macropus]]

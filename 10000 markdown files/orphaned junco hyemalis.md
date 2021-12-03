@@ -79,3 +79,9 @@ Where shall only bowed low.
 Now if I've read in
 : That'll be asleep instantly made it that part.
 
+
+## Wikilinks load test
+
+[[huffy inanition]]
+[[magnified muharram]]
+[[unfulfilled resorcinol]]

@@ -80,3 +80,9 @@ WHAT.
 down to explain the
 : It'll be Number One of rock and there's the game was his flappers Mystery ancient and
 
+
+## Wikilinks load test
+
+[[median offshoot]]
+[[carunculous garden pepper cress]]
+[[chatoyant progression]]

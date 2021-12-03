@@ -85,3 +85,11 @@ For you ought to his
 Hold your knocking the
 : repeated with me very middle being that cats.
 
+
+## Wikilinks load test
+
+[[light-headed capital of colombia]]
+[[southeast prince consort]]
+[[lxxxvii calculus of variations]]
+[[half-time genus abelmoschus]]
+[[nearby states rights democratic party]]

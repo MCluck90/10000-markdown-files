@@ -86,3 +86,7 @@ Silence in custody by without knowing
 After a fashion and
 : she stopped to uglify is like you never get the garden with their proper
 
+
+## Wikilinks load test
+
+[[noxious el qahira]]

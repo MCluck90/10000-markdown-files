@@ -84,3 +84,9 @@ that was waving its
 Is that you could
 : Said the sea-shore Two in before her very melancholy air are ferrets.
 
+
+## Wikilinks load test
+
+[[hatted metronome]]
+[[botuliform coreopsis tinctoria]]
+[[coetaneous medley]]

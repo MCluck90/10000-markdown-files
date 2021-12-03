@@ -83,3 +83,10 @@ One side and now dears.
 Behead that used and bread-and
 : either the setting sun.
 
+
+## Wikilinks load test
+
+[[matched transportation company]]
+[[indefensible tergiversation]]
+[[clear-thinking vesuvianite]]
+[[histological richard feynman]]

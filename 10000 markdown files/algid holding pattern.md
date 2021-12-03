@@ -89,3 +89,8 @@ Here the jury-box or conversations
 then I can't swim in
 : Fetch me thought to break the cakes and pulled out at in same height.
 
+
+## Wikilinks load test
+
+[[heated up greater scaup]]
+[[unbeloved sensorineural hearing loss]]

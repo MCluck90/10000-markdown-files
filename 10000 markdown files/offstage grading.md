@@ -86,3 +86,8 @@ We indeed and washing.
 Stolen.
 : Wow.
 
+
+## Wikilinks load test
+
+[[illiberal fomentation]]
+[[pockmarked date bar]]

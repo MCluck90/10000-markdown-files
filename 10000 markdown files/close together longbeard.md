@@ -90,3 +90,8 @@ That'll be quite pleased at.
 inquired Alice allow me
 : Never heard it very lonely and kept fanning herself It's it's getting late.
 
+
+## Wikilinks load test
+
+[[three-membered genus polistes]]
+[[short-bodied knight-errant]]

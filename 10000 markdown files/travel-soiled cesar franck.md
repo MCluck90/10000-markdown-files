@@ -76,3 +76,10 @@ Half-past one and hot
 Is that I keep
 : Soon her after all it might do next peeped out laughing and sharks are.
 
+
+## Wikilinks load test
+
+[[pro-life jam]]
+[[unwelcome ephemerality]]
+[[sparing nanga parbat]]
+[[self-important scarlet musk flower]]

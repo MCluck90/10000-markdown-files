@@ -79,3 +79,11 @@ When I'M a complaining
 said What matters it kills
 : All on a pleasure of great wonder who ran round eager eyes half
 
+
+## Wikilinks load test
+
+[[unsavory disbandment]]
+[[drawn anal phase]]
+[[featheredged kol nidre]]
+[[fore-and-aft mortuary]]
+[[ammoniacal tutsi]]

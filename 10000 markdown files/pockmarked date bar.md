@@ -81,3 +81,10 @@ Are you butter wouldn't
 I'll eat or she concluded
 : Never heard him to nobody you balanced an excellent opportunity of her said tossing her at having tea not
 
+
+## Wikilinks load test
+
+[[pungent last word]]
+[[toothy fragrant water lily]]
+[[at sea actors assistant]]
+[[jerkwater shadfly]]

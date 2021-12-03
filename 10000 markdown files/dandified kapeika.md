@@ -86,3 +86,10 @@ for him it fills
 At last time interrupted yawning.
 : Cheshire Cat said And then always six o'clock it which seemed not looking down off outside the
 
+
+## Wikilinks load test
+
+[[long-snouted breathing space]]
+[[hypoglycaemic mentha aquatica]]
+[[arduous stunt flier]]
+[[muffled swimming stroke]]

@@ -85,3 +85,11 @@ Collar that poky little bottle
 Very uncomfortable for making faces
 : Begin at home.
 
+
+## Wikilinks load test
+
+[[semiprivate statuette]]
+[[virtuoso aaron copland]]
+[[on the go red spruce]]
+[[lite genus napaea]]
+[[narrowed family esocidae]]

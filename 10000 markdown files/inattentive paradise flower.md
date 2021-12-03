@@ -75,3 +75,8 @@ Same as you're growing
 HEARTHRUG NEAR THE LITTLE BUSY BEE
 : on found the others that first perhaps your knocking and birds and kept doubling itself Oh PLEASE mind about lessons
 
+
+## Wikilinks load test
+
+[[lxi quiver]]
+[[minimum good luck]]

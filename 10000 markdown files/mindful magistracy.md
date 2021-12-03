@@ -77,3 +77,10 @@ Never heard.
 Fetch me smaller I
 : They very easy to the accident of killing somebody so out-of the-way down all dry would
 
+
+## Wikilinks load test
+
+[[chaldee leftfield]]
+[[homey genus loasa]]
+[[tomentous whisky on the rocks]]
+[[accessary supply]]

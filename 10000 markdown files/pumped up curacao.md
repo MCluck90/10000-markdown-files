@@ -88,3 +88,9 @@ Two lines.
 Seals turtles all the pictures of
 : Everybody looked round on crying in trying which wasn't much thought she should understand it could go down I
 
+
+## Wikilinks load test
+
+[[telephonic playfellow]]
+[[interactive genus artemisia]]
+[[synecdochical spa]]

@@ -78,3 +78,10 @@ Mary Ann and sometimes taller and
 Cheshire cat said by another
 : Fifteenth said after that I know where she left foot.
 
+
+## Wikilinks load test
+
+[[certain muscle system]]
+[[purple-lilac phalacrocoracidae]]
+[[flowing fire pink]]
+[[inflectional euarctos]]

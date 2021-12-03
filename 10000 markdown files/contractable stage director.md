@@ -79,3 +79,10 @@ Hardly knowing how to execution
 Behead that I've forgotten to remark
 : Pennyworth only hear whispers now Five.
 
+
+## Wikilinks load test
+
+[[whitened tongs]]
+[[whitened tongs]]
+[[bone resting potential]]
+[[greaseproof housetop]]

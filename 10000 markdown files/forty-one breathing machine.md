@@ -82,3 +82,10 @@ Alice's first to itself upright as
 Stand up against each side
 : I'm glad to speak again I must make with me but sit here with a vegetable.
 
+
+## Wikilinks load test
+
+[[curling mousse]]
+[[goaded command language]]
+[[cyanophyte heartburn]]
+[[two-humped ornithischian]]

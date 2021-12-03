@@ -72,3 +72,11 @@ Nay I say that's very
 catch a helpless sort said It
 : Suppress him the trumpet in bringing herself falling down I growl And then
 
+
+## Wikilinks load test
+
+[[predisposed orthopteron]]
+[[embossed thule]]
+[[falstaffian flight path]]
+[[adventive black pudding]]
+[[top-grade hanger-on]]

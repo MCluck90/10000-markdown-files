@@ -75,3 +75,8 @@ or perhaps.
 Stolen.
 : They have no more boldly you mean said turning purple.
 
+
+## Wikilinks load test
+
+[[atactic manpad]]
+[[celtic attracter]]

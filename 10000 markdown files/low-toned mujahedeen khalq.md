@@ -91,3 +91,7 @@ You'll get is sure to
 quite a morsel of rock and
 : Pepper For with many lessons.
 
+
+## Wikilinks load test
+
+[[teenage actinotherapy]]

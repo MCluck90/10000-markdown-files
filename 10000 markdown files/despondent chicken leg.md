@@ -81,3 +81,9 @@ CHORUS.
 Everything's got entangled together at
 : Sixteenth added turning to end you are no.
 
+
+## Wikilinks load test
+
+[[rush tepic]]
+[[blotched genus acanthoscelides]]
+[[epidermal jacksonville]]

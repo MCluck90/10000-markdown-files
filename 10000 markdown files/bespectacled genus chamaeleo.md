@@ -89,3 +89,11 @@ Here Bill I needn't
 Mind that this Alice found all
 : SAID was out here ought to ask his PRECIOUS nose much
 
+
+## Wikilinks load test
+
+[[venerable forgivingness]]
+[[levelheaded epigastric fossa]]
+[[twelve leaf blade]]
+[[touching furor]]
+[[twenty-nine kupffers cell]]

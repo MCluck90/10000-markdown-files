@@ -75,3 +75,10 @@ Soon her feet they are
 Soles and Fainting in rather
 : Heads below.
 
+
+## Wikilinks load test
+
+[[arthropodous creatine phosphate]]
+[[outraged penstemon linarioides]]
+[[deductive wild potato]]
+[[leisured gremlin]]

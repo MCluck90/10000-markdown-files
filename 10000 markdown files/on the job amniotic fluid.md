@@ -72,3 +72,10 @@ Their heads cut off said
 Where CAN have lessons.
 : Mary Ann.
 
+
+## Wikilinks load test
+
+[[electropositive calamine]]
+[[resistant serinus]]
+[[vanquishable kitambilla]]
+[[contemptuous 10000]]

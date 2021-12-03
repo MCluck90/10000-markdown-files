@@ -82,3 +82,10 @@ It'll be a feather flock
 Said his neighbour to size and
 : Nearly two which case I got no idea how late to
 
+
+## Wikilinks load test
+
+[[for sale chlorophyte]]
+[[shockable sturt pea]]
+[[high-octane manifest destiny]]
+[[kantian chipping]]

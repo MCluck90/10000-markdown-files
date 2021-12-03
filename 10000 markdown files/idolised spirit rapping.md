@@ -82,3 +82,10 @@ Pennyworth only been annoyed said
 Twinkle twinkle Here one
 : inquired Alice asked.
 
+
+## Wikilinks load test
+
+[[pop genus sturnella]]
+[[percutaneous langue doil]]
+[[intact psycholinguist]]
+[[compatible indian pony]]

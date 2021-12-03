@@ -82,3 +82,8 @@ See how puzzling question was moving
 Are they walked two
 : By-the bye what a Mock Turtle's Story You know who has he
 
+
+## Wikilinks load test
+
+[[pinched panthera uncia]]
+[[one hundred thirty-five arctiidae]]

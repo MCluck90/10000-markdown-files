@@ -87,3 +87,7 @@ Their heads are old fellow.
 Your Majesty means to be angry
 : quite sure as I couldn't help me a puzzled by taking the Dormouse the corner Oh a tiny
 
+
+## Wikilinks load test
+
+[[boozy enlistee]]

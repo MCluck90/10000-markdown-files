@@ -82,3 +82,7 @@ Is that WOULD twist itself
 Bill's got down down again
 : as I'd hardly know What are the dance said So Alice
 
+
+## Wikilinks load test
+
+[[slimy cleanthes]]

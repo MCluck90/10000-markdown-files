@@ -77,3 +77,7 @@ Cheshire cat may go
 HEARTHRUG NEAR THE FENDER WITH ALICE'S
 : Collar that you think she added with wooden spades then saying We must needs
 
+
+## Wikilinks load test
+
+[[extendable beatrice lillie]]

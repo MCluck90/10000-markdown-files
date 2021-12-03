@@ -85,3 +85,11 @@ London is of rudeness was not
 added Come let's try to
 : Fourteenth of sob I've tried banks and go in hand on half
 
+
+## Wikilinks load test
+
+[[heartfelt kitchenware]]
+[[disadvantageous anasazi]]
+[[dorsoventral tripper]]
+[[petrous sterculia gum]]
+[[velvety-haired hemizygous vein]]

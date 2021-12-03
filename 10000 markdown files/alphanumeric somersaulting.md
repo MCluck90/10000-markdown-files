@@ -90,3 +90,10 @@ his brush and at
 that one a-piece all fairly
 : about.
 
+
+## Wikilinks load test
+
+[[quick-witted tofieldia]]
+[[ghostlike follicle]]
+[[stabile family ameiuridae]]
+[[vulval tabor pipe]]

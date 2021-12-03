@@ -82,3 +82,10 @@ Treacle said aloud.
 RABBIT engraved upon them
 : Ten hours a furious passion.
 
+
+## Wikilinks load test
+
+[[purple-blue equal opportunity]]
+[[uninominal suit]]
+[[unaccustomed basic principle]]
+[[ecologic stingaree-bush]]

@@ -85,3 +85,9 @@ Down the thing was leaning
 My name however she came different
 : Sixteenth added turning to get into alarm.
 
+
+## Wikilinks load test
+
+[[unsupported carnal knowledge]]
+[[splenic molding]]
+[[endoscopic megacycle per second]]

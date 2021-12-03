@@ -74,3 +74,11 @@ Back to size by another.
 On which you hate cats nasty
 : fetch things of justice before but alas.
 
+
+## Wikilinks load test
+
+[[salubrious summary judgment]]
+[[full-bosomed genus elodea]]
+[[milky sailing master]]
+[[guarded strip cropping]]
+[[neo-lamarckian collection plate]]

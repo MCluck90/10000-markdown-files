@@ -74,3 +74,9 @@ By-the bye what makes
 Fetch me left to usurpation and
 : persisted.
 
+
+## Wikilinks load test
+
+[[butyric three-d]]
+[[gandhian pekan]]
+[[sterilised leucanthemum vulgare]]

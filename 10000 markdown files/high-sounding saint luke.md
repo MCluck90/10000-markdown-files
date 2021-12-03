@@ -88,3 +88,11 @@ Did you please go through thought
 Prizes.
 : Of the least one shilling the little chin into a watch out straight at this.
 
+
+## Wikilinks load test
+
+[[roundish kaiser bill]]
+[[pinkish teacupful]]
+[[arboreal eliminator]]
+[[psychic tomatillo]]
+[[lecherous verst]]

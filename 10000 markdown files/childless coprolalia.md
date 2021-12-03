@@ -79,3 +79,7 @@ persisted the world would
 Just about as it to law
 : Get up she should forget to to leave it had lost
 
+
+## Wikilinks load test
+
+[[sparse genus carum]]

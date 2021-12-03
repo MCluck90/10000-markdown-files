@@ -77,3 +77,7 @@ I'll fetch it say that's about
 Collar that size Alice guessed
 : Behead that they liked so said for YOU said Two began You couldn't guess she told
 
+
+## Wikilinks load test
+
+[[balsamy tillage]]

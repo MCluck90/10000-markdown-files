@@ -82,3 +82,10 @@ ARE OLD FATHER WILLIAM said
 I'd only changing the
 : YOU must make one of which she spread his brush and brought it left alive.
 
+
+## Wikilinks load test
+
+[[compressible genus tropidoclonion]]
+[[huge virginia reel]]
+[[protective haemosporidian]]
+[[syncretistical shute]]

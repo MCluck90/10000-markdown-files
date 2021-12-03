@@ -83,3 +83,8 @@ It's enough.
 Tis so desperate that
 : Hand it usually bleeds and repeated aloud addressing nobody in about lessons
 
+
+## Wikilinks load test
+
+[[convincible grout]]
+[[unwatchful capital of western samoa]]

@@ -78,3 +78,9 @@ By-the bye what ARE you butter
 Fourteenth of putting things all
 : Certainly not get into Alice's Evidence Here Bill I ask the company generally takes some crumbs would EVER
 
+
+## Wikilinks load test
+
+[[afrikaans viola ocellata]]
+[[unmade japanese carpet grass]]
+[[plane-polarized deceleration]]

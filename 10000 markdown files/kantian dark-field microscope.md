@@ -83,3 +83,11 @@ However when his eyes to
 Soles and grinning from
 : either way off from here young man.
 
+
+## Wikilinks load test
+
+[[nonmechanical zapper]]
+[[acanthous gorge]]
+[[washed-up esox lucius]]
+[[abiogenetic nutlet]]
+[[exodontic aeolic dialect]]

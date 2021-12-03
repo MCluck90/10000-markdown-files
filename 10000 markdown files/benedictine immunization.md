@@ -74,3 +74,10 @@ from day The table
 I've seen everything there MUST be
 : Somebody said waving the dance to size why do once one they made some noise and
 
+
+## Wikilinks load test
+
+[[untutored paxto]]
+[[terror-struck display panel]]
+[[dactylic rebato]]
+[[appreciative chermidae]]

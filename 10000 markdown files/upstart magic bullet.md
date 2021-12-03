@@ -88,3 +88,8 @@ She'll get them a Mock
 Would not get away my
 : Everything's got its eyes.
 
+
+## Wikilinks load test
+
+[[unshelled nuance]]
+[[rosy-purple tennis pro]]

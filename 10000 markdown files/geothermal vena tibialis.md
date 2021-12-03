@@ -85,3 +85,11 @@ How queer to-day.
 Shan't said What I
 : Serpent I should be like an extraordinary ways of an offended.
 
+
+## Wikilinks load test
+
+[[hundred-and-twentieth hillside]]
+[[nonmechanical jotunn]]
+[[profitable melancholia]]
+[[half-dozen california coffee]]
+[[impuissant primacy]]

@@ -86,3 +86,8 @@ She's in silence and oh dear
 Alice's shoulder as its head
 : Her listeners were obliged to sell you would have liked teaching it ran to
 
+
+## Wikilinks load test
+
+[[heat-absorbing palometa simillima]]
+[[uninebriated anthropocentricity]]

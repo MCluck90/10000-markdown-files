@@ -76,3 +76,11 @@ Keep back for dinner.
 Reeling and finding it what
 : I'm doubtful about at dinn she had it marked out here lad.
 
+
+## Wikilinks load test
+
+[[accomplished disjointedness]]
+[[poor-spirited carnegie]]
+[[additive publicizer]]
+[[limbed rocket engineer]]
+[[cespitose heterotrichales]]

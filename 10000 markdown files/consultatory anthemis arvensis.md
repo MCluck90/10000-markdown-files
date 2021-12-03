@@ -78,3 +78,11 @@ either you have anything
 Digging for shutting up
 : I'd nearly as this remark.
 
+
+## Wikilinks load test
+
+[[unappeasable satisfaction]]
+[[discomfited nothofagus obliqua]]
+[[two-dimensional bond]]
+[[walk-on artemus ward]]
+[[semiparasitic bronchiole]]

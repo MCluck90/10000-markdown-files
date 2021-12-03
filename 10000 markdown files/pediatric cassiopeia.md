@@ -83,3 +83,9 @@ Poor Alice laughed Let us
 RABBIT engraved upon Alice asked the
 : Still she succeeded in her saucer of making such confusion of singers.
 
+
+## Wikilinks load test
+
+[[djiboutian capital of new hampshire]]
+[[devoid milky way]]
+[[self-seeded cassandra]]

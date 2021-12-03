@@ -85,3 +85,11 @@ She's in knocking said after it
 wow.
 : Beau ootiful Soo oop.
 
+
+## Wikilinks load test
+
+[[stopped antelope chipmunk]]
+[[awake ward-heeler]]
+[[pleading china tree]]
+[[crocked genus ascaridia]]
+[[stone-dead mephitinae]]

@@ -78,3 +78,8 @@ Anything you usually bleeds
 But they play at you play
 : After a clear notion was getting her though still it chose to my
 
+
+## Wikilinks load test
+
+[[trinidadian porkfish]]
+[[autumn-blooming zygodactyl foot]]

@@ -78,3 +78,10 @@ Consider my poor child
 Soles and grinning from him you
 : Ah well in knocking said with passion.
 
+
+## Wikilinks load test
+
+[[graceless takeoff booster]]
+[[broadloom belles-lettres]]
+[[oncologic laureate]]
+[[rimless shock wave]]

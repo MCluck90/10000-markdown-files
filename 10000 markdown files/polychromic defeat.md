@@ -80,3 +80,10 @@ We had hoped a
 HEARTHRUG NEAR THE KING
 : Beautiful beauti FUL SOUP.
 
+
+## Wikilinks load test
+
+[[pawky cargo area]]
+[[churrigueresque william makepeace thackeray]]
+[[niggardly foreign service]]
+[[braggart practician]]

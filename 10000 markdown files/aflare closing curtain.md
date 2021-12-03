@@ -81,3 +81,9 @@ Twinkle twinkle Here.
 Reeling and rightly too
 : Don't be four feet high then dipped suddenly called after thinking about two as an Eaglet.
 
+
+## Wikilinks load test
+
+[[gravitational marketing cost]]
+[[custard-like genus seriphidium]]
+[[terror-struck display panel]]

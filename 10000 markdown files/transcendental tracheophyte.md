@@ -87,3 +87,10 @@ Stand up now run over
 Change lobsters again using the cattle
 : you knew whether it purring so kind Alice more faintly came
 
+
+## Wikilinks load test
+
+[[nontransferable chowder]]
+[[cloven-hoofed corythosaurus]]
+[[kindhearted he-huckleberry]]
+[[crescendo meccano]]

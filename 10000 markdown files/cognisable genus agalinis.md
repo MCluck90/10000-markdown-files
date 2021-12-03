@@ -88,3 +88,11 @@ What a butterfly I
 After a sorrowful tone Seven.
 : thump.
 
+
+## Wikilinks load test
+
+[[impressionist silvanus]]
+[[synecdochical spa]]
+[[occurrent meat counter]]
+[[referable old school tie]]
+[[billowing kiosk]]

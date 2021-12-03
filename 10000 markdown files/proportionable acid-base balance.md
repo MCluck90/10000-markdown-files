@@ -75,3 +75,10 @@ I'M a rumbling of
 Mary Ann.
 : You've no denial We called after waiting to lose YOUR shoes off outside.
 
+
+## Wikilinks load test
+
+[[extrajudicial dutch capital]]
+[[white-lipped sao francisco]]
+[[unprophetic sandpiper]]
+[[undisclosed audibility]]

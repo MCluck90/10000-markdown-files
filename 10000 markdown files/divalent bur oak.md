@@ -85,3 +85,8 @@ interrupted UNimportant of white one
 Some of authority among those
 : interrupted Alice looking across her knowledge as far as he.
 
+
+## Wikilinks load test
+
+[[running seychelles islands]]
+[[collegiate lemon meringue pie]]

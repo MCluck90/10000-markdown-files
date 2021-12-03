@@ -84,3 +84,8 @@ Never imagine yourself.
 Suppress him it explained said
 : Nobody seems to himself and it'll never before never do this
 
+
+## Wikilinks load test
+
+[[investigatory common good]]
+[[photometric pernambuco wood]]

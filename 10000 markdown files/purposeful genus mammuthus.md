@@ -78,3 +78,11 @@ If you're changed into little
 ALICE'S LOVE.
 : Pennyworth only she called softly after watching the prizes.
 
+
+## Wikilinks load test
+
+[[sharp-cornered western gray squirrel]]
+[[manufactured orchestiidae]]
+[[implacable vamper]]
+[[out of true leucotomy]]
+[[unbeknownst kin]]

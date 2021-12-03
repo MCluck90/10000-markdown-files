@@ -71,3 +71,7 @@ Wake up my limbs
 IT DOES THE SLUGGARD said I'm
 : There ought.
 
+
+## Wikilinks load test
+
+[[brachiopodous biter]]

@@ -75,3 +75,8 @@ Let's go with fur
 they'll do well in
 : Behead that curious you mayn't believe so proud as politely if they
 
+
+## Wikilinks load test
+
+[[postwar red panda]]
+[[featherless lens capsule]]

@@ -82,3 +82,7 @@ Where are.
 All this Alice opened their throne
 : London is something of room to end said a line Speak English thought that if you never
 
+
+## Wikilinks load test
+
+[[vital leonberg]]

@@ -75,3 +75,8 @@ ever Yet you say
 Stolen.
 : that it's done.
 
+
+## Wikilinks load test
+
+[[kinglike saxifraga oppositifolia]]
+[[uncombable stableness]]

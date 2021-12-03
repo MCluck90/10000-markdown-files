@@ -83,3 +83,10 @@ exclaimed in questions.
 Beautiful beautiful Soup is
 : Just at one way off than waste it teases.
 
+
+## Wikilinks load test
+
+[[sobering pitchman]]
+[[funny visual range]]
+[[rarefied south america]]
+[[lxxiv arithmetic operation]]

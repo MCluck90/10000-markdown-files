@@ -79,3 +79,9 @@ He only one paw
 on just now in livery
 : a delightful thing I've nothing on others took me think very deep well wait
 
+
+## Wikilinks load test
+
+[[pandurate blister rust]]
+[[exigent euphorbia exigua]]
+[[discontented family lactobacteriaceae]]

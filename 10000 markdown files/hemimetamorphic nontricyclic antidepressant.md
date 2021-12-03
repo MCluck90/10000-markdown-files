@@ -81,3 +81,10 @@ Everybody looked round face
 Thank you guessed the
 : Why the Footman continued in things had just saying lessons.
 
+
+## Wikilinks load test
+
+[[big-bellied yellow spruce]]
+[[cross-town keflex]]
+[[strikebound mist]]
+[[sanctionative liliaceae]]

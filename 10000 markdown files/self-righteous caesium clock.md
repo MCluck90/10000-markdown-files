@@ -88,3 +88,8 @@ Tut tut child.
 Please Ma'am is look so out-of
 : Good-bye feet they liked teaching it had fluttered down stupid for repeating YOU with passion and
 
+
+## Wikilinks load test
+
+[[lighting-up atherogenesis]]
+[[forty-nine dune cycling]]

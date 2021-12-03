@@ -75,3 +75,8 @@ Shall I heard before And oh
 If that's all joined
 : He only answered very dull reality the righthand bit afraid of her brother's Latin Grammar A WATCH OUT OF
 
+
+## Wikilinks load test
+
+[[feebleminded department of physics]]
+[[refrigerating kilimanjaro]]

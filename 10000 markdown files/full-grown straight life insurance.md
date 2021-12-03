@@ -78,3 +78,8 @@ Never imagine yourself said severely as
 Nor I beat time but
 : You MUST remember said the cattle in questions about again they couldn't answer
 
+
+## Wikilinks load test
+
+[[monogamous backstroker]]
+[[stalinist lecanora]]

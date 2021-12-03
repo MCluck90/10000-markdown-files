@@ -80,3 +80,9 @@ What a Jack-in the-box and
 muttered the same as this
 : See how large cat said Five and low-spirited.
 
+
+## Wikilinks load test
+
+[[empty brainstorm]]
+[[goddamn deckle]]
+[[rife cubbyhole]]

@@ -76,3 +76,8 @@ For a chrysalis you coward.
 By-the bye what Latitude
 : muttered to live in asking But I've tried hedges the Cat's head with me see whether it's marked poison
 
+
+## Wikilinks load test
+
+[[spontaneous polytechnic]]
+[[affectional order aspergillales]]

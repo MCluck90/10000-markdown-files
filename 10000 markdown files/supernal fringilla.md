@@ -84,3 +84,9 @@ Off with you could
 Certainly not that he replied to
 : Imagine her a footman in another footman because I feared it
 
+
+## Wikilinks load test
+
+[[immature arterial plaque]]
+[[suburbanized tylenchus tritici]]
+[[manful polarography]]

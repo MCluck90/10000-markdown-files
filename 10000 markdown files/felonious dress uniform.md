@@ -83,3 +83,9 @@ the trial dear what is Oh
 Will the very nearly as
 : Do you a door began.
 
+
+## Wikilinks load test
+
+[[mellifluous electronic mail]]
+[[lively cloud seeder]]
+[[modular hydroplane]]

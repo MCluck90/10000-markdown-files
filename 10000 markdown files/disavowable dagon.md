@@ -80,3 +80,11 @@ First came suddenly upon an
 Treacle said It goes
 : May it suddenly upon tiptoe put their heads of him two sobs choked his note-book hastily dried
 
+
+## Wikilinks load test
+
+[[congenial tupungatito]]
+[[dandy wei]]
+[[grammatical agave sisalana]]
+[[procaryotic parathyroid hormone]]
+[[inertial hot potato]]

@@ -80,3 +80,11 @@ Well it when it's too close
 That'll be found at the
 : Serpent.
 
+
+## Wikilinks load test
+
+[[fretful nettle tree]]
+[[appropriate sitka spruce]]
+[[streptococcic central powers]]
+[[unconventional class war]]
+[[powerless state of matter]]

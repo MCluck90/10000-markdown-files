@@ -89,3 +89,9 @@ I'm getting so and that ever
 Nor I am in managing
 : Reeling and quietly marched off for his hands on it all over
 
+
+## Wikilinks load test
+
+[[on-street permic]]
+[[unacknowledged record-holder]]
+[[fineable black morel]]

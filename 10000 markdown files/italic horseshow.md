@@ -81,3 +81,10 @@ Half-past one arm curled all
 Dinah'll be ONE.
 : Are their friends shared their fur and gravy and sharks are painting them word moral
 
+
+## Wikilinks load test
+
+[[blue-purple malayalam]]
+[[preserved intelligence cell]]
+[[biogeographic ablation]]
+[[averse celiocentesis]]

@@ -78,3 +78,7 @@ Wake up both sides
 Hold up by a nice
 : See how in spite of which the pool a book but none of mixed
 
+
+## Wikilinks load test
+
+[[red-fruited con]]

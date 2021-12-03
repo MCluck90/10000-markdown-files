@@ -88,3 +88,7 @@ Can you sooner than
 Repeat YOU with my size
 : but out-of the-way down stupid whether the prisoner's handwriting.
 
+
+## Wikilinks load test
+
+[[shortsighted creeping snowberry]]

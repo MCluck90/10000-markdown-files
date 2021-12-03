@@ -73,3 +73,8 @@ ALL.
 Next came the court
 : Why.
 
+
+## Wikilinks load test
+
+[[inculpatory marble bones disease]]
+[[self-conceited weathercock]]

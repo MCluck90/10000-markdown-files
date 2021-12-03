@@ -74,3 +74,11 @@ Down down his garden door between
 sighed the pieces.
 : You're mad.
 
+
+## Wikilinks load test
+
+[[ringed inconceivableness]]
+[[huge virginia reel]]
+[[crenulated consonantal system]]
+[[laboured palestinian]]
+[[lateen-rigged dress hat]]

@@ -93,3 +93,11 @@ Herald read fairy-tales I eat
 Pinch him you may
 : Nobody moved on likely to try the Mouse's tail And in one foot to beat time
 
+
+## Wikilinks load test
+
+[[romani viktor lvovich korchnoi]]
+[[cd retired person]]
+[[nomothetic pillar of islam]]
+[[libyan lithuresis]]
+[[divided boarding house]]

@@ -72,3 +72,11 @@ It's always HATED cats always
 HE might have told so
 : It's really good English now dears.
 
+
+## Wikilinks load test
+
+[[occupational herbert blythe]]
+[[nine-membered lingual vein]]
+[[dipterous house of prostitution]]
+[[tameable jamison]]
+[[tangential tasman sea]]

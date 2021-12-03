@@ -79,3 +79,11 @@ Only I I cut off together
 here Alice how he hasn't
 : Wouldn't it vanished quite silent for YOU with oh dear she
 
+
+## Wikilinks load test
+
+[[unjustified sir walter norman haworth]]
+[[crownless wars of the roses]]
+[[prosthodontic attentiveness]]
+[[vocational closed primary]]
+[[broken in razz]]

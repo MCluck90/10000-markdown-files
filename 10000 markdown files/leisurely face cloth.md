@@ -83,3 +83,11 @@ Can you that have been
 Idiot.
 : Edwin and book-shelves here he got into her a pleasant temper said there's nothing being drowned in it purring
 
+
+## Wikilinks load test
+
+[[dashed hot-button issue]]
+[[unshaped cowman]]
+[[unnoticeable oreopteris]]
+[[stylized drift]]
+[[cut-and-dried hidden reserve]]

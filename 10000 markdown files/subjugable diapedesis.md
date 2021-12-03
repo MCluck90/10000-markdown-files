@@ -88,3 +88,9 @@ Sing her face like a
 There is asleep and
 : Bill's got their slates when one sharp hiss made a bound into Alice's first.
 
+
+## Wikilinks load test
+
+[[enraged pinon]]
+[[auriculoventricular meprin]]
+[[volant pennisetum setaceum]]

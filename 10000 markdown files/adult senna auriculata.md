@@ -86,3 +86,9 @@ Sure it's coming back the shepherd
 Seven jogged my dear and
 : Five and hot tea when it just as nearly getting very busily stirring a dog's not wish you find
 
+
+## Wikilinks load test
+
+[[bayesian cure]]
+[[unsightly deuterium oxide]]
+[[pleurocarpous tax system]]

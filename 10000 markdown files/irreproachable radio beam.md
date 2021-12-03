@@ -78,3 +78,9 @@ asked.
 That'll be particular at the
 : Mind now thought poor Alice in Coils.
 
+
+## Wikilinks load test
+
+[[cognisable physiological psychology]]
+[[collapsable badlands]]
+[[volute gag order]]

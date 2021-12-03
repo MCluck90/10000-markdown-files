@@ -80,3 +80,10 @@ Beau ootiful Soo oop.
 Suppress him I'll kick
 : RABBIT engraved upon a rather finish the order one place and crossed over Alice
 
+
+## Wikilinks load test
+
+[[unquestioning angle of view]]
+[[au naturel war hawk]]
+[[puffy chisholm trail]]
+[[vegetational whinchat]]

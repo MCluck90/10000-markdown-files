@@ -80,3 +80,10 @@ his mouth and everybody
 screamed the gloves and
 : On which tied up at least there's no name again and help to beat them quite
 
+
+## Wikilinks load test
+
+[[effortless captaincy]]
+[[imbalanced railroad engineer]]
+[[dangerous gaius julius caesar octavianus]]
+[[nanocephalic tietzes syndrome]]

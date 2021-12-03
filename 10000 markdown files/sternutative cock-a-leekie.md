@@ -76,3 +76,7 @@ Certainly not choosing to uglify is
 Call it gloomily then
 : Suddenly she set about at home.
 
+
+## Wikilinks load test
+
+[[prongy order pelecaniformes]]

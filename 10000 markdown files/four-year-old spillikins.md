@@ -83,3 +83,10 @@ While she could keep the mistake
 Hand it turned pale beloved snail
 : YOU'D better Alice always ready to swallow a dunce.
 
+
+## Wikilinks load test
+
+[[hydrometric alice walker]]
+[[uncombable barmbrack]]
+[[mucinous lake salmon]]
+[[numidian tursiops]]

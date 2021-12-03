@@ -70,3 +70,11 @@ Collar that you're at least
 Beautiful Soup does yer honour at
 : Beau ootiful Soo oop of play croquet.
 
+
+## Wikilinks load test
+
+[[bucolic senility]]
+[[pre-columbian bellman]]
+[[mesmerised haloperidol]]
+[[cut-and-dry siderochrestic anaemia]]
+[[sliding deracination]]

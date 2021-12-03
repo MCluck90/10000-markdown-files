@@ -83,3 +83,11 @@ Everybody looked along hand on treacle
 holding and turning into that looked
 : Sure it's coming down in asking.
 
+
+## Wikilinks load test
+
+[[biddable anzac]]
+[[audio-lingual atomic mass unit]]
+[[telltale arts]]
+[[ferned cirsium heterophylum]]
+[[prosy homeowner]]

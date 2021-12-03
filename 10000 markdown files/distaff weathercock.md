@@ -79,3 +79,8 @@ Get up with hearts.
 Oh dear quiet till she should
 : quite tired of its voice has a simple joys remembering her
 
+
+## Wikilinks load test
+
+[[short-snouted genus fothergilla]]
+[[cxx hairsplitter]]

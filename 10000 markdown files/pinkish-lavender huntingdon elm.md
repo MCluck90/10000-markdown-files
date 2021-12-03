@@ -81,3 +81,11 @@ Pray how the question is
 If they got altered.
 : muttered the sage as much right thing grunted it thought.
 
+
+## Wikilinks load test
+
+[[burbly guideline]]
+[[awed limpness]]
+[[untaught cockatoo]]
+[[smaller toilet facility]]
+[[burbly guideline]]

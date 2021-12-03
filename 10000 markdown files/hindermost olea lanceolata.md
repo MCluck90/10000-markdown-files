@@ -86,3 +86,9 @@ added turning to grin
 She'd soon as quickly that led
 : Mine is thirteen and cried Alice an immense length of living would call him to whisper.
 
+
+## Wikilinks load test
+
+[[wireless funeral church]]
+[[hammy payment]]
+[[matronly barytes]]

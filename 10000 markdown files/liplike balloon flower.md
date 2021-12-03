@@ -80,3 +80,11 @@ Your hair goes like said
 Exactly as to.
 : Fetch me thought till its mouth but one paw trying I fell past it more if something important air.
 
+
+## Wikilinks load test
+
+[[epithelial carditis]]
+[[overflowing acrylic]]
+[[ringed inconceivableness]]
+[[geostrategic forefather]]
+[[off-color angina]]

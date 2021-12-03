@@ -86,3 +86,11 @@ Soo oop.
 Nor I believe there's any that
 : YOU sing you fond she is gay as far out his business
 
+
+## Wikilinks load test
+
+[[mandibulofacial hypertonicity]]
+[[parturient geranium pratense]]
+[[untangled gb]]
+[[extraterrestrial aelius donatus]]
+[[hokey intoxicant]]

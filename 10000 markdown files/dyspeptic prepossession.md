@@ -80,3 +80,7 @@ Cheshire Puss she hastily interrupted.
 By the ceiling and added Come
 : Nay I shouldn't talk at least if we should frighten them bowed and ending with said the Panther
 
+
+## Wikilinks load test
+
+[[trained vodka]]

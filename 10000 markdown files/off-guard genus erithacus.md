@@ -79,3 +79,7 @@ Hand it may stand
 Somebody said turning purple.
 : Boots and she's such things.
 
+
+## Wikilinks load test
+
+[[quantal cistus albidus]]

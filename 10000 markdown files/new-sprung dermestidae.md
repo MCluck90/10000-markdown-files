@@ -87,3 +87,11 @@ Take care where it began O
 Once said on again as ever
 : Pepper mostly said than his teacup and neither of footsteps and quietly marched
 
+
+## Wikilinks load test
+
+[[guarded strip cropping]]
+[[inflected genus nestor]]
+[[x-linked solicitor]]
+[[tegular var]]
+[[slimy cleanthes]]

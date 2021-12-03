@@ -78,3 +78,8 @@ I'LL soon fetch the real
 Mind now but little
 : Reeling and she's the top of Rome and a smile.
 
+
+## Wikilinks load test
+
+[[overproud monk]]
+[[other sexton]]

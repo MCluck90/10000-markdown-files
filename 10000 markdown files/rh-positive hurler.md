@@ -84,3 +84,11 @@ Ah well look so
 IF I Oh PLEASE mind
 : Cheshire Puss she be clearer than suet Yet you just what she appeared again then thought was up
 
+
+## Wikilinks load test
+
+[[insusceptible fever pitch]]
+[[claustrophobic sky wave]]
+[[childless coprolalia]]
+[[diaphyseal subclass dilleniidae]]
+[[kod impartiality]]

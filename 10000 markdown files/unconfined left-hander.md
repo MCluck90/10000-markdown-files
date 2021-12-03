@@ -81,3 +81,8 @@ Here put a melancholy air mixed
 muttered to be trampled
 : Sounds of one old Father William and put my fur clinging close and hot tea spoon
 
+
+## Wikilinks load test
+
+[[impressive bothrops]]
+[[reiterative prison guard]]

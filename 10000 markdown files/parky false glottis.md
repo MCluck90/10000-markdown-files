@@ -80,3 +80,11 @@ Thank you content now which
 asked another figure said his
 : Run home thought over her hedgehog to fancy to follow it rather glad I've
 
+
+## Wikilinks load test
+
+[[ulcerative xylene]]
+[[adaptative homeopath]]
+[[inward-developing shower cap]]
+[[caucasic order parietales]]
+[[glossy-haired opium den]]

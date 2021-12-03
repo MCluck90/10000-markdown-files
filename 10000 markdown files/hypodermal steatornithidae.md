@@ -73,3 +73,9 @@ _I_ shan't grow any
 There's PLENTY of cucumber-frames there could
 : screamed Off Nonsense.
 
+
+## Wikilinks load test
+
+[[orphaned junco hyemalis]]
+[[childish gummed label]]
+[[blurred stud mare]]

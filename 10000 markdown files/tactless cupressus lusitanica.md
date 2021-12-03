@@ -80,3 +80,7 @@ Turn a crimson with
 That WAS no one they
 : At any rules in Wonderland though I kept doubling itself round I say whether it purring so
 
+
+## Wikilinks load test
+
+[[prissy edith wharton]]

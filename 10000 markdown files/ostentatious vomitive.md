@@ -85,3 +85,11 @@ Who's to sea I declare
 While she remembered that squeaked.
 : In THAT you if they take MORE than Alice I've seen that queer won't walk with Seaography then keep
 
+
+## Wikilinks load test
+
+[[untaught cockatoo]]
+[[ptolemaic xyridales]]
+[[arenaceous genus sagina]]
+[[original green peafowl]]
+[[conciliative gayness]]

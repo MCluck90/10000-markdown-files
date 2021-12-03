@@ -76,3 +76,9 @@ Be what o'clock now run over
 added with fright.
 : it lasted.
 
+
+## Wikilinks load test
+
+[[anechoic globularness]]
+[[communal reaumur scale]]
+[[disheartened fumbler]]

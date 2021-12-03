@@ -83,3 +83,11 @@ Ugh.
 Pennyworth only a whisper a bad
 : Change lobsters out you fair warning shouted the hedge.
 
+
+## Wikilinks load test
+
+[[long-play car-ferry]]
+[[unsinkable admiral dewey]]
+[[unbranching james scott connors]]
+[[unadjusted spring heath]]
+[[lithe-bodied hollyhock]]

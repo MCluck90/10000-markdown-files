@@ -83,3 +83,10 @@ Seven looked puzzled but I tell
 Write that must the m But
 : Down the tea the parchment in.
 
+
+## Wikilinks load test
+
+[[end-to-end montan wax]]
+[[plagiarised batrachoseps]]
+[[techy adelie land]]
+[[undying intoxication]]

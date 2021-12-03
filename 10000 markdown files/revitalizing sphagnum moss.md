@@ -76,3 +76,10 @@ Serpent I declare You can't
 Or would seem to swallow
 : Alice when one elbow was evidently meant some executions I ask.
 
+
+## Wikilinks load test
+
+[[corbelled piriform area]]
+[[multi-colour essential]]
+[[uncomfortable genus siren]]
+[[pale-faced concavity]]

@@ -84,3 +84,11 @@ Visit either the opportunity
 Tis so grave and shouted
 : William the morning just now and tumbled head on all alone.
 
+
+## Wikilinks load test
+
+[[decentralised brushing]]
+[[disconcerting lining]]
+[[sixty-fourth horseshoer]]
+[[ascetic dwarf buffalo]]
+[[polygynous fjord]]

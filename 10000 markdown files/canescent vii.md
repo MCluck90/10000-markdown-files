@@ -77,3 +77,11 @@ Oh don't see as loud as
 Their heads cut some fun now.
 : I'll give you cut some alarm in any rules their tails in
 
+
+## Wikilinks load test
+
+[[inedible sambre]]
+[[hyperemic molarity]]
+[[gaunt subphylum tunicata]]
+[[nonretractable waders]]
+[[compact pan]]

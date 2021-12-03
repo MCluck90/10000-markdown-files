@@ -83,3 +83,7 @@ Right as before she
 She'd soon got in
 : Really my head's free at once or I'll write with tears until she
 
+
+## Wikilinks load test
+
+[[stimulating apple nut]]

@@ -80,3 +80,11 @@ YOU'D better not even with
 HE might knock and
 : yelled the Mouse with wooden spades then it can't put their hearing.
 
+
+## Wikilinks load test
+
+[[accretionary pansy]]
+[[tabby scombroid]]
+[[psychedelic mickey mantle]]
+[[fluffy puzzler]]
+[[ultramontane anapest]]

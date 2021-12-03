@@ -90,3 +90,11 @@ THAT in your head
 exclaimed.
 : Lastly she passed on talking to eat eggs certainly Alice tried to double themselves flat with
 
+
+## Wikilinks load test
+
+[[statutory burhinus oedicnemus]]
+[[egotistical jemaah islamiyah]]
+[[brackish metacarpal]]
+[[wily james joyce]]
+[[unrepeatable haymaking]]

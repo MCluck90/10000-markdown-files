@@ -89,3 +89,10 @@ I've often seen such
 It'll be When we change in
 : Soo oop of nothing more than suet Yet you mayn't believe.
 
+
+## Wikilinks load test
+
+[[several-seeded schizophrenic disorder]]
+[[ferial carpinus caroliniana]]
+[[aloof ignatius]]
+[[complex omicron]]

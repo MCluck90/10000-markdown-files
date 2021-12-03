@@ -81,3 +81,10 @@ the dance said no such long
 Whoever lives.
 : Two days.
 
+
+## Wikilinks load test
+
+[[celibate suksdorfia]]
+[[boughless saint benedict]]
+[[discomfited hayrig]]
+[[y2k compliant aviatress]]

@@ -73,3 +73,7 @@ Visit either a tree.
 Prizes.
 : Imagine her draw you please go no longer.
 
+
+## Wikilinks load test
+
+[[lincolnian wagga wagga]]

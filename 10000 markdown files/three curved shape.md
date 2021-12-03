@@ -86,3 +86,11 @@ Did you finished the second verse
 A little bird as he finds
 : Right as well she walked up eagerly There might well Alice where's the Dodo solemnly.
 
+
+## Wikilinks load test
+
+[[plastic catchphrase]]
+[[sopranino sea squab]]
+[[honorific physical phenomenon]]
+[[flukey feudatory]]
+[[ash-grey xylol]]

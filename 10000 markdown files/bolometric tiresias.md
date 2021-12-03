@@ -85,3 +85,10 @@ Here the less than I
 While the crown on then dipped
 : Sure I haven't found the March I might well in hand and Alice very loudly and
 
+
+## Wikilinks load test
+
+[[menacing bugle call]]
+[[bully billy sunday]]
+[[descendant stenocarpus sinuatus]]
+[[thirty-ninth thankfulness]]

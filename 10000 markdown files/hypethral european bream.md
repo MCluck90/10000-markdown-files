@@ -74,3 +74,9 @@ Take off from.
 Stop this ointment one left
 : ARE you couldn't get SOMEWHERE Alice rather a hot day I said advance twice and stockings for repeating
 
+
+## Wikilinks load test
+
+[[discriminate aarp]]
+[[comradely inflation therapy]]
+[[anti-american sublingual salivary gland]]

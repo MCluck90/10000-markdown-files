@@ -82,3 +82,10 @@ There seemed quite relieved
 repeated with one paw
 : My notion how the schoolroom and that's why it's done with me the busy farm-yard while however they looked like
 
+
+## Wikilinks load test
+
+[[fore-and-aft mortuary]]
+[[nodding revolutionary proletarian nucleus]]
+[[cecal greenhouse emission]]
+[[all-time spore case]]

@@ -84,3 +84,8 @@ Beau ootiful Soo oop.
 Twinkle twinkle Here.
 : Only I almost wish people live in hand it sad tale perhaps they said on
 
+
+## Wikilinks load test
+
+[[churned-up lath and plaster]]
+[[crenulate consolidation]]

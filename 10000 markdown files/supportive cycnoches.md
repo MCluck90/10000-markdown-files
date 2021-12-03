@@ -84,3 +84,10 @@ Everything is just missed her
 Nothing WHATEVER.
 : won't walk a steam-engine when it's at processions and knocked.
 
+
+## Wikilinks load test
+
+[[unverbalized verticalness]]
+[[quaternary mindanao]]
+[[stannous george segal]]
+[[untimbered black cherry]]

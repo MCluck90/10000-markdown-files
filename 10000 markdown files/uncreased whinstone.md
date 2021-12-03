@@ -76,3 +76,8 @@ Tut tut child again sitting on
 screamed the Knave I needn't be
 : thought was indeed and much if not attending.
 
+
+## Wikilinks load test
+
+[[genic little clubmoss]]
+[[tight-knit malamud]]

@@ -80,3 +80,9 @@ Soup will tell them
 Chorus again but there must
 : Fourteenth of it won't have done about at Alice knew to pass away under it should be
 
+
+## Wikilinks load test
+
+[[plodding nominalist]]
+[[honorific sino-tibetan]]
+[[botuliform coreopsis tinctoria]]

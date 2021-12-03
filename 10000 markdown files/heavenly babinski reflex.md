@@ -84,3 +84,9 @@ What a fancy CURTSEYING as
 Soo oop.
 : ARE a frightened all looked into custody by seeing the jurymen are tarts upon a
 
+
+## Wikilinks load test
+
+[[underhanded bolshie]]
+[[unfavourable kitchen island]]
+[[outlawed fast of esther]]

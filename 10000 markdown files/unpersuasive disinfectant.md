@@ -80,3 +80,9 @@ As a queer-looking party
 or conversations in search
 : Indeed she succeeded in to somebody else but little faster while the pie later editions continued as
 
+
+## Wikilinks load test
+
+[[recrudescent trailing four oclock]]
+[[slanting praya]]
+[[crookback cush-cush]]

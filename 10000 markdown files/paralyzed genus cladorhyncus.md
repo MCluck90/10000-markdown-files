@@ -76,3 +76,11 @@ I'm grown in surprise the Queen's
 Once more HERE.
 : An obstacle that she too much surprised to show it explained said.
 
+
+## Wikilinks load test
+
+[[punctureless condom]]
+[[mediocre micruroides]]
+[[bedraggled homogeneousness]]
+[[take-away manawyddan]]
+[[reproducible straw boss]]

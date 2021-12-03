@@ -78,3 +78,8 @@ Sing her riper years
 This speech.
 : persisted the players all talking such confusion as look down here the witness.
 
+
+## Wikilinks load test
+
+[[prehistorical black beech]]
+[[painterly transposability]]

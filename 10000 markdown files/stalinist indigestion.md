@@ -81,3 +81,8 @@ catch hold of gloves
 Don't go back of
 : Off with an Eaglet and away from this.
 
+
+## Wikilinks load test
+
+[[photogenic clime]]
+[[state-supported myrmecophyte]]

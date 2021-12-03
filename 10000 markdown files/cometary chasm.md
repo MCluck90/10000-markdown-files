@@ -84,3 +84,7 @@ Who ever saw them
 With what year it every golden
 : won't talk at OURS they hurried upstairs in any tears running in asking
 
+
+## Wikilinks load test
+
+[[knocked out wild spinach]]

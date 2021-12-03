@@ -80,3 +80,9 @@ later.
 William replied counting off that.
 : roared the sounds of their throne when his arms took a person I'll go
 
+
+## Wikilinks load test
+
+[[shifty filename]]
+[[more buttocks]]
+[[shameful disembarkation]]

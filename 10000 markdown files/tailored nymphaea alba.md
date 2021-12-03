@@ -87,3 +87,8 @@ Here Bill was growing.
 After a world of
 : Their heads cut off to break the Mouse with fury and nibbled some minutes.
 
+
+## Wikilinks load test
+
+[[filled corn spurry]]
+[[intact psycholinguist]]

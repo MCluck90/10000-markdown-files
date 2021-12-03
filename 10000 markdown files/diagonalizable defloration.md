@@ -88,3 +88,9 @@ Either the mallets live
 Idiot.
 : Alas.
 
+
+## Wikilinks load test
+
+[[off-colour thraldom]]
+[[chiromantic village]]
+[[coreferential saunter]]

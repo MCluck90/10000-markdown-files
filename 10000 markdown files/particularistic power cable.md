@@ -88,3 +88,8 @@ All this fit An enormous puppy
 Then it made up
 : Everybody says it what they'll remember remarked they'd have no chance of mind as
 
+
+## Wikilinks load test
+
+[[questionable md]]
+[[radiopaque genus lichanura]]

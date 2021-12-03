@@ -82,3 +82,7 @@ either a loud crash of very
 Stupid things went Sh.
 : Right as curious.
 
+
+## Wikilinks load test
+
+[[justified lactuca scariola]]

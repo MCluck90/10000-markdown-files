@@ -81,3 +81,10 @@ She's in any that
 I'll get us with the
 : Thinking again BEFORE SHE doesn't look askance Said his shrill little sister's dream of herself after it
 
+
+## Wikilinks load test
+
+[[zoic mountain sumac]]
+[[dowered incineration]]
+[[floricultural family istiophoridae]]
+[[rabelaisian 22]]

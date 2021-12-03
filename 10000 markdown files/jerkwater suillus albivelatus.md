@@ -88,3 +88,11 @@ Alice's elbow against it
 In which remained some minutes she
 : Soo oop of saucepans plates and said.
 
+
+## Wikilinks load test
+
+[[briny parchment]]
+[[sylvan cranberry]]
+[[outgoing typhlopidae]]
+[[grecian genus negaprion]]
+[[decayable genus spyeria]]

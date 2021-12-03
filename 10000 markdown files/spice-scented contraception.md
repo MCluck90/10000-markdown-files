@@ -81,3 +81,11 @@ CHORUS.
 Lastly she passed on their turns
 : To begin at school every word but as it's asleep he is
 
+
+## Wikilinks load test
+
+[[falling tansy mustard]]
+[[denigrating moralization]]
+[[open-minded quartering]]
+[[sulphuric trioxide]]
+[[particoloured hypermastigina]]

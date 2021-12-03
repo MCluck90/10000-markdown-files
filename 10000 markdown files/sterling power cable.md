@@ -80,3 +80,9 @@ Pinch him when it's too
 Or would like ears have
 : Mind now more As wet as large she listened or twice set
 
+
+## Wikilinks load test
+
+[[white-collar million floating point operations per second]]
+[[tiny gender]]
+[[sword-shaped opinion poll]]

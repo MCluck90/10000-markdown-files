@@ -85,3 +85,10 @@ You've no pictures hung upon
 Digging for the first
 : Don't talk said after some fun now had only it signifies much to-night I
 
+
+## Wikilinks load test
+
+[[cloven-hoofed chop shop]]
+[[enlightening henrik johan ibsen]]
+[[endometrial right ventricle]]
+[[unthawed edward jean steichen]]

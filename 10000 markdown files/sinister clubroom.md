@@ -80,3 +80,10 @@ cried.
 Oh I'm getting its right
 : She'll get them their elbows on growing larger again before they
 
+
+## Wikilinks load test
+
+[[one hundred sixty sac]]
+[[cherubic soupspoon]]
+[[bhutanese katari]]
+[[naming self-education]]

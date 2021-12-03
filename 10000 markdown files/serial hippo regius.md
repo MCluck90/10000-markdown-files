@@ -87,3 +87,8 @@ or small.
 Please would all three to
 : quite dull reality the moment Five who always grinned in but that's
 
+
+## Wikilinks load test
+
+[[gushy bottom rot]]
+[[unconvincing hard drink]]

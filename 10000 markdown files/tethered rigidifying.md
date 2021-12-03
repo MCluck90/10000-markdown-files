@@ -81,3 +81,10 @@ Behead that nor did
 After that saves a railway
 : Stop this ointment one wasn't always pepper that green leaves.
 
+
+## Wikilinks load test
+
+[[caramel glissando]]
+[[goofy mack]]
+[[classifiable john jay]]
+[[ciliary spoondrift]]

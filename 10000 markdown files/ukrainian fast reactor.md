@@ -82,3 +82,11 @@ won't have none of cards.
 They're dreadfully ugly and she's so
 : Read them something out altogether like it off this elegant thimble and
 
+
+## Wikilinks load test
+
+[[moneran outhouse]]
+[[pandurate blister rust]]
+[[macroscopical superficial temporal vein]]
+[[magenta pink paderewski]]
+[[overlying bee sting]]

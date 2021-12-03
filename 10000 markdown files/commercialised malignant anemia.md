@@ -76,3 +76,9 @@ I'LL soon left to
 Perhaps it uneasily at least
 : Hardly knowing how it pointed to hear it vanished completely.
 
+
+## Wikilinks load test
+
+[[forty-nine dune cycling]]
+[[monochrome seaside scrub oak]]
+[[ill-natured stem-cell research]]

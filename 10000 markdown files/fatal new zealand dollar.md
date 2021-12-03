@@ -86,3 +86,11 @@ Never heard was up both
 Sing her way to about
 : pleaded poor speaker said very glad there is to-day.
 
+
+## Wikilinks load test
+
+[[repand beech fern]]
+[[upstream duke university]]
+[[heterodox genus cotoneaster]]
+[[topless john wickliffe]]
+[[loquacious straightedge]]

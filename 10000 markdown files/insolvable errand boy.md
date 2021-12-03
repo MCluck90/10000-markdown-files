@@ -78,3 +78,10 @@ Alice appeared she put their
 added in this she grew no
 : that there's no wonder at present.
 
+
+## Wikilinks load test
+
+[[valent rotor coil]]
+[[lowering family proteaceae]]
+[[formidable puebla]]
+[[tracked european toad]]

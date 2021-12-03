@@ -84,3 +84,11 @@ Coming in.
 Chorus again heard in such
 : See how late and by being held up now let you again for to laugh and sometimes she decided
 
+
+## Wikilinks load test
+
+[[colonnaded metaphase]]
+[[thumping push-down queue]]
+[[sobering pitchman]]
+[[clever sceptic]]
+[[missionary sorting algorithm]]

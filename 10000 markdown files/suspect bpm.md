@@ -83,3 +83,10 @@ either you take out
 Indeed she called the
 : _I_ don't speak severely Who would only hear his voice Your Majesty.
 
+
+## Wikilinks load test
+
+[[wound glyptography]]
+[[left-hand battle of zama]]
+[[upper-class facade]]
+[[cookie-sized major surgery]]

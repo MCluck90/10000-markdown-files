@@ -72,3 +72,9 @@ Wow.
 Poor Alice coming.
 : Prizes.
 
+
+## Wikilinks load test
+
+[[showery clockwise rotation]]
+[[spheroidal broiling]]
+[[sporogenous simultaneity]]

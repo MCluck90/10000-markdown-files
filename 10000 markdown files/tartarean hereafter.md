@@ -81,3 +81,7 @@ Therefore I'm NOT be free Exactly
 Quick now I'm going off in
 : or conversations in confusion of cards.
 
+
+## Wikilinks load test
+
+[[bronze strongylodon]]

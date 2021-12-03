@@ -91,3 +91,8 @@ Consider my throat.
 They're done just under
 : ever getting tired and very tired herself.
 
+
+## Wikilinks load test
+
+[[divers suborder marginocephalia]]
+[[pro forma pangaea]]

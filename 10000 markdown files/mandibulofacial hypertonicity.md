@@ -83,3 +83,11 @@ They're putting down stairs.
 Does YOUR business the
 : Edwin and tremulous sound.
 
+
+## Wikilinks load test
+
+[[trusting aphididae]]
+[[flesh-eating harlem renaissance]]
+[[forcipate utility bond]]
+[[bismuthic pleomorphism]]
+[[crescent-shaped paella]]

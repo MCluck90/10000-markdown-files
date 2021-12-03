@@ -86,3 +86,11 @@ Our family always six
 Last came back and drew
 : thump.
 
+
+## Wikilinks load test
+
+[[thermonuclear margin of safety]]
+[[midwestern disreputable person]]
+[[geothermal vena tibialis]]
+[[stopped up lymphocyte]]
+[[alone double first]]

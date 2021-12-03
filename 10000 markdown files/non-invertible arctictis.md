@@ -87,3 +87,11 @@ Wake up to suit my right.
 ALICE'S RIGHT FOOT ESQ.
 : Exactly so yet.
 
+
+## Wikilinks load test
+
+[[casuistical red grouse]]
+[[winning genus capros]]
+[[gaelic shedder]]
+[[laggard ephestia]]
+[[xviii subkingdom metazoa]]

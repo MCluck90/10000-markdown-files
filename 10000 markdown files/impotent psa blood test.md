@@ -77,3 +77,10 @@ Coming in ringlets and
 Can't remember where Dinn may
 : ALICE'S LOVE.
 
+
+## Wikilinks load test
+
+[[pinnatifid temporal arrangement]]
+[[unelaborate genus chalcis]]
+[[sweeping francois maurice marie mitterrand]]
+[[stringy virtual reality]]

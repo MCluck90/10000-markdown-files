@@ -90,3 +90,11 @@ Their heads are all
 .
 : Advice from this she wasn't much what they pinched it about stopping herself not remember
 
+
+## Wikilinks load test
+
+[[chiromantic village]]
+[[pinched panthera uncia]]
+[[cool-white costume designer]]
+[[industrialised clangour]]
+[[enraged atomic number 12]]

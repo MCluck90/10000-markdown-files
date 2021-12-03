@@ -88,3 +88,10 @@ ALL RETURNED FROM HIM.
 Here Bill.
 : Either the back.
 
+
+## Wikilinks load test
+
+[[white-lipped funny]]
+[[bareback fruit grower]]
+[[thick-skinned mimer]]
+[[untasted taper file]]

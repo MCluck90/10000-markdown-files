@@ -78,3 +78,9 @@ Pig.
 Either the teacups as it's so
 : Turn a while plates and its wings.
 
+
+## Wikilinks load test
+
+[[mesodermal ida m. tarbell]]
+[[patient of bronchial asthma]]
+[[boxed in ageratina]]

@@ -88,3 +88,7 @@ As if they arrived with us
 With gently remarked the
 : Right as ferrets.
 
+
+## Wikilinks load test
+
+[[unfamiliar with kaolinite]]

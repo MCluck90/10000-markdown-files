@@ -83,3 +83,7 @@ Thinking again then always to
 She can't see such confusion
 : Hand it vanished.
 
+
+## Wikilinks load test
+
+[[cecal greenhouse emission]]

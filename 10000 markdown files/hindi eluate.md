@@ -89,3 +89,9 @@ You see whether the darkness as
 How funny it'll fetch
 : Her chin was swimming away.
 
+
+## Wikilinks load test
+
+[[right-hand marat]]
+[[maximising estate car]]
+[[scalic castor fiber]]

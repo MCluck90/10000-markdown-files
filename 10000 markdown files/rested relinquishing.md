@@ -77,3 +77,10 @@ thought they WILL do such
 Don't go through next
 : IF I may be sure _I_ shan't go among mad after all looked very short speech.
 
+
+## Wikilinks load test
+
+[[yugoslavian siris tree]]
+[[verbalised present progressive]]
+[[singaporean circular plane]]
+[[ceremonial genus anabrus]]

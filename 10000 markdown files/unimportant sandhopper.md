@@ -78,3 +78,7 @@ What's in crying like the reeds
 Lastly she stood watching the large
 : Wow.
 
+
+## Wikilinks load test
+
+[[bowfront tristram]]

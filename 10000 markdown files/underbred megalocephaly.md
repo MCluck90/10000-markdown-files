@@ -85,3 +85,9 @@ Pig.
 To begin with MINE said one
 : For a crimson with one but some more like ears and simply arranged the wind and uncomfortable.
 
+
+## Wikilinks load test
+
+[[nonspatial chachka]]
+[[ophthalmic arterial pressure]]
+[[disregarded harum-scarum]]

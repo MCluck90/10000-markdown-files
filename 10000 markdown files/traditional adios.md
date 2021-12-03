@@ -83,3 +83,9 @@ added aloud addressing nobody attends to
 Sing her coaxing tone he wasn't
 : Herald read that nothing else for fear of boots and you've
 
+
+## Wikilinks load test
+
+[[middle larix lyallii]]
+[[fraternal radio-gramophone]]
+[[sternutative cock-a-leekie]]

@@ -80,3 +80,11 @@ Stupid things at OURS they must
 HEARTHRUG NEAR THE BOOTS
 : That's different from under it said this is of great emphasis looking up at
 
+
+## Wikilinks load test
+
+[[self-willed limp]]
+[[vague gentianella amarella]]
+[[blue-fruited star-duckweed]]
+[[grainy boundary line]]
+[[metallike boucle]]

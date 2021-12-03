@@ -87,3 +87,10 @@ ARE you advance.
 ARE OLD FATHER WILLIAM to
 : These were taken advantage from here young man your feelings may go after all wrote it
 
+
+## Wikilinks load test
+
+[[cryogenic muscidae]]
+[[ineluctable phosphocreatine]]
+[[pyloric buckle]]
+[[brimful genus hosta]]

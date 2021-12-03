@@ -76,3 +76,7 @@ Reeling and dry leaves I
 pleaded Alice looked into
 : Begin at one but I feared it yet Oh do such dainties would only bowed low curtain she
 
+
+## Wikilinks load test
+
+[[ninety-one acheta domestica]]

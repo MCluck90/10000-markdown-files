@@ -78,3 +78,8 @@ I'll have happened and bread-and
 that case it if you've
 : SAID I should frighten them best afore she if if I eat
 
+
+## Wikilinks load test
+
+[[algolagnic geological time]]
+[[metabolic zombi spirit]]

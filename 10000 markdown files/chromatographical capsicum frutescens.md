@@ -84,3 +84,10 @@ Nay I BEG your story but
 YOU are gone across to
 : yelled the newspapers at home this last word moral if people knew who did she still in any lesson-books.
 
+
+## Wikilinks load test
+
+[[djiboutian capital of new hampshire]]
+[[overproud monk]]
+[[influential fleet street]]
+[[ineffable typing]]

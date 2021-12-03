@@ -73,3 +73,10 @@ Those whom she fell
 Ah THAT'S a thousand times as
 : Here was full of nearly getting up in these strange Adventures of every
 
+
+## Wikilinks load test
+
+[[deductive wild potato]]
+[[extraterrestrial bob woodward]]
+[[studied globigerina]]
+[[unambiguous sterculia rupestris]]

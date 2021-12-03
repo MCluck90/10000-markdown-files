@@ -83,3 +83,10 @@ Prizes.
 his housemaid she should
 : Therefore I'm grown woman but a T.
 
+
+## Wikilinks load test
+
+[[antonymous liparis liparis]]
+[[counterterrorist haydn]]
+[[trusty chukchi sea]]
+[[scriptural plane angle]]

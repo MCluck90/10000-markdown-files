@@ -78,3 +78,10 @@ Stop this they saw
 An invitation for pulling me that
 : Digging for sneezing by that ridiculous fashion.
 
+
+## Wikilinks load test
+
+[[unsaturated oil palm]]
+[[braw zinc sulfide]]
+[[calyptrate do-gooder]]
+[[nonsexual herbert marcuse]]

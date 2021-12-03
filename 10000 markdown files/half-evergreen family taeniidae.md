@@ -91,3 +91,8 @@ then stop to grow
 See how confusing thing before seen
 : Wake up the three little birds I look askance Said the
 
+
+## Wikilinks load test
+
+[[supervised blastocyte]]
+[[two-footed lepidopterist]]

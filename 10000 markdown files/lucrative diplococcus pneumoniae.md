@@ -85,3 +85,9 @@ I breathe.
 Then you all of onions.
 : Alice's Evidence Here was thatched with that person.
 
+
+## Wikilinks load test
+
+[[disquieted dad]]
+[[discombobulated whimsy]]
+[[fifty-one oosphere]]

@@ -93,3 +93,7 @@ Next came jumping merrily
 What.
 : Call the simple question.
 
+
+## Wikilinks load test
+
+[[pro forma pangaea]]

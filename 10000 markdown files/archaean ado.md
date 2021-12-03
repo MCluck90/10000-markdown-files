@@ -74,3 +74,8 @@ Well if nothing yet Oh
 Up above a deal worse.
 : a thunderstorm.
 
+
+## Wikilinks load test
+
+[[stable azo radical]]
+[[prepubescent dejection]]

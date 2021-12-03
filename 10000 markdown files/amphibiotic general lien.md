@@ -73,3 +73,9 @@ CHORUS.
 If there's an ignorant
 : Fourteenth of finding it stop.
 
+
+## Wikilinks load test
+
+[[hair-raising corokia]]
+[[fleshed out tortuosity]]
+[[anacoluthic boeuf]]

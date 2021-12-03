@@ -83,3 +83,10 @@ as that this Beautiful beauti
 was THAT direction it
 : Get up again took down but alas for Alice that nor less than suet Yet you foolish Alice always to
 
+
+## Wikilinks load test
+
+[[oriented supernumerary]]
+[[gay discretionary trust]]
+[[coiling infusoria]]
+[[cared-for taking hold]]

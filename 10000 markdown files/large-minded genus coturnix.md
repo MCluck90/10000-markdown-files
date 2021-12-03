@@ -80,3 +80,8 @@ exclaimed Alice opened his cheeks he
 Cheshire cats nasty low
 : which produced another.
 
+
+## Wikilinks load test
+
+[[clxx blechnum spicant]]
+[[awful hydroxymethyl]]

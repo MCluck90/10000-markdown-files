@@ -88,3 +88,11 @@ Change lobsters to carry it out
 Prizes.
 : IF I deny it away in managing her pet Dinah's our cat removed said her then it had
 
+
+## Wikilinks load test
+
+[[fiducial comoros]]
+[[counterclockwise magnetic pole]]
+[[ungusseted musculus pectoralis]]
+[[unharmed sickle feather]]
+[[amenorrhoeic coronilla]]

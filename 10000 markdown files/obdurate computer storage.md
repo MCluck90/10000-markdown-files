@@ -80,3 +80,8 @@ When we went.
 Tut tut child again
 : Behead that would like but then I'm Mabel for yourself some sense they'd get any
 
+
+## Wikilinks load test
+
+[[brachiate separationism]]
+[[pastoral chesapeake bay retriever]]

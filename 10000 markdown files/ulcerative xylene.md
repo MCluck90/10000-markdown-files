@@ -82,3 +82,10 @@ Oh there's the edge of of
 down went down but
 : To begin.
 
+
+## Wikilinks load test
+
+[[rebarbative hylocichla fuscescens]]
+[[unperturbed katmai national park]]
+[[hand-to-hand fjord]]
+[[bumptious segno]]

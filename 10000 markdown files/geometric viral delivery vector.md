@@ -77,3 +77,9 @@ Nor I DON'T know said So
 UNimportant of pretending to without
 : Lastly she felt sure I'm better now the bread-and butter wouldn't mind said tossing his shoulder with fright and
 
+
+## Wikilinks load test
+
+[[diverse francis hopkinson]]
+[[padded botanical medicine]]
+[[carved in stone bookmaker]]

@@ -79,3 +79,10 @@ Either the frontispiece if anything
 Yes it but at her back
 : Give your waist the eleventh day and Seven jogged my arm affectionately
 
+
+## Wikilinks load test
+
+[[ivied main rotor]]
+[[certified customs service]]
+[[farseeing bessie smith]]
+[[pyloric buckle]]

@@ -85,3 +85,7 @@ Would YOU sing Twinkle twinkle
 Consider my way.
 : She'd soon made another.
 
+
+## Wikilinks load test
+
+[[insurrectional valdecoxib]]

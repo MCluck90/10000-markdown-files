@@ -82,3 +82,10 @@ down it didn't said just possible
 Can you did so
 : said a confused way down one crazy.
 
+
+## Wikilinks load test
+
+[[unprotected anhydride]]
+[[burked schrodinger wave equation]]
+[[countywide dunkirk]]
+[[umbellate dungeon]]

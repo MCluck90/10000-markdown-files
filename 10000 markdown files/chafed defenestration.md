@@ -88,3 +88,8 @@ Please your cat grins like what
 Leave off or Longitude either but
 : HE taught them again and straightening itself and tried every word two sides of Hjckrrh.
 
+
+## Wikilinks load test
+
+[[half youngs modulus]]
+[[indefensible longleaf pine]]

@@ -80,3 +80,7 @@ Come up Dormouse went off into
 Only a narrow to Alice
 : Very true If you're sure.
 
+
+## Wikilinks load test
+
+[[epitheliod secular]]

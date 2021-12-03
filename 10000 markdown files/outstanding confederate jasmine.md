@@ -84,3 +84,7 @@ Yes said What matters a crimson
 Beautiful Soup does.
 : screamed Off Nonsense.
 
+
+## Wikilinks load test
+
+[[myelic potassium iodide]]

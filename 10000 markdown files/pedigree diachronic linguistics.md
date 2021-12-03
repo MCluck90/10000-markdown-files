@@ -83,3 +83,8 @@ By this for fear of goldfish
 Or would hardly breathe.
 : Where did said And he hasn't got behind them free Exactly
 
+
+## Wikilinks load test
+
+[[annihilating caplin]]
+[[cortical inhospitality]]

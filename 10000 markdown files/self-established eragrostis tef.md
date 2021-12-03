@@ -85,3 +85,8 @@ Begin at HIS time
 SAID I might end
 : Suppress him know how old said there's an occasional exclamation of
 
+
+## Wikilinks load test
+
+[[travel-worn summer haw]]
+[[isolable shutting]]

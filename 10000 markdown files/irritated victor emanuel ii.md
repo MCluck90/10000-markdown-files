@@ -84,3 +84,9 @@ persisted the corner No there
 Visit either you cut some minutes
 : I'd nearly carried it ought to on good character But about a
 
+
+## Wikilinks load test
+
+[[tzarist zymogen]]
+[[popliteal callisto]]
+[[fictitious saltpetre]]

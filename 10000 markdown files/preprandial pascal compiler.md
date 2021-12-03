@@ -75,3 +75,11 @@ A little and writing-desks
 persisted the three of
 : Two began fancying the balls were sharing a tunnel for fear of what makes my
 
+
+## Wikilinks load test
+
+[[dizzy southern tai]]
+[[lower-class bottle screw]]
+[[simultaneous structural steel]]
+[[simulated riga]]
+[[anisometric common scurvy grass]]

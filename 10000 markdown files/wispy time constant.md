@@ -82,3 +82,11 @@ Hand it asked.
 Bill's got thrown out one
 : Stop this moment.
 
+
+## Wikilinks load test
+
+[[exterminated great-nephew]]
+[[uncomprehended gastroepiploic vein]]
+[[keynesian populace]]
+[[seasick n.b.]]
+[[unelaborated fulmarus]]

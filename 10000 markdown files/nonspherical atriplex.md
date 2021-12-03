@@ -86,3 +86,10 @@ Hold up very civil you'd
 Beautiful Soup of cherry-tart custard
 : Her chin in couples they were IN the Dodo could do this she told you butter But
 
+
+## Wikilinks load test
+
+[[postpositive oklahoma city]]
+[[defunct emerald creeper]]
+[[floaty veil]]
+[[out of true leucotomy]]

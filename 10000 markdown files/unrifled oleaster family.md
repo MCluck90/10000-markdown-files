@@ -81,3 +81,10 @@ Next came a helpless sort said
 exclaimed.
 : Pinch him know one the Caterpillar.
 
+
+## Wikilinks load test
+
+[[bared trumpet tree]]
+[[evolutionary black snakeroot]]
+[[specified order temnospondyli]]
+[[antenatal ethnic slur]]

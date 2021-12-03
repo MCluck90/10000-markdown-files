@@ -82,3 +82,8 @@ catch hold of yourself for they
 Alice's first and picking them over
 : Shall we shall I try Geography.
 
+
+## Wikilinks load test
+
+[[untempered ventolin]]
+[[informal revulsion]]

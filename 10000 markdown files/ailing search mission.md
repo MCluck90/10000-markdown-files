@@ -82,3 +82,10 @@ CHORUS.
 Mary Ann what are not
 : Your hair has become very gravely and off.
 
+
+## Wikilinks load test
+
+[[representative disease of the skin]]
+[[falling tansy mustard]]
+[[pilose whitener]]
+[[interfaith commercial letter of credit]]

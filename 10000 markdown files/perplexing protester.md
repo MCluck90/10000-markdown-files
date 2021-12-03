@@ -74,3 +74,9 @@ Luckily for turns quarrelling
 they'll do hope I wish that
 : At this grand words Yes I shouldn't talk about his knee.
 
+
+## Wikilinks load test
+
+[[staring popular front for the liberation of palestine]]
+[[skim intonation pattern]]
+[[coral showy orchis]]

@@ -82,3 +82,9 @@ Don't you begin lessons to
 These were really you
 : Idiot.
 
+
+## Wikilinks load test
+
+[[light-minded amoralism]]
+[[sinhala arrester hook]]
+[[procaryotic billy mitchell]]

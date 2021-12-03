@@ -80,3 +80,11 @@ Is that they hurried
 interrupted.
 : ALICE'S LOVE.
 
+
+## Wikilinks load test
+
+[[misguided roll]]
+[[devilish black currant]]
+[[patterned aerobacter aerogenes]]
+[[awheel browsing]]
+[[phlegmatic megabat]]

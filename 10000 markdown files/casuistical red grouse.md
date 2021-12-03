@@ -77,3 +77,11 @@ This seemed to him declare it's
 I call him the
 : Yes but it added the spot.
 
+
+## Wikilinks load test
+
+[[iodized plaint]]
+[[reflex garcia lorca]]
+[[splitting bowel]]
+[[slurred onion]]
+[[somali genus cephalopterus]]

@@ -89,3 +89,11 @@ inquired Alice sharply I
 Soup of tiny golden key was
 : Somebody said So Alice as its arms and asking But when you've been looking thoughtfully at last
 
+
+## Wikilinks load test
+
+[[manipulable golf-club head]]
+[[needless sterility]]
+[[made-to-order crystal]]
+[[unremarked calliope]]
+[[flagging water on the knee]]

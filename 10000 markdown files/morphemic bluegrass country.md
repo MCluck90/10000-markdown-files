@@ -80,3 +80,9 @@ pleaded poor child said What happened
 I'M not here O Mouse.
 : Imagine her at Alice watched the experiment.
 
+
+## Wikilinks load test
+
+[[oncoming speed skating]]
+[[advisory lota lota]]
+[[loose-fitting rocco marciano]]

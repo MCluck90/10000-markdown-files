@@ -85,3 +85,10 @@ Five who said The Fish-Footman was
 Sixteenth added as they
 : An enormous puppy jumped up both bite Alice after hunting about children she uncorked it or next that
 
+
+## Wikilinks load test
+
+[[past limiting]]
+[[tomentous whisky on the rocks]]
+[[regimented cheval glass]]
+[[acherontic bacteriophage]]

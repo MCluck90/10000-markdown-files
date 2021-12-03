@@ -86,3 +86,7 @@ Stupid things happening.
 Idiot.
 : Back to speak.
 
+
+## Wikilinks load test
+
+[[alphabetised genus strepsiceros]]

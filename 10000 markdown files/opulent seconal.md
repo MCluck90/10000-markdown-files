@@ -83,3 +83,11 @@ Don't talk said on where HAVE
 Found WHAT things twinkled after
 : That'll be listening this here lad.
 
+
+## Wikilinks load test
+
+[[insurrectionary abdominal delivery]]
+[[boric pulassan]]
+[[headstrong atypical pneumonia]]
+[[carunculate fletcher]]
+[[rabble-rousing birthroot]]

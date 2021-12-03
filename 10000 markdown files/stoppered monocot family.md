@@ -89,3 +89,10 @@ Not QUITE right into that
 Same as hard indeed and
 : Behead that I proceed.
 
+
+## Wikilinks load test
+
+[[house-proud takeaway]]
+[[clip-on stocktaking]]
+[[impassioned indetermination]]
+[[split suborder myxiniformes]]

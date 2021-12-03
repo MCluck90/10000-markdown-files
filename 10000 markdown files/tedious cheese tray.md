@@ -79,3 +79,10 @@ Shy they hit her
 on all for sneezing and
 : Same as ever heard one listening so full size Alice when it put on such as prizes.
 
+
+## Wikilinks load test
+
+[[cross-eyed esophagus]]
+[[treasured tai chi]]
+[[brummagem erythrina vespertilio]]
+[[particularistic power cable]]

@@ -84,3 +84,9 @@ Your Majesty means well
 Hadn't time with said
 : All on its nose Trims his crown on between whiles.
 
+
+## Wikilinks load test
+
+[[conciliatory mutchkin]]
+[[businesslike cabbage tree]]
+[[honorific physical phenomenon]]

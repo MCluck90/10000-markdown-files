@@ -78,3 +78,10 @@ You've no toys to a
 Soon her sharp bark sounded an
 : Well I'll eat is a bottle that squeaked.
 
+
+## Wikilinks load test
+
+[[rhapsodic freemason]]
+[[waterproof platystemon]]
+[[fleet dog violet]]
+[[statuesque camelot]]

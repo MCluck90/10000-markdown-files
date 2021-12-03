@@ -79,3 +79,7 @@ Keep your name W.
 Twinkle twinkle twinkle twinkle Here.
 : Prizes.
 
+
+## Wikilinks load test
+
+[[archaean ado]]

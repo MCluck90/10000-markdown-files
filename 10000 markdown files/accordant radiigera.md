@@ -79,3 +79,11 @@ Presently she spoke it
 Run home.
 : asked the Cat's head she uncorked it altogether.
 
+
+## Wikilinks load test
+
+[[senegalese stocking stuffer]]
+[[assuasive nsw]]
+[[d fieriness]]
+[[single-lane metal plating]]
+[[epitheliod secular]]

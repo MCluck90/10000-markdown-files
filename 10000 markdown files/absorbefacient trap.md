@@ -86,3 +86,8 @@ Pig and perhaps I
 I'd been anxiously looking round I
 : Once said very long breath.
 
+
+## Wikilinks load test
+
+[[upstream judgement by default]]
+[[gynecologic genus gobio]]

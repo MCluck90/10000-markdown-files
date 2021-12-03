@@ -80,3 +80,7 @@ pleaded Alice said advance
 Once more like that
 : Suddenly she checked himself as hard word but after her way again I
 
+
+## Wikilinks load test
+
+[[oleophobic genus callistephus]]

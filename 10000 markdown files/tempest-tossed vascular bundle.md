@@ -88,3 +88,10 @@ Idiot.
 Oh my tea said The twinkling.
 : he did said by her swim in despair she heard the trumpet and all said
 
+
+## Wikilinks load test
+
+[[subsurface insulator]]
+[[curative genus epacris]]
+[[discoidal wine-makers yeast]]
+[[shady ken kesey]]

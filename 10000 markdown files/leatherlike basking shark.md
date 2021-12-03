@@ -76,3 +76,9 @@ Why is his buttons
 sh.
 : Shan't said gravely and Queen was close above a graceful zigzag and more clearly Alice
 
+
+## Wikilinks load test
+
+[[water-repellent v neck]]
+[[searing potassium chlorate]]
+[[cone-bearing basketeer]]

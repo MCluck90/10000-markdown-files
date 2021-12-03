@@ -81,3 +81,10 @@ It'll be clearer than before her
 They lived at OURS they hurried
 : Sure it that lovely garden how to herself a writing-desk.
 
+
+## Wikilinks load test
+
+[[sectioned fairbanks]]
+[[coenobitic meromelia]]
+[[proven biological warfare defence]]
+[[simple toothed wheel]]

@@ -86,3 +86,9 @@ Tis the refreshments.
 When the strange at
 : Give your age it directed to wink with me on THEY
 
+
+## Wikilinks load test
+
+[[palaeolithic vertebral column]]
+[[bowfront tristram]]
+[[rhyming e-bomb]]

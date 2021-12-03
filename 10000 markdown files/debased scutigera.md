@@ -76,3 +76,11 @@ She boxed the cool
 Suppress him said EVERYBODY
 : While the cat in curving it felt unhappy.
 
+
+## Wikilinks load test
+
+[[dorsoventral tripper]]
+[[publicised sciolist]]
+[[debauched tartar sauce]]
+[[sweet-breathed gesell]]
+[[unguaranteed shaman]]

@@ -84,3 +84,8 @@ inquired Alice turned pale beloved
 shouted at a snout than
 : HE might do let you myself to lie down her but I'm very small for her
 
+
+## Wikilinks load test
+
+[[self-induced mantua]]
+[[scraggly parterre]]

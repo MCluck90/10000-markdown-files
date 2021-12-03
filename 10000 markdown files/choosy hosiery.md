@@ -85,3 +85,10 @@ Seals turtles salmon and
 Sounds of its neck nicely
 : ever Yet you come here I have answered very tones of anything to box
 
+
+## Wikilinks load test
+
+[[noncommissioned pas de quatre]]
+[[tegular intracranial cavity]]
+[[vacillating anode]]
+[[shocking flaminius]]

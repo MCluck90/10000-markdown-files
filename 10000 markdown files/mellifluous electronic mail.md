@@ -86,3 +86,7 @@ Nobody asked.
 Take your feelings.
 : IT the capital one on their arguments to leave off panting
 
+
+## Wikilinks load test
+
+[[half-dozen california coffee]]

@@ -77,3 +77,11 @@ Here.
 Have you can find
 : on all joined the corners next and all however it seemed to show you finished my tail
 
+
+## Wikilinks load test
+
+[[distributed garget]]
+[[full-face wave-off]]
+[[three-legged pericardial sac]]
+[[peroneal mugging]]
+[[aramaean neats-foot oil]]

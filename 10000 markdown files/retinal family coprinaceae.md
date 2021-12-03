@@ -74,3 +74,8 @@ Wake up both cried Alice
 What do it begins
 : Here.
 
+
+## Wikilinks load test
+
+[[rosy-colored pack ice]]
+[[painted agrippina the elder]]

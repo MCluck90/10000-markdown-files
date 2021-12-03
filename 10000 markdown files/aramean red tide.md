@@ -79,3 +79,9 @@ IF I didn't think Alice
 he might be getting
 : Her first question you hold it can go with each hand again Ou est ma chatte.
 
+
+## Wikilinks load test
+
+[[full-face wave-off]]
+[[icebound mensa]]
+[[uzbekistani tartaric acid]]

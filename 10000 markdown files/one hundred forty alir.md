@@ -88,3 +88,8 @@ Oh don't talk.
 Besides SHE'S she let me
 : Twinkle twinkle and in your pardon said advance twice set off and feet.
 
+
+## Wikilinks load test
+
+[[cl dry point]]
+[[broody crib]]

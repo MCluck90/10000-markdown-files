@@ -84,3 +84,10 @@ On which Seven jogged
 Can you liked and
 : Yes we were perfectly sure but then I'll manage.
 
+
+## Wikilinks load test
+
+[[maoist von blucher]]
+[[undependable microbiology]]
+[[unrefined genus tanacetum]]
+[[soft-finned sir thomas malory]]

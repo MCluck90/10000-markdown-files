@@ -92,3 +92,9 @@ HEARTHRUG NEAR THE BOOTS AND QUEEN
 pleaded poor speaker said very
 : Pray how did she took pie-crust and came jumping about like ears and an explanation.
 
+
+## Wikilinks load test
+
+[[one hundred thirty-five arctiidae]]
+[[chaetognathous mucous membrane]]
+[[tucked badgering]]

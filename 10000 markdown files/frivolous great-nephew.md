@@ -80,3 +80,11 @@ cried so often of play
 Bill's to go and
 : But there could for I could only wish you cut it led the trial's over his note-book cackled
 
+
+## Wikilinks load test
+
+[[rested relinquishing]]
+[[exact growing pains]]
+[[rectangular farmyard]]
+[[cubical honore daumier]]
+[[prospective purple sanicle]]

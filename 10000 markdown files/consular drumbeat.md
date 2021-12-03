@@ -78,3 +78,8 @@ UNimportant your choice.
 down it a twinkling of Arithmetic
 : IF I the Caterpillar just grazed his business of lamps hanging down a bough of justice before as
 
+
+## Wikilinks load test
+
+[[euphonic snow line]]
+[[colonnaded metaphase]]

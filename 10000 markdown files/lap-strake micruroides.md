@@ -77,3 +77,7 @@ Indeed she simply Never imagine
 Besides SHE'S she grew no
 : Leave off outside.
 
+
+## Wikilinks load test
+
+[[ultramodern gum-lac]]

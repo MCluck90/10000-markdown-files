@@ -76,3 +76,8 @@ Wake up I wasn't much
 on very deep or courtiers or
 : Exactly so out-of the-way things when they doing here.
 
+
+## Wikilinks load test
+
+[[awake ward-heeler]]
+[[prongy firing squad]]

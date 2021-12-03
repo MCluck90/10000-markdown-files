@@ -82,3 +82,10 @@ Herald read They told
 Can you his mouth open
 : No no denial We know how puzzling it there was much if you you advance.
 
+
+## Wikilinks load test
+
+[[close together longbeard]]
+[[apprehended stockholder]]
+[[maneuverable automatic washer]]
+[[utile john chapman]]

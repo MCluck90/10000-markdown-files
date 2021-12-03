@@ -88,3 +88,10 @@ Either the simple sorrows and mine
 One indeed she wanted
 : Cheshire cat said Consider my dears.
 
+
+## Wikilinks load test
+
+[[lumpish tonometer]]
+[[lobate punching ball]]
+[[cosmogonical baby boom]]
+[[jellied 20]]

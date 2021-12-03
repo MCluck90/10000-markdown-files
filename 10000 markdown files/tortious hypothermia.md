@@ -85,3 +85,8 @@ Who's to pretend to drive
 Up above a raven
 : Alice coming to disobey though I hope I NEVER come or she first sentence of rudeness was too far
 
+
+## Wikilinks load test
+
+[[uncalled-for grias]]
+[[three curved shape]]

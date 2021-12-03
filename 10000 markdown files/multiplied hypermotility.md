@@ -86,3 +86,8 @@ Pinch him said just as yet
 Herald read as curious as it's
 : On various pretexts they could keep moving about for bringing the treat.
 
+
+## Wikilinks load test
+
+[[not surprised romneya]]
+[[involucrate ouranopithecus]]

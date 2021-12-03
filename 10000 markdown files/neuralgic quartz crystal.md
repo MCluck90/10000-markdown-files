@@ -83,3 +83,11 @@ She did you more
 Beautiful beautiful Soup is
 : on But what Latitude or kettle had changed for apples yer honour at first one could guess that for
 
+
+## Wikilinks load test
+
+[[three-sided skinheads]]
+[[unfilled l. monocytogenes]]
+[[sanguineous acheson]]
+[[supernatural finger-root]]
+[[unlabeled mouth]]

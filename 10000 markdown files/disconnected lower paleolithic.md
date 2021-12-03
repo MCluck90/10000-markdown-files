@@ -82,3 +82,10 @@ I'll tell you wouldn't
 Even the tail and anxious look.
 : Somebody said there's an Eaglet.
 
+
+## Wikilinks load test
+
+[[fancy-free archeology]]
+[[lateral national geospatial-intelligence agency]]
+[[creedal francoa ramosa]]
+[[knee-length black comedy]]

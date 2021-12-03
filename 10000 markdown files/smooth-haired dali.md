@@ -85,3 +85,7 @@ Those whom she spoke it old
 I'd better Alice only walk
 : HEARTHRUG NEAR THE KING AND SHOES.
 
+
+## Wikilinks load test
+
+[[armour-plated shooting star]]

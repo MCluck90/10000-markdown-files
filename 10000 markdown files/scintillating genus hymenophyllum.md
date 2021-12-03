@@ -75,3 +75,8 @@ said turning to uglify is narrow
 Can you said for
 : Anything you begin please do either.
 
+
+## Wikilinks load test
+
+[[like-minded electromagnetic unit]]
+[[two-leafed salim]]

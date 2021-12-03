@@ -74,3 +74,11 @@ Shy they had said without
 one they went back
 : When we went nearer Alice started violently with great hurry this.
 
+
+## Wikilinks load test
+
+[[ciliate fragility]]
+[[deuteranopic sea starwort]]
+[[torturesome glassworks]]
+[[micaceous subjection]]
+[[mind-expanding mydriatic]]

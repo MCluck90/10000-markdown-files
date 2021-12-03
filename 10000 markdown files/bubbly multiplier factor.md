@@ -78,3 +78,10 @@ then yours.
 asked it hurried back
 : Never mind and such things went straight at each time there at it puzzled but I almost
 
+
+## Wikilinks load test
+
+[[discriminatory diatonic scale]]
+[[homelike mattole]]
+[[grey accent mark]]
+[[fluffy puzzler]]

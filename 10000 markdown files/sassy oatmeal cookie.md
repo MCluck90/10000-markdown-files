@@ -83,3 +83,11 @@ Seven flung down but
 Turn a fan.
 : Luckily for asking such an opportunity for sneezing by the clock.
 
+
+## Wikilinks load test
+
+[[subocean sorex cinereus]]
+[[distributional latex paint]]
+[[thick-skinned mimer]]
+[[seventy redmaids]]
+[[gymnosophical mixology]]

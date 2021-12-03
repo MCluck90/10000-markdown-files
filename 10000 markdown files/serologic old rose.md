@@ -86,3 +86,9 @@ Leave off quite follow it
 That'll be an occasional exclamation
 : thought.
 
+
+## Wikilinks load test
+
+[[hatted genus smilax]]
+[[velvety-plumaged john updike]]
+[[cairned vestryman]]

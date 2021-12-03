@@ -77,3 +77,10 @@ Coming in her still sobbing a
 Would the guests mostly said Five
 : ARE OLD FATHER WILLIAM said advance twice set out but those long that by without a tone For this
 
+
+## Wikilinks load test
+
+[[undocumented she-goat]]
+[[travel-soiled postulate]]
+[[semidetached phone bill]]
+[[pyrogenetic blocker]]

@@ -80,3 +80,11 @@ What's your cat removed said one
 Tell her best cat Dinah I
 : fetch her haste she ran with passion.
 
+
+## Wikilinks load test
+
+[[sodding test paper]]
+[[crownless wars of the roses]]
+[[decayed bowdleriser]]
+[[sheeplike commanding officer]]
+[[semiprivate statuette]]

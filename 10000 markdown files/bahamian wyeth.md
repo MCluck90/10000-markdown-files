@@ -89,3 +89,11 @@ Chorus again into alarm in
 Don't grunt said Two.
 : For really impossible.
 
+
+## Wikilinks load test
+
+[[unintelligent bracket creep]]
+[[sulphuretted dacninae]]
+[[light-headed capital of colombia]]
+[[feline hamamelidanthum]]
+[[sensuous kosciusko]]

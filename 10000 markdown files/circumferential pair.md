@@ -73,3 +73,7 @@ She'd soon finished it
 Suddenly she would die.
 : Don't talk.
 
+
+## Wikilinks load test
+
+[[uzbekistani gaviiformes]]

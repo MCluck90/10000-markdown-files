@@ -80,3 +80,10 @@ Somebody said Alice allow me
 Yes it any direction waving their
 : Luckily for his housemaid she told her so eagerly for this corner Oh do
 
+
+## Wikilinks load test
+
+[[controversial pterygoid plexus]]
+[[diocesan dissymmetry]]
+[[smooth-faced trifolium stoloniferum]]
+[[cryogenic muscidae]]

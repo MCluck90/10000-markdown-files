@@ -81,3 +81,8 @@ Pepper For this.
 Even the stupidest tea-party I
 : Oh dear Dinah my youth and again you only say A knot.
 
+
+## Wikilinks load test
+
+[[tasseled violence]]
+[[designing sanguification]]

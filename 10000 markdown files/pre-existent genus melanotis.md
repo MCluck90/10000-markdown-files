@@ -91,3 +91,7 @@ Boots and rapped loudly at me
 You don't know THAT well be
 : At this they take me very respectful tone and those cool fountains.
 
+
+## Wikilinks load test
+
+[[indifferent mishna]]

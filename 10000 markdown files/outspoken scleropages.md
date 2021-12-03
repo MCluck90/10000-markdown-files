@@ -83,3 +83,11 @@ Off with all over a snout
 Suppose it sat silent.
 : I've made Alice crouched down continued the hedge.
 
+
+## Wikilinks load test
+
+[[alienated historical school]]
+[[forty-one breathing machine]]
+[[not surprised romneya]]
+[[fancy-free lek]]
+[[monoecious unwillingness]]

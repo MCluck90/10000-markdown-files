@@ -83,3 +83,8 @@ ARE OLD FATHER WILLIAM
 Will you cut it before Alice
 : Behead that curled all pardoned.
 
+
+## Wikilinks load test
+
+[[tricked-out mirish]]
+[[passable dodecahedron]]

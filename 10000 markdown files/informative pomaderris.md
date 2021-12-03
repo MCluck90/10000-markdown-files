@@ -85,3 +85,8 @@ Half-past one so now
 YOU'D better ask me
 : Hush.
 
+
+## Wikilinks load test
+
+[[accommodative clinical depression]]
+[[clubby magnesium carbonate]]

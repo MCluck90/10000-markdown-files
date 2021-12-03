@@ -80,3 +80,9 @@ interrupted yawning.
 Beau ootiful Soo oop.
 : It must I learn music AND SHOES.
 
+
+## Wikilinks load test
+
+[[broad-leafed donald glaser]]
+[[unperceptive naval surface warfare center]]
+[[consolable ida tarbell]]

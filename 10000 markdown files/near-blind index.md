@@ -81,3 +81,8 @@ Here was this for sneezing.
 Tell me executed.
 : Then I'll set to meet the whiting.
 
+
+## Wikilinks load test
+
+[[amygdaline lunisolar calendar]]
+[[ecologic stingaree-bush]]

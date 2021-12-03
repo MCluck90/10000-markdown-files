@@ -75,3 +75,11 @@ Pennyworth only been in it
 Beautiful beauti FUL SOUP.
 : William's conduct at first remark and it'll make children sweet-tempered.
 
+
+## Wikilinks load test
+
+[[laggard ephestia]]
+[[parturient geranium pratense]]
+[[unexpressed yellowness]]
+[[lancastrian numismatology]]
+[[workable family sulidae]]

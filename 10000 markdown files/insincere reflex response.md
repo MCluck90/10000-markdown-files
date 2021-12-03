@@ -81,3 +81,9 @@ Sentence first really clever.
 Thinking again.
 : Then I'll give you coward.
 
+
+## Wikilinks load test
+
+[[hopeful northern bog lemming]]
+[[pineal lacer]]
+[[uninitiate hurt]]

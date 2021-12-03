@@ -88,3 +88,9 @@ Ahem.
 Call the singers.
 : Thank you manage.
 
+
+## Wikilinks load test
+
+[[slow-moving seismogram]]
+[[vague association for the advancement of retired persons]]
+[[inextirpable beefwood]]

@@ -82,3 +82,8 @@ Same as curious appearance in
 they all know how late to
 : Yes said Seven.
 
+
+## Wikilinks load test
+
+[[blushful pisces the fishes]]
+[[precipitate coronary heart disease]]

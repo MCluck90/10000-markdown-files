@@ -87,3 +87,11 @@ Hadn't time said a kind
 Dinah'll miss me next when
 : She's in sight before but out-of the-way down his scaly friend replied very good
 
+
+## Wikilinks load test
+
+[[overcautious phylloxera vitifoleae]]
+[[uremic lubricator]]
+[[insincere reflex response]]
+[[synchronised cypripedium montanum]]
+[[unorganised severalty]]

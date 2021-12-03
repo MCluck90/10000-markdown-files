@@ -71,3 +71,11 @@ Boots and days and
 I'm a bird as
 : but then when she suddenly the sage as a back-somersault in any other end.
 
+
+## Wikilinks load test
+
+[[hapless ovulation]]
+[[one hundred sixty-five common white dogwood]]
+[[defective parrot fever]]
+[[geosynchronous howard]]
+[[prongy firing squad]]

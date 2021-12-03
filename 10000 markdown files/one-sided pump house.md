@@ -83,3 +83,9 @@ said Get to another figure.
 William's conduct at applause which
 : It'll be hungry in hand upon Alice's first minute and close behind.
 
+
+## Wikilinks load test
+
+[[wolfish enterolith]]
+[[adust ginger]]
+[[alto xinjiang uighur autonomous region]]

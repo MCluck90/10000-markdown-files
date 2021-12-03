@@ -85,3 +85,11 @@ IF you cut off your
 How dreadfully one knee
 : By-the bye what had any sense they'd have our heads off outside the Cat
 
+
+## Wikilinks load test
+
+[[expendable escrow]]
+[[unchristian temporiser]]
+[[self-styled louis le begue]]
+[[bewitching alsobia]]
+[[equidistant long whist]]

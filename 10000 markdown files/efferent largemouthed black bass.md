@@ -84,3 +84,7 @@ But there at your cat.
 Dinah if nothing seems Alice and
 : ALICE'S LOVE.
 
+
+## Wikilinks load test
+
+[[contemptuous 10000]]

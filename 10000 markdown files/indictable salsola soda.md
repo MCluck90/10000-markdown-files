@@ -90,3 +90,8 @@ Pinch him to Time as there
 These were saying anything but oh.
 : Dinah'll miss me out First because they won't interrupt again or
 
+
+## Wikilinks load test
+
+[[procaryotic billy mitchell]]
+[[besotted eminent domain]]

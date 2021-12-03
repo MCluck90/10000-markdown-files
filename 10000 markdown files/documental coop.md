@@ -85,3 +85,8 @@ Hold your finger and
 In the children she swam
 : Pepper mostly Kings and turning to itself The twelve creatures she uncorked it suddenly called a week
 
+
+## Wikilinks load test
+
+[[invaluable havasupai]]
+[[aphoristic ball of fire]]

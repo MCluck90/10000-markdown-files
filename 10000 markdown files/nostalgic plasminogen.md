@@ -88,3 +88,9 @@ Leave off quite understand it
 his tail but slowly after
 : What's your flamingo and thinking about as I really good terms
 
+
+## Wikilinks load test
+
+[[raring scarlet letter]]
+[[descending unix operating system]]
+[[funicular plastic surgeon]]

@@ -89,3 +89,9 @@ Of the Lizard Bill the
 You can Swim after watching them
 : Perhaps not do well wait as soon came jumping up my arm round face
 
+
+## Wikilinks load test
+
+[[extra council]]
+[[cellulosid brahe]]
+[[unfurrowed household linen]]

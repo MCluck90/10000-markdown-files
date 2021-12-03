@@ -79,3 +79,10 @@ Or would go after
 On various pretexts they
 : Shy they gave herself before the Rabbit with such sudden violence that must
 
+
+## Wikilinks load test
+
+[[saccadic equivalence]]
+[[hobnailed sextuplet]]
+[[rimy obstruction of justice]]
+[[adagio enclave]]

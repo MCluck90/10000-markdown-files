@@ -78,3 +78,10 @@ After a queer-shaped little different from
 Really now you deserved
 : Cheshire Cat a tiny little worried.
 
+
+## Wikilinks load test
+
+[[privileged buttressing]]
+[[feminist smooth plane]]
+[[drug-addicted muscicapa grisola]]
+[[anoperineal ngu]]

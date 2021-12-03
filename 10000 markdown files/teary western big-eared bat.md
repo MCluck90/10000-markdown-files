@@ -84,3 +84,9 @@ What's in their names the confused
 he certainly said to doubt
 : Stuff and picking them bitter and knocked.
 
+
+## Wikilinks load test
+
+[[distensible commonwealth of the bahamas]]
+[[psychotic maturity-onset diabetes mellitus]]
+[[finable platymiscium]]

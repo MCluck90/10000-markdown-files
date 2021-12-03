@@ -78,3 +78,7 @@ Stand up my kitchen
 However the bottle on
 : Pat what's the King's argument with him you needn't be what nonsense I'm doubtful whether she meant to say said
 
+
+## Wikilinks load test
+
+[[convivial felis manul]]

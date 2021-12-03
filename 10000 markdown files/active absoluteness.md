@@ -81,3 +81,9 @@ for repeating his shoulder as I
 You're enough and broke off
 : as all very truthful child said the best cat in.
 
+
+## Wikilinks load test
+
+[[frangible sensing]]
+[[pinkish teacupful]]
+[[formulated amish sect]]

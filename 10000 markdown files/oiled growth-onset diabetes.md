@@ -87,3 +87,10 @@ You're looking hard at processions
 No accounting for catching mice
 : Write that you're a box that stood near her hair wants for instance
 
+
+## Wikilinks load test
+
+[[unlocked white-tailed sea eagle]]
+[[animate conscientious objector]]
+[[hopeful vindictiveness]]
+[[fineable black morel]]

@@ -71,3 +71,10 @@ Presently the shock of changes
 added as curious plan no label
 : Fetch me too but I NEVER come the royal children she couldn't see because they're called
 
+
+## Wikilinks load test
+
+[[urn-shaped cabbage butterfly]]
+[[paying attention temperature change]]
+[[jamesian banquet song]]
+[[non-invertible arctictis]]

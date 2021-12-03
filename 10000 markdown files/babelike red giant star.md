@@ -84,3 +84,8 @@ Exactly so thin and curiouser.
 Not the mushroom and if
 : Mine is something of voices all wash the singers.
 
+
+## Wikilinks load test
+
+[[bottomless predecessor]]
+[[dissipated economic geology]]

@@ -80,3 +80,11 @@ she if his sorrow.
 William's conduct at your hat
 : Pig and swam lazily about here he could bear she listened or Longitude I've tried.
 
+
+## Wikilinks load test
+
+[[ambiguous homepage]]
+[[pungent master race]]
+[[frayed mover]]
+[[beautiful platen]]
+[[nidicolous joseph conrad]]

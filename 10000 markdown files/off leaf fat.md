@@ -82,3 +82,9 @@ Luckily for all the
 Beautiful beauti FUL SOUP.
 : a pun.
 
+
+## Wikilinks load test
+
+[[bubbling bomber crew]]
+[[uncluttered aegean civilization]]
+[[coal-burning marlinspike]]

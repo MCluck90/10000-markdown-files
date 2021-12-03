@@ -77,3 +77,10 @@ Soon her ever Yet you deserved
 Anything you grow at.
 : CHORUS.
 
+
+## Wikilinks load test
+
+[[pop genus sturnella]]
+[[spice-scented contraception]]
+[[spanish anapest]]
+[[squabby lunch meat]]

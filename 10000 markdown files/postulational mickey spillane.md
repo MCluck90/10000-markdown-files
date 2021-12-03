@@ -84,3 +84,11 @@ ALICE'S LOVE.
 Run home this fireplace
 : thump.
 
+
+## Wikilinks load test
+
+[[sky-blue strand]]
+[[tacit cryptanalysis]]
+[[analogical apollo program]]
+[[complex omicron]]
+[[buttoned-up press gallery]]

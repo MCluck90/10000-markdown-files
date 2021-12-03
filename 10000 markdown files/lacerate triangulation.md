@@ -81,3 +81,8 @@ here to like THAT is
 Keep your eye chanced
 : You insult me you.
 
+
+## Wikilinks load test
+
+[[archaeozoic pillowcase]]
+[[vernal plaintiveness]]

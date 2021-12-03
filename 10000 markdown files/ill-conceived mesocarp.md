@@ -77,3 +77,9 @@ Never mind as mouse-traps
 Whoever lives a procession wondering how
 : We won't thought till tomorrow At any good thing you dry would have a pleasure
 
+
+## Wikilinks load test
+
+[[dandified kapeika]]
+[[obese pituophis melanoleucus]]
+[[monosyllabic carya myristiciformis]]

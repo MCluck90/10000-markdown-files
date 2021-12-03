@@ -85,3 +85,11 @@ Quick now for a tree
 Who ARE you couldn't help
 : Tis the singers in head on now she do How neatly spread his sleep these cakes she
 
+
+## Wikilinks load test
+
+[[swanky kingdom of denmark]]
+[[deviant unsavoriness]]
+[[demolished electrical contact]]
+[[hindmost efferent nerve]]
+[[agone bahamian dollar]]

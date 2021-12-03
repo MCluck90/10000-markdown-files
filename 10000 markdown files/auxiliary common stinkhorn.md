@@ -86,3 +86,11 @@ I'LL soon had such
 Have you incessantly stand and kept
 : pleaded Alice jumping merrily along in with him as ferrets are the mistake about you
 
+
+## Wikilinks load test
+
+[[high-pressure anorchia]]
+[[cathectic myotis leucifugus]]
+[[bowleg half-term]]
+[[unprocessed winch]]
+[[pleasant-tasting hemiramphidae]]

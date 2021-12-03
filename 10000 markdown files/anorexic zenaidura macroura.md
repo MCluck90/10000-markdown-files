@@ -76,3 +76,8 @@ Sing her still and you've
 If that's not open
 : Stolen.
 
+
+## Wikilinks load test
+
+[[buddhist skin-diver]]
+[[ultramontane particle detector]]

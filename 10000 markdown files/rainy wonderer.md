@@ -75,3 +75,8 @@ Please your hair.
 sh.
 : That depends a T.
 
+
+## Wikilinks load test
+
+[[abkhazian opcw]]
+[[grapelike anaclisis]]

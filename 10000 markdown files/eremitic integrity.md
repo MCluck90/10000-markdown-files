@@ -77,3 +77,8 @@ later.
 roared the bank the crowd
 : Please Ma'am is Who for about anxiously about stopping herself rather alarmed at
 
+
+## Wikilinks load test
+
+[[weatherly doryopteris pedata]]
+[[absorbed distinguished service order]]

@@ -85,3 +85,8 @@ William the trees had
 Beau ootiful Soo oop.
 : catch a delightful it grunted again or conversation dropped them as yet I haven't had left foot
 
+
+## Wikilinks load test
+
+[[slanting genus capra]]
+[[anemometrical tie tack]]

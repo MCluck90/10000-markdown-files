@@ -77,3 +77,7 @@ After that begins with us
 Seals turtles all my
 : All on now.
 
+
+## Wikilinks load test
+
+[[stupendous rudder]]

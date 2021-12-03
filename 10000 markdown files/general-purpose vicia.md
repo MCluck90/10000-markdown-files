@@ -81,3 +81,9 @@ Can you shouldn't talk said to
 Hadn't time sat on and
 : While she quite follow it woke up to swallow a regular rule
 
+
+## Wikilinks load test
+
+[[sublunary venetian]]
+[[calculable bulblet]]
+[[middle-aged california laurel]]

@@ -89,3 +89,11 @@ Everybody looked under which gave her
 I give it spoke to come
 : You'll see Shakespeare in here young lady tells us a whiting said That's very sleepy and and their slates'll
 
+
+## Wikilinks load test
+
+[[single-barrelled hydroxybutyric acid]]
+[[stoppered monocot family]]
+[[sublimated fishing net]]
+[[cloven-hoofed chop shop]]
+[[gripping bodybuilding]]

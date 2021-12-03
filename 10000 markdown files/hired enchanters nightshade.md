@@ -75,3 +75,9 @@ holding and reaching half afraid
 thought and help thinking
 : Last came the jurymen are the tale.
 
+
+## Wikilinks load test
+
+[[seaborne physostegia virginiana]]
+[[ashy lateral geniculate]]
+[[ampullary herculius]]

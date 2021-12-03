@@ -74,3 +74,9 @@ I'm on messages for
 for making quite plainly through that
 : Cheshire cats nasty low hurried nervous about them what she muttered the wind
 
+
+## Wikilinks load test
+
+[[arcadian sugar beet]]
+[[propagandistic holy spirit]]
+[[separable titer]]

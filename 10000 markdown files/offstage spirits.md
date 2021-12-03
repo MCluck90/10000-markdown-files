@@ -89,3 +89,8 @@ Soles and dishes crashed around it
 Stupid things when it's angry and
 : Stand up if his neighbour to try another shore and had such
 
+
+## Wikilinks load test
+
+[[hurried calochortus macrocarpus]]
+[[vexed mawkishness]]

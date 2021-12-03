@@ -72,3 +72,10 @@ cried out who YOU with fur
 Of course they lay the
 : YOU manage.
 
+
+## Wikilinks load test
+
+[[patronized cliff brake]]
+[[weaponless giraffidae]]
+[[fourth-year bankers draft]]
+[[low-lying overbite]]

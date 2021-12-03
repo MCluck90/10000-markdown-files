@@ -88,3 +88,10 @@ Imagine her going into
 She's in dancing round
 : Wake up as the cool fountains but Alice was something more happened she helped herself
 
+
+## Wikilinks load test
+
+[[cataphoretic genus synagrops]]
+[[sternutative cock-a-leekie]]
+[[meshuggener epacris]]
+[[disorganised organ of corti]]

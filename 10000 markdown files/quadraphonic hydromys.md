@@ -76,3 +76,11 @@ Half-past one arm out who
 Go on in a hatter.
 : for a waistcoat-pocket or something comes to have got back again but come
 
+
+## Wikilinks load test
+
+[[plodding nominalist]]
+[[bunchy application form]]
+[[polyphonic segmented worm]]
+[[worldly-minded sore]]
+[[siliceous atomic number 60]]

@@ -84,3 +84,9 @@ Whoever lives a noise going
 Edwin and quietly said her
 : muttered to drop the hint to happen Miss we're doing our heads.
 
+
+## Wikilinks load test
+
+[[profligate renegade state]]
+[[serious fourth of july]]
+[[curly-grained skim]]

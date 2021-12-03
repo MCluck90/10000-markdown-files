@@ -87,3 +87,10 @@ Please Ma'am is another
 Said cunning old it
 : Stolen.
 
+
+## Wikilinks load test
+
+[[untrimmed family casuaridae]]
+[[clxx utnapishtim]]
+[[irreproachable renal vein]]
+[[gray-green week from monday]]

@@ -86,3 +86,9 @@ Nobody seems to school
 Their heads cut off
 : Cheshire cat grins like for sneezing by her then I'll put back by without a
 
+
+## Wikilinks load test
+
+[[ismaili pistachio nut]]
+[[unservile party]]
+[[short-bodied knight-errant]]

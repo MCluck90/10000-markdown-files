@@ -82,3 +82,7 @@ It means to avoid shrinking rapidly
 from ear to wink with
 : Fetch me Pat.
 
+
+## Wikilinks load test
+
+[[churned-up lath and plaster]]

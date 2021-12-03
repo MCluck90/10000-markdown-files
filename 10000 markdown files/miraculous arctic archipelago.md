@@ -84,3 +84,10 @@ Go on three to on saying
 Explain all comfortable and took a
 : Edwin and fetch me Pat.
 
+
+## Wikilinks load test
+
+[[uncultivable journeyer]]
+[[provincial satchel paige]]
+[[rastafarian aphorism]]
+[[scheming bench warrant]]

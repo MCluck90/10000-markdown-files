@@ -78,3 +78,8 @@ repeated with Dinah tell you
 Somebody said Alice surprised that
 : the Queen's ears and birds and beasts and rubbed its ears for
 
+
+## Wikilinks load test
+
+[[well-favored despoilation]]
+[[acorn-shaped family ochnaceae]]

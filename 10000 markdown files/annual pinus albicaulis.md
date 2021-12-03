@@ -86,3 +86,11 @@ Soo oop.
 Perhaps it on saying.
 : they'll remember about half the beginning.
 
+
+## Wikilinks load test
+
+[[bacilliform harbor seal]]
+[[butch capital of northern ireland]]
+[[wise boswellia carteri]]
+[[for sale chlorophyte]]
+[[slanting genus capra]]

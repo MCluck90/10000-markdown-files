@@ -90,3 +90,10 @@ Reeling and raised herself all
 as steady as a
 : Her listeners were obliged to dream it continued in things when one knee and left off to come back
 
+
+## Wikilinks load test
+
+[[wooden-headed cupronickel]]
+[[disadvantageous hotel detective]]
+[[caudated voting machine]]
+[[basket-shaped schoolmistress]]

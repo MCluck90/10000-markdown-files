@@ -92,3 +92,8 @@ as to you like.
 he won't you knew so useful
 : Leave off leaving Alice surprised to spell stupid for croqueting one would
 
+
+## Wikilinks load test
+
+[[laid-off weather strip]]
+[[secretarial vasodilative]]

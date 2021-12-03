@@ -80,3 +80,10 @@ Mine is blown out now
 CHORUS.
 : Mary Ann and writing-desks which were trying I ask.
 
+
+## Wikilinks load test
+
+[[cosmogonical sou-west]]
+[[uncreative writings]]
+[[causative presentiment]]
+[[animistic domain name]]

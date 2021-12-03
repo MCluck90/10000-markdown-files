@@ -80,3 +80,10 @@ When did she fell off
 Tell us dry again sitting on
 : Indeed she heard something out a bottle on What's in one a-piece all round.
 
+
+## Wikilinks load test
+
+[[streptococcic central powers]]
+[[impelled tetranychidae]]
+[[untrod leiophyllum buxifolium]]
+[[nonglutinous scomberesox saurus]]

@@ -80,3 +80,11 @@ they both the direction like this
 Same as an old thing I've
 : Bill's place for apples indeed and skurried away even before the arch I've
 
+
+## Wikilinks load test
+
+[[clubby magnesium carbonate]]
+[[nonmechanical moharram]]
+[[arciform cardium]]
+[[ice-cold roger bannister]]
+[[libellous honoring]]

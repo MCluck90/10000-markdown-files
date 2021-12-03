@@ -91,3 +91,7 @@ Idiot.
 The White Rabbit coming
 : Cheshire cats nasty low vulgar things happening.
 
+
+## Wikilinks load test
+
+[[pleural balata]]

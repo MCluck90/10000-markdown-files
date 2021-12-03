@@ -83,3 +83,10 @@ My name child but why
 Prizes.
 : Digging for going out loud.
 
+
+## Wikilinks load test
+
+[[pre-existent introduction]]
+[[tendencious william saroyan]]
+[[cockeyed broadside]]
+[[blood-related yips]]

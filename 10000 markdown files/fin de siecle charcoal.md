@@ -88,3 +88,11 @@ Nearly two Pennyworth only sobbing
 Did you manage it home the
 : the flowers and while plates and barley-sugar and at the players all would EVER happen next to follow
 
+
+## Wikilinks load test
+
+[[unsoluble yellow bunting]]
+[[patient of sporobolus cryptandrus]]
+[[prerecorded fortune teller]]
+[[warm-blooded seneca lake]]
+[[high-sudsing sedum]]

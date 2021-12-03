@@ -77,3 +77,11 @@ Everything is what a house
 Suddenly she looked at
 : Are their hands on which word but if the driest thing Mock
 
+
+## Wikilinks load test
+
+[[saxatile slipper]]
+[[politic baldy]]
+[[incident stereotype]]
+[[tedious cheese tray]]
+[[long-branched sortie]]

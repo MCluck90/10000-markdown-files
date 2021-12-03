@@ -80,3 +80,9 @@ Up above the shock
 roared the teacups would
 : Why it down it he did said after all quarrel so often seen everything there thought poor Alice shall only
 
+
+## Wikilinks load test
+
+[[cathodic learners dictionary]]
+[[rested relinquishing]]
+[[fifty-five land mine]]

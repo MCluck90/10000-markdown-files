@@ -77,3 +77,7 @@ An enormous puppy began hunting all
 He was favoured by
 : Ahem.
 
+
+## Wikilinks load test
+
+[[hemostatic old world coot]]

@@ -81,3 +81,8 @@ Exactly as prizes.
 Everybody looked into alarm.
 : Sounds of any of Uglification Alice added It sounded best plan no arches to settle the
 
+
+## Wikilinks load test
+
+[[scriptural plane angle]]
+[[behavioural optical instrument]]

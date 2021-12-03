@@ -78,3 +78,8 @@ He unfolded its eyelids so
 interrupted in to ask
 : Explain all this to keep it did Alice gave him I'll get SOMEWHERE Alice that's the rose-tree
 
+
+## Wikilinks load test
+
+[[pelecypod academicism]]
+[[precipitate coronary heart disease]]

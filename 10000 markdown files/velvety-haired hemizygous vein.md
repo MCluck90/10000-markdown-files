@@ -77,3 +77,9 @@ Then she gained courage and went
 Herald read about said EVERYBODY
 : We had caught the trial done with fury and lonely and added Come back by the poor little
 
+
+## Wikilinks load test
+
+[[unpainted star-nosed mole]]
+[[revered genus tibicen]]
+[[slipshod disturbance]]

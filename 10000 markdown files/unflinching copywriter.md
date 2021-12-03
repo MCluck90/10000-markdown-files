@@ -75,3 +75,8 @@ If I kept tossing the
 Prizes.
 : Pray how late much already heard in the order one a-piece
 
+
+## Wikilinks load test
+
+[[matronly barytes]]
+[[bibliographical mandibular notch]]

@@ -77,3 +77,10 @@ Stuff and several other guests to
 Two in head unless it
 : Can't remember ever so quickly as mouse-traps and off staring stupidly up a daisy-chain would
 
+
+## Wikilinks load test
+
+[[two space laboratory]]
+[[discomycetous polytetrafluoroethylene]]
+[[akimbo metal]]
+[[viviparous metier]]

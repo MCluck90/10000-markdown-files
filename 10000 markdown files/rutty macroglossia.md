@@ -87,3 +87,11 @@ said No more the jury-box
 Pinch him How funny
 : thump.
 
+
+## Wikilinks load test
+
+[[homophonic malayalam]]
+[[ice-cold conchology]]
+[[pent ph scale]]
+[[archaean ado]]
+[[cottony-white apanage]]

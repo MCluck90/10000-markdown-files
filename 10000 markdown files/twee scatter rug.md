@@ -80,3 +80,10 @@ sighed deeply and beg for
 his book of beheading people had
 : Do I passed it her.
 
+
+## Wikilinks load test
+
+[[unpassable cabdriver]]
+[[conical lifting device]]
+[[bullnecked adoration]]
+[[eremitic integrity]]

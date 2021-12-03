@@ -83,3 +83,11 @@ Everything is blown out to
 Really my right height to
 : wow.
 
+
+## Wikilinks load test
+
+[[unemotional night watchman]]
+[[applied woolly monkey]]
+[[impelled tetranychidae]]
+[[subocean sorex cinereus]]
+[[cold-temperate family batrachoididae]]

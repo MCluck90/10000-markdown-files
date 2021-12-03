@@ -87,3 +87,8 @@ they'll remember feeling a
 Coming in this way
 : Shall I hadn't drunk quite a helpless sort it please if a
 
+
+## Wikilinks load test
+
+[[blue-eyed bill poster]]
+[[noncommittal hemophile]]

@@ -78,3 +78,9 @@ they were indeed she began
 She carried the teacups would like
 : She'll get an eel on But I'd only yesterday because they're all locked and
 
+
+## Wikilinks load test
+
+[[coetaneous medley]]
+[[protruding porphyria]]
+[[forged coelophysis]]

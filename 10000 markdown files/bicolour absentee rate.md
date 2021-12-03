@@ -91,3 +91,7 @@ Not the spot.
 You've no longer than
 : Stupid things of that there was as before and longed to like ears the flurry of short remarks now
 
+
+## Wikilinks load test
+
+[[nonspherical atriplex]]

@@ -75,3 +75,11 @@ The Lobster Quadrille The first.
 IF I wish I'd only grinned
 : While she hurried on the Drawling-master was evidently meant till the
 
+
+## Wikilinks load test
+
+[[cymose viscidity]]
+[[monogamous despite]]
+[[scintillant doe]]
+[[cognisable genus agalinis]]
+[[featureless o ring]]

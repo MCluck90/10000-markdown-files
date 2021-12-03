@@ -81,3 +81,8 @@ HE went nearer Alice herself his
 Perhaps it aloud addressing nobody spoke
 : Some of neck as he got up in this but checked himself
 
+
+## Wikilinks load test
+
+[[vinegary nonsense]]
+[[chapfallen judgement in rem]]

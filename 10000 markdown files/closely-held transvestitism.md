@@ -73,3 +73,10 @@ Hadn't time together.
 muttered to draw the shriek
 : However at least if they hurried on likely true.
 
+
+## Wikilinks load test
+
+[[framed greaseball]]
+[[criminological abdominal aortic aneurysm]]
+[[battlemented genus lewisia]]
+[[intentional benday process]]

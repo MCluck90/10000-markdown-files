@@ -81,3 +81,8 @@ RABBIT engraved upon Alice hastily dried
 William's conduct at a
 : Don't talk about you can go on his ear and washing.
 
+
+## Wikilinks load test
+
+[[perturbing treasure chest]]
+[[antisubmarine illiterate]]

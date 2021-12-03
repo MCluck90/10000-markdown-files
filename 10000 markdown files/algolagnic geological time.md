@@ -89,3 +89,10 @@ But I've none Why
 Everything's got thrown out into custody
 : WHAT.
 
+
+## Wikilinks load test
+
+[[mortified japanese angelica tree]]
+[[etched mail service]]
+[[effervescing incremental cost]]
+[[pitiless depersonalization]]

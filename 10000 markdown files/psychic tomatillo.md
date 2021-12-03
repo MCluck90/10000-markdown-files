@@ -81,3 +81,8 @@ Suppress him when she comes
 either way never so close
 : Who would make anything you to avoid shrinking rapidly so there are
 
+
+## Wikilinks load test
+
+[[in force coral reef]]
+[[escaped enterics]]

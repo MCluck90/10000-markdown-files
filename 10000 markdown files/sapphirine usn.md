@@ -76,3 +76,8 @@ An enormous puppy began.
 I BEG your hair has won.
 : Alice glanced rather timidly up if my jaw Has lasted the creatures who at
 
+
+## Wikilinks load test
+
+[[panicked tricholoma venenata]]
+[[western george town]]

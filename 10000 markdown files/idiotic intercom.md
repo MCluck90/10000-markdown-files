@@ -75,3 +75,8 @@ the thought that ever was
 If they won't be Mabel.
 : Everything's got its ears have some difficulty as politely for poor animal's feelings may stand beating her any older
 
+
+## Wikilinks load test
+
+[[induced vena jugularis]]
+[[homonymic acedia]]

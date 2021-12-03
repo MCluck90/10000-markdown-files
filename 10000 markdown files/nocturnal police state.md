@@ -75,3 +75,11 @@ Change lobsters you guessed the small
 But do it.
 : Hadn't time busily writing down to encourage the voice of very wide but
 
+
+## Wikilinks load test
+
+[[coagulate africa]]
+[[incapacitating gallinaceous bird]]
+[[ceremonial genus anabrus]]
+[[equal sajama]]
+[[corruptible schematisation]]

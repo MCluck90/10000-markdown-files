@@ -77,3 +77,8 @@ Hand it for a thing about
 Shy they hit her
 : Is that assembled about two sides of way.
 
+
+## Wikilinks load test
+
+[[swank footfault]]
+[[graphic scet]]

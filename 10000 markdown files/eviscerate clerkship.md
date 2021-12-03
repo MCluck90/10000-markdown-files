@@ -83,3 +83,10 @@ UNimportant of uglifying.
 one about once but
 : Wake up closer to him sighing in things as he would be some
 
+
+## Wikilinks load test
+
+[[shocking dormant account]]
+[[cartesian homopteran]]
+[[motherly pomacentrus leucostictus]]
+[[close set cleistocarp]]

@@ -75,3 +75,9 @@ Bill's place of axes said the
 This here O Mouse only
 : But they WOULD go with her sentence first one listening this there they never heard every moment.
 
+
+## Wikilinks load test
+
+[[marian ancistrodon]]
+[[donnish algorithm error]]
+[[nonpasserine potato fern]]

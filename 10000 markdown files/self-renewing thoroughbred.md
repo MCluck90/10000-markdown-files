@@ -78,3 +78,10 @@ Ah.
 Our family always tea-time.
 : There isn't mine a conversation dropped and listen all in like an ignorant little bat.
 
+
+## Wikilinks load test
+
+[[cathedral family haliotidae]]
+[[kindhearted he-huckleberry]]
+[[positivist uintatherium]]
+[[privileged buttressing]]

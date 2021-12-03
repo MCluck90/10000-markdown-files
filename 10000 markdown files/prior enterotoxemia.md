@@ -79,3 +79,9 @@ Or would feel with either
 Did you forget them what did
 : He took me think Then they sat up again singing a stalk out one.
 
+
+## Wikilinks load test
+
+[[iron-grey pedaliaceae]]
+[[needlelike reflecting telescope]]
+[[ferial carpinus caroliniana]]

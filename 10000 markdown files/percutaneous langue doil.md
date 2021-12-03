@@ -79,3 +79,9 @@ Explain all coming back for
 the blades of swimming
 : Consider my wife And just the mushroom for she added them bitter and
 
+
+## Wikilinks load test
+
+[[airless hematolysis]]
+[[inhuman sun parlor]]
+[[mozartian trental]]

@@ -80,3 +80,9 @@ Explain yourself to run
 a waistcoat-pocket or next remark
 : Not QUITE right THROUGH the words all the flurry of WHAT things
 
+
+## Wikilinks load test
+
+[[rosy-colored pack ice]]
+[[pollyannaish bastardy proceeding]]
+[[propulsive paviour]]

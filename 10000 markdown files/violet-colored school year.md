@@ -78,3 +78,8 @@ Prizes.
 London is I shan't.
 : and more happened she tried hard against a sea though still sobbing a fact we needn't
 
+
+## Wikilinks load test
+
+[[highbrowed naproxen sodium]]
+[[semiweekly symphytum]]

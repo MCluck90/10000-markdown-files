@@ -91,3 +91,8 @@ I've made Alice and Alice
 Alas.
 : Heads below.
 
+
+## Wikilinks load test
+
+[[jurisdictional malaria parasite]]
+[[pharmacological candied apple]]

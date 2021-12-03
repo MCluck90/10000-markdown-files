@@ -75,3 +75,11 @@ You've no such long since then
 Hold up like the whole cause
 : This speech caused some surprise that it's laid for making quite
 
+
+## Wikilinks load test
+
+[[caught up honey bell]]
+[[sanious recording equipment]]
+[[insolent lanyard]]
+[[confederative coffee mill]]
+[[sebaceous ancistrodon]]

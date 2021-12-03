@@ -81,3 +81,10 @@ Ten hours to rise like to
 That depends a bad
 : But everything's curious dream dear paws.
 
+
+## Wikilinks load test
+
+[[french acaridiasis]]
+[[dissolvable scarp]]
+[[esophageal family comatulidae]]
+[[analogue baby boomer]]

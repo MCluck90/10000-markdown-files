@@ -75,3 +75,8 @@ If she wants cutting said one
 One of every way
 : .
 
+
+## Wikilinks load test
+
+[[hypertonic rubia]]
+[[waterproof platystemon]]

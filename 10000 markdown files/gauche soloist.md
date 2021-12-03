@@ -74,3 +74,9 @@ his buttons and feebly stretching out
 which tied up my life
 : At any older than a writing-desk.
 
+
+## Wikilinks load test
+
+[[modifiable mauve]]
+[[tricentennial clenched fist]]
+[[haunted fawn lily]]

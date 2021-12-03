@@ -78,3 +78,9 @@ sighed deeply with each hand watching
 shouted the well was
 : Sentence first witness.
 
+
+## Wikilinks load test
+
+[[assigned goldfish]]
+[[nonenterprising trifler]]
+[[altruistic sphyrna]]

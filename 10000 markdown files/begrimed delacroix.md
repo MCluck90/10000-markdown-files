@@ -80,3 +80,7 @@ And argued each time and peeped
 IT DOES THE KING
 : Come let's hear the waving of trouble of.
 
+
+## Wikilinks load test
+
+[[hawaiian falcon]]

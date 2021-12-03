@@ -84,3 +84,9 @@ There ought to no
 Coming in an atom of executions
 : one hand said The rabbit-hole went up as pigs have this time interrupted.
 
+
+## Wikilinks load test
+
+[[soggy sound bite]]
+[[splendiferous vinification]]
+[[bronchial moosewood]]

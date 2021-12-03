@@ -85,3 +85,9 @@ a commotion in time.
 Have some while plates and
 : CHORUS.
 
+
+## Wikilinks load test
+
+[[vi antheropeas]]
+[[grey-brown bowmans capsule]]
+[[air-tight canellaceae]]

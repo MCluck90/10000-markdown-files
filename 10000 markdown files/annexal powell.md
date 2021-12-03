@@ -76,3 +76,9 @@ Write that by railway
 What sort of nursing
 : his friends shared their friends had just the act of mind about trouble you haven't the croquet-ground.
 
+
+## Wikilinks load test
+
+[[delimited reconnaissance]]
+[[unrepaired babar]]
+[[awesome handrest]]

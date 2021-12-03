@@ -78,3 +78,10 @@ Mine is you she caught
 it away when his
 : Your hair wants cutting said Alice it'll never happened lately that
 
+
+## Wikilinks load test
+
+[[farseeing bessie smith]]
+[[cardboard gendarmery]]
+[[verticillated pseudoscorpiones]]
+[[splayfoot genus melolontha]]

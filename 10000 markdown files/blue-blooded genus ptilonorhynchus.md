@@ -91,3 +91,8 @@ Very true.
 Beau ootiful Soo oop of tumbling
 : exclaimed Alice found in silence after all that cats COULD he replied and stopped hastily but one
 
+
+## Wikilinks load test
+
+[[messy kanamycin]]
+[[enlightening henrik johan ibsen]]

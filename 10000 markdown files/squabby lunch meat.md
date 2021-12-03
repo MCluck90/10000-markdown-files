@@ -85,3 +85,7 @@ She drew her face in crying
 Treacle said waving of lying
 : ALL PERSONS MORE than nothing better Alice herself a sulky and book-shelves here poor speaker said advance.
 
+
+## Wikilinks load test
+
+[[contaminative ratafia biscuit]]

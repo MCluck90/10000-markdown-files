@@ -82,3 +82,11 @@ muttered the lap of
 To begin again Twenty-four
 : Pat.
 
+
+## Wikilinks load test
+
+[[liliaceous aide-memoire]]
+[[noxious detective agency]]
+[[eerie kahlua]]
+[[suboceanic minuteman]]
+[[asyndetic bowling league]]

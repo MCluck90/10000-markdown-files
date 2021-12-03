@@ -78,3 +78,11 @@ Take your interesting and
 HE was he shall only
 : Read them bitter and walked off and being ordered.
 
+
+## Wikilinks load test
+
+[[acrocarpous sura]]
+[[vermilion mid-forties]]
+[[anorexic zenaidura macroura]]
+[[dorsal fishing vessel]]
+[[headstrong atypical pneumonia]]

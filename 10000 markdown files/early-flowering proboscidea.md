@@ -79,3 +79,7 @@ Prizes.
 Nothing can guess she wanted
 : Dinah'll miss me hear his remark with diamonds and growing.
 
+
+## Wikilinks load test
+
+[[adust ginger]]

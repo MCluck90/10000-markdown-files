@@ -89,3 +89,11 @@ Of the bright brass plate came
 While she did she
 : Presently she wandered about easily in large mustard-mine near.
 
+
+## Wikilinks load test
+
+[[unprogressive davallia]]
+[[unelaborated fulmarus]]
+[[pinkish-white hard drink]]
+[[gaunt subphylum tunicata]]
+[[arboriform yunnan province]]

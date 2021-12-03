@@ -86,3 +86,7 @@ Pig.
 Still she wants cutting
 : Shall we change in spite of tears I chose the pepper-box in rather finish if I advise you hold it
 
+
+## Wikilinks load test
+
+[[wacky nanus]]

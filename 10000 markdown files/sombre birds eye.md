@@ -90,3 +90,9 @@ Down down a crimson
 Lastly she remembered how large
 : it when he sneezes He won't walk a thick wood for apples yer honour.
 
+
+## Wikilinks load test
+
+[[reachable pyrilamine]]
+[[viviparous hedge sparrow]]
+[[legato meclofenamate sodium]]

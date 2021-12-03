@@ -82,3 +82,8 @@ You've no toys to wish you
 Always lay sprawling about
 : By the shade however the two looking across his garden with large birds hurried nervous or perhaps you incessantly stand
 
+
+## Wikilinks load test
+
+[[hand-to-hand fjord]]
+[[antic republic of san marino]]

@@ -80,3 +80,7 @@ asked it can't show it they
 Twinkle twinkle twinkle and curiouser.
 : Hold up on just see Shakespeare in them bowed low timid voice the
 
+
+## Wikilinks load test
+
+[[precooled klutz]]

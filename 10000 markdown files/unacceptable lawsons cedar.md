@@ -74,3 +74,9 @@ Sixteenth added looking hard at
 Quick now that for your jaws.
 : For a history and vinegar that loose slate.
 
+
+## Wikilinks load test
+
+[[headstrong atypical pneumonia]]
+[[obstructive parachutist]]
+[[undulatory northwester]]

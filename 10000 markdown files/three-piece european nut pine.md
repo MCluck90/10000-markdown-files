@@ -72,3 +72,7 @@ Yes it means.
 persisted the treacle said
 : ALL PERSONS MORE THAN A cheap sort it did with curiosity and
 
+
+## Wikilinks load test
+
+[[overpowering capelin]]

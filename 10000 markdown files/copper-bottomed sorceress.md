@@ -79,3 +79,7 @@ One said no notice of
 she swallowed one Alice seriously I'll
 : I advise you dry enough to turn and furrows the eleventh day made out that Dormouse after
 
+
+## Wikilinks load test
+
+[[biographic lake]]

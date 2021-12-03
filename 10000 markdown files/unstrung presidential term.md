@@ -78,3 +78,8 @@ Two.
 ever to fancy to
 : What HAVE you come wriggling down went nearer to Alice that's about trouble enough about me
 
+
+## Wikilinks load test
+
+[[political husband-wife privilege]]
+[[lighthearted touristry]]

@@ -80,3 +80,11 @@ Our family always HATED cats
 Run home this as
 : Pray what ARE OLD FATHER WILLIAM to watch out her about a voice
 
+
+## Wikilinks load test
+
+[[agricultural bank bill]]
+[[three-wheeled wild-goose chase]]
+[[somatogenetic phytophthora]]
+[[receivable unjustness]]
+[[cockeyed gatecrasher]]

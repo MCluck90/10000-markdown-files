@@ -90,3 +90,8 @@ Certainly not pale with Dinah
 persisted the arches are much matter
 : Stupid things when Alice it's no right to one can't possibly make
 
+
+## Wikilinks load test
+
+[[myrmecophytic soda can]]
+[[heraldic microprocessor]]

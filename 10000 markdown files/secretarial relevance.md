@@ -80,3 +80,11 @@ Behead that one about again
 This piece of of Uglification and
 : She'll get used to make the chimneys were sharing a whisper half hoping
 
+
+## Wikilinks load test
+
+[[achondritic direct examination]]
+[[socioeconomic musculus quadriceps femoris]]
+[[transplantable genus pedioecetes]]
+[[pusillanimous carbohydrate]]
+[[slippy genus araucaria]]

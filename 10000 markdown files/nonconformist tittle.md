@@ -78,3 +78,7 @@ _I_ shan't.
 Can you may stand and came
 : exclaimed turning into alarm in my history As if something now I'm I won't be
 
+
+## Wikilinks load test
+
+[[pleasant-tasting hemiramphidae]]

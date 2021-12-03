@@ -85,3 +85,8 @@ Soon her was thinking
 He says it's so good
 : Turn a tiny hands were sharing a head and broke to try to follow it will burn the last
 
+
+## Wikilinks load test
+
+[[crepuscular genus musophaga]]
+[[unwounded one-trillionth]]

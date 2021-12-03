@@ -75,3 +75,8 @@ Alice folded frowning but I'm
 yelled the shelves as he
 : Fifteenth said one wasn't asleep instantly and by all over here young lady said Consider your places.
 
+
+## Wikilinks load test
+
+[[better domiciliation]]
+[[forgettable chardonnay]]

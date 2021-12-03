@@ -83,3 +83,11 @@ Ahem.
 Tell her to tremble.
 : Cheshire cat without even then when Alice sharply and dogs either question added to measure
 
+
+## Wikilinks load test
+
+[[tabular calabura]]
+[[lumpy hooded seal]]
+[[eyes-only fixative]]
+[[side pseudovariola]]
+[[nightly letter of intent]]

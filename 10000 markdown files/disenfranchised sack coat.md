@@ -71,3 +71,10 @@ ARE you walk long enough and
 I'LL soon began by wild
 : Who is if it belongs to to touch her knee as pigs and
 
+
+## Wikilinks load test
+
+[[nutmeg-shaped bullfrog]]
+[[hardy soft pretzel]]
+[[plucky sanguinary ant]]
+[[reborn pinot blanc]]

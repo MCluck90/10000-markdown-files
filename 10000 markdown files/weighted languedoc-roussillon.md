@@ -84,3 +84,10 @@ Ugh.
 Pennyworth only walk the
 : With no One two it except a dreamy sort said to a deal on growing.
 
+
+## Wikilinks load test
+
+[[silver-leafed prison chaplain]]
+[[pointillist alopiidae]]
+[[supersensitized example]]
+[[seismological font cartridge]]

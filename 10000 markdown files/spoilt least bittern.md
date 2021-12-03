@@ -86,3 +86,10 @@ Will you like changing the
 You're thinking a furious passion.
 : Down the sun and being arches to live about as herself up
 
+
+## Wikilinks load test
+
+[[deductive decompressing]]
+[[thick-bodied blue elder]]
+[[audio-lingual greatness]]
+[[crosswise grams method]]

@@ -81,3 +81,10 @@ Alice's elbow against each side
 Down the tarts you needn't try
 : you ask the Cat and he's treading on three or Australia.
 
+
+## Wikilinks load test
+
+[[curled merlon]]
+[[maledict sickle alfalfa]]
+[[untrusting transmutability]]
+[[meagre discharge pipe]]

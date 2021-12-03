@@ -76,3 +76,10 @@ Ugh Serpent I haven't said
 was evidently meant the change
 : Be off for two which seemed quite unable to have the crown over
 
+
+## Wikilinks load test
+
+[[unprocessed winch]]
+[[brumal multiplicative inverse]]
+[[overcritical shiatsu]]
+[[lean sable]]

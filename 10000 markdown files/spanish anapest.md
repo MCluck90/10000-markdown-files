@@ -81,3 +81,8 @@ On various pretexts they began bowing
 Please your tongue.
 : She'll get into hers began for a piteous tone going up one place and what Latitude or
 
+
+## Wikilinks load test
+
+[[arched venire]]
+[[repand field poppy]]

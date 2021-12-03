@@ -87,3 +87,11 @@ Can you may as soon
 As if one would be
 : Visit either.
 
+
+## Wikilinks load test
+
+[[motherly pomacentrus leucostictus]]
+[[yankee loranthus]]
+[[unadjusted spring heath]]
+[[snow-blind forest]]
+[[flaky may fish]]

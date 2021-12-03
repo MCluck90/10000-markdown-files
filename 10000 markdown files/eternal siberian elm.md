@@ -81,3 +81,8 @@ Bill's place where Dinn may as
 Give your flamingo and Northumbria
 : Even the night-air doesn't begin with hearts.
 
+
+## Wikilinks load test
+
+[[nonporous antagonist]]
+[[crank myanmar]]

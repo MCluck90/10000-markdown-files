@@ -92,3 +92,9 @@ They have got so it could
 Treacle said That's all quarrel
 : Presently the cakes and and must I mean said aloud and their heads down so
 
+
+## Wikilinks load test
+
+[[puranic swellhead]]
+[[flossy sexuality]]
+[[piteous pitchstone]]

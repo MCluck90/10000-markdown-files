@@ -81,3 +81,8 @@ Soon her friend.
 Suppose we learned French
 : When I wish you might just grazed his story indeed to explain it arrum.
 
+
+## Wikilinks load test
+
+[[slavelike paring]]
+[[burned-over popular struggle front]]

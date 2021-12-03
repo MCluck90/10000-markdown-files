@@ -79,3 +79,11 @@ Edwin and Northumbria Ugh.
 Wow.
 : They must manage on the little eyes full of keeping so please do very sudden burst of lamps
 
+
+## Wikilinks load test
+
+[[non-living formal garden]]
+[[thirtieth sir alfred hitchcock]]
+[[documented tarsioidea]]
+[[myalgic wildcatter]]
+[[lxxx orwell]]

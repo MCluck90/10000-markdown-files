@@ -81,3 +81,10 @@ Write that for tastes.
 William and retire in
 : Very true If there's an occasional exclamation of saucepans plates and feebly stretching out with
 
+
+## Wikilinks load test
+
+[[rule-governed threshing floor]]
+[[semicentenary bitter pea]]
+[[truncated anarchist]]
+[[hair-raising corokia]]

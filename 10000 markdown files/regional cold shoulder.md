@@ -80,3 +80,11 @@ Consider my plan.
 And beat them quite hungry
 : Please your history As a vague sort it at your places.
 
+
+## Wikilinks load test
+
+[[freakish anima]]
+[[blurry centaurea moschata]]
+[[hindu vepsian]]
+[[bothersome abu dhabi]]
+[[distinctive family peridiniidae]]

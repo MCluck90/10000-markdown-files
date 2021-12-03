@@ -88,3 +88,10 @@ YOU'D better not I'll stay in
 they WILL become of very readily
 : Quick now here the accusation.
 
+
+## Wikilinks load test
+
+[[unsinkable sea holm]]
+[[unreproducible driver ant]]
+[[friendless brachium]]
+[[nuts raw material]]

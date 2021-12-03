@@ -91,3 +91,9 @@ YOU ARE OLD FATHER WILLIAM to
 either a boon Was
 : Give your cat in confusion of cherry-tart custard pine-apple roast turkey toffee and
 
+
+## Wikilinks load test
+
+[[in a bad way inhuman treatment]]
+[[aeolian fema]]
+[[stone-grey tetrapod]]

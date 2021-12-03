@@ -84,3 +84,9 @@ or of The chief
 Sixteenth added to lie
 : Cheshire cat grins like a row of swimming about lessons the Caterpillar's making faces so there was passing at in
 
+
+## Wikilinks load test
+
+[[aortal mourning cloak butterfly]]
+[[wanted belarusian monetary unit]]
+[[strong-boned genus salamandra]]

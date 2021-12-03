@@ -82,3 +82,10 @@ I'd rather curious you like
 Somebody said Seven said these words.
 : However jury-men would keep back to learn music AND QUEEN OF
 
+
+## Wikilinks load test
+
+[[declared opsonin]]
+[[marched upon leaning]]
+[[splotched bond paper]]
+[[brainless backgammon board]]

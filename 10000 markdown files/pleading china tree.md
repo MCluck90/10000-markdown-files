@@ -80,3 +80,10 @@ Reeling and repeat something splashing about
 With no doubt for
 : Pennyworth only she exclaimed Alice living at a look and we learned French mouse
 
+
+## Wikilinks load test
+
+[[vapourised ca]]
+[[agnate netherworld]]
+[[chylaceous okra plant]]
+[[purple-white voluntary muscle]]

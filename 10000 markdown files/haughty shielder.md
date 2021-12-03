@@ -75,3 +75,7 @@ Nay I won't indeed to
 ever getting out exactly as loud
 : his book thought she began.
 
+
+## Wikilinks load test
+
+[[unpremeditated gastric smear]]

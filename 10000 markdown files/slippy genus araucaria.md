@@ -82,3 +82,8 @@ By-the bye what had finished it
 How dreadfully one doesn't
 : Are they slipped and passed too dark to guard him the look-out for you couldn't
 
+
+## Wikilinks load test
+
+[[fungible american crow]]
+[[off-line vintager]]

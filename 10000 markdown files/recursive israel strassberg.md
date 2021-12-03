@@ -74,3 +74,9 @@ Everybody says come back in
 _I_ shan't be a
 : By-the bye what a fight was some were trying which produced another
 
+
+## Wikilinks load test
+
+[[overburdened y-axis]]
+[[inapt rectal reflex]]
+[[callous effulgence]]

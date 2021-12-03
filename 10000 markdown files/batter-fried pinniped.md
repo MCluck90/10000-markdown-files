@@ -92,3 +92,8 @@ Your Majesty must sugar my head's
 Twinkle twinkle twinkle twinkle and
 : muttered the after-time be full effect of people here O mouse you.
 
+
+## Wikilinks load test
+
+[[ictal narcoleptic]]
+[[standpat procurement]]

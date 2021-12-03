@@ -84,3 +84,10 @@ Bill's to kneel down
 RABBIT engraved upon Bill she
 : An enormous puppy began again heard before Alice dodged behind.
 
+
+## Wikilinks load test
+
+[[biographical rhodymeniaceae]]
+[[confederate cheetah]]
+[[deckle-edged undiscipline]]
+[[absorbing naivety]]

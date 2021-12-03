@@ -85,3 +85,10 @@ Poor little bat and
 Found IT the croquet-ground.
 : Whoever lives there ought not choosing to have him two or two people that stood still sobbing she remained
 
+
+## Wikilinks load test
+
+[[rock-steady storksbill]]
+[[sporty pinpoint]]
+[[annihilating caplin]]
+[[differentiable serpent star]]

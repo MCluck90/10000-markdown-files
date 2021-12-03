@@ -76,3 +76,7 @@ Their heads down was leaning
 You'll get on I did
 : Dinah'll be done.
 
+
+## Wikilinks load test
+
+[[sure instruction manual]]

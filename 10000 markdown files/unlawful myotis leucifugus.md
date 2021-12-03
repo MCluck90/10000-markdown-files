@@ -74,3 +74,10 @@ Write that accounts for protection.
 Therefore I'm very neatly and
 : Off Nonsense.
 
+
+## Wikilinks load test
+
+[[needless sterility]]
+[[airlike conduct]]
+[[ordained exporter]]
+[[keyless cabin boy]]

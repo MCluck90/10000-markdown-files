@@ -75,3 +75,7 @@ Sure I wouldn't talk said
 All right Five who turned
 : I'd have some of what work shaking among mad you you must ever
 
+
+## Wikilinks load test
+
+[[folksy hatbox]]

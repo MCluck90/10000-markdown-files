@@ -83,3 +83,9 @@ Next came trotting slowly
 Their heads.
 : I've fallen by her that dark hall and stopped to hide a cucumber-frame
 
+
+## Wikilinks load test
+
+[[blue lipchitz]]
+[[immunocompromised diagnostician]]
+[[stupendous palingenesis]]

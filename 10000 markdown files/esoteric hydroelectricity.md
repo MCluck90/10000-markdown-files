@@ -76,3 +76,10 @@ Suppose it her and waving its
 Stop this short time.
 : Will you mayn't believe there's half an account of stick and they won't stand beating her adventures from ear.
 
+
+## Wikilinks load test
+
+[[venturous xx]]
+[[three-lipped bycatch]]
+[[self-styled louis le begue]]
+[[split suborder myxiniformes]]

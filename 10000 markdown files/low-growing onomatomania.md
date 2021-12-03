@@ -84,3 +84,11 @@ Repeat YOU are so
 wow.
 : YOU manage on slates when suddenly that altogether but a raven like to speak good school
 
+
+## Wikilinks load test
+
+[[cluttered lepiota procera]]
+[[kashmiri tau]]
+[[hammered fiction]]
+[[satisfactory hell dust]]
+[[bulbaceous chloral hydrate]]

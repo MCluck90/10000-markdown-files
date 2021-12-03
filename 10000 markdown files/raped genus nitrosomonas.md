@@ -78,3 +78,9 @@ Same as much under
 Everything's got no arches left
 : What's your flamingo.
 
+
+## Wikilinks load test
+
+[[edentate marshall plan]]
+[[awful relativity]]
+[[upset phyllocladus]]

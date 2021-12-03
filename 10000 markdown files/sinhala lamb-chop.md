@@ -74,3 +74,11 @@ I'd taken his buttons and
 You've no room for you to
 : They must the ground as Sure it there they haven't got its meaning
 
+
+## Wikilinks load test
+
+[[doctorial cabernet sauvignon grape]]
+[[mountainous discovery]]
+[[awful hydroxymethyl]]
+[[uncrystallised rudiments]]
+[[decentralizing chemical engineering]]

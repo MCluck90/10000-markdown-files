@@ -75,3 +75,9 @@ Which would only she fancied
 CHORUS.
 : ALICE'S RIGHT FOOT ESQ.
 
+
+## Wikilinks load test
+
+[[marvellous baste]]
+[[unclipped endogen]]
+[[spousal subfamily melolonthidae]]

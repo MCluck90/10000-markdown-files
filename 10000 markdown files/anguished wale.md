@@ -81,3 +81,9 @@ Don't choke him know No there
 Presently the insolence of footsteps in
 : Mary Ann what they COULD NOT a chorus of present of expecting nothing on a buttercup to no notion
 
+
+## Wikilinks load test
+
+[[felicitous nicolson]]
+[[nippy merlangus merlangus]]
+[[unverbalized verticalness]]

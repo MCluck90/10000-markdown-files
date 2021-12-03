@@ -87,3 +87,8 @@ Is that curled round face
 Some of putting down
 : Our family always get any.
 
+
+## Wikilinks load test
+
+[[untrimmed family casuaridae]]
+[[landlubberly penicillin f]]

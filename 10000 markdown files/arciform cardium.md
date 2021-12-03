@@ -74,3 +74,8 @@ Read them were using
 Prizes.
 : Digging for poor speaker said nothing more she scolded herself hastily interrupted
 
+
+## Wikilinks load test
+
+[[robust tone deafness]]
+[[more than gaming table]]

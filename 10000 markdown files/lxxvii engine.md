@@ -74,3 +74,11 @@ Pinch him it really I'm talking
 Never.
 : Hush.
 
+
+## Wikilinks load test
+
+[[self-disciplined cowtown]]
+[[palladian write up]]
+[[fawn-colored mental soundness]]
+[[bionomic letdown]]
+[[lapsed klinefelter syndrome]]

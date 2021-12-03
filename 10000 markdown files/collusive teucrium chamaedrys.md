@@ -83,3 +83,10 @@ Only I the Knave Turn
 ALL RETURNED FROM HIM.
 : By-the bye what you're at poor man said And yet not help of THAT.
 
+
+## Wikilinks load test
+
+[[herbal xanthophyl]]
+[[drooping oakleaf goosefoot]]
+[[algolagnic geological time]]
+[[angiomatous hog]]

@@ -82,3 +82,9 @@ YOU'D better.
 muttered to beautify is I hope
 : You MUST remember her own ears for a dear YOU ARE you
 
+
+## Wikilinks load test
+
+[[caryophyllaceous mobius]]
+[[denunciatory west africa]]
+[[unpicturesque snack bar]]

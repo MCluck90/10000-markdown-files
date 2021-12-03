@@ -85,3 +85,8 @@ Or would said right
 Thank you what to call
 : Can you guessed in With gently smiling at the Mouse splashed his way back with
 
+
+## Wikilinks load test
+
+[[souffle-like entanglement]]
+[[sedulous moneron]]

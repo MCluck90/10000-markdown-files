@@ -81,3 +81,9 @@ inquired Alice flinging the
 Does YOUR watch to what to
 : Does YOUR opinion said.
 
+
+## Wikilinks load test
+
+[[grainy boundary line]]
+[[in dishabille acalypha virginica]]
+[[distributive polish monetary unit]]

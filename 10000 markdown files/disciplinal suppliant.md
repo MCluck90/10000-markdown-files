@@ -85,3 +85,11 @@ I'M not easy to bring tears
 First because some winter
 : Begin at least if not stoop.
 
+
+## Wikilinks load test
+
+[[negligent small cell carcinoma]]
+[[antifungal ossicle]]
+[[mediocre micruroides]]
+[[uncleanly double check]]
+[[haunting blt]]

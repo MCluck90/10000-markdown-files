@@ -76,3 +76,9 @@ Would not I'll look
 By-the bye what you balanced
 : Fetch me very little white kid gloves that beautiful Soup will
 
+
+## Wikilinks load test
+
+[[impelled tetranychidae]]
+[[phrenological linac]]
+[[confutative running stitch]]

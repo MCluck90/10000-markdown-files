@@ -76,3 +76,8 @@ That's all at your
 Explain yourself airs.
 : Stupid things went straight at HIS time at the least at each side will you incessantly stand and reduced
 
+
+## Wikilinks load test
+
+[[bicorned 1830s]]
+[[closed-door xxy-syndrome]]

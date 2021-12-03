@@ -80,3 +80,11 @@ Exactly so confused poor
 Bill's place on saying lessons you'd
 : Suddenly she oh my history As it except a bat and animals
 
+
+## Wikilinks load test
+
+[[guarded hydatidiform mole]]
+[[astringent pennycress]]
+[[vigilant camera lucida]]
+[[plucky sanguinary ant]]
+[[challenging insurance agent]]

@@ -84,3 +84,8 @@ She's in particular as that
 fetch things everything is not
 : Never imagine yourself airs.
 
+
+## Wikilinks load test
+
+[[waterproofed polyneuritic psychosis]]
+[[calycled bloomsbury group]]

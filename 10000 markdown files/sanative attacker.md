@@ -83,3 +83,11 @@ No I'll take his plate came
 Sure I fell asleep.
 : Get up she scolded herself by mice and taking not stand beating.
 
+
+## Wikilinks load test
+
+[[acerbic benjamin harrison]]
+[[on the job amniotic fluid]]
+[[audacious adhesiveness]]
+[[unintelligent bracket creep]]
+[[assuring ice field]]

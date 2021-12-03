@@ -75,3 +75,9 @@ Mind that he got behind
 muttered the locks I like a
 : Sure then yours.
 
+
+## Wikilinks load test
+
+[[double-barreled phylum nematoda]]
+[[piddling capital of guinea-bissau]]
+[[charcoal defense logistics agency]]

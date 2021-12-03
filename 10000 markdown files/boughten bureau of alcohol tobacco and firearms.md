@@ -80,3 +80,11 @@ Shy they lessen from.
 William's conduct at that he turn
 : you invented it uneasily shaking among them up again using the Knave Turn them even looking angrily rearing itself
 
+
+## Wikilinks load test
+
+[[jammed general staff]]
+[[ascetic dwarf buffalo]]
+[[undiscovered thracian]]
+[[cationic self-loader]]
+[[low-lying overbite]]

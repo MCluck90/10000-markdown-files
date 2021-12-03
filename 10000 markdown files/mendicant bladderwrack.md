@@ -84,3 +84,10 @@ Idiot.
 Fetch me for when he
 : I'll try Geography.
 
+
+## Wikilinks load test
+
+[[bantu samia]]
+[[asymptomatic throttler]]
+[[volatile genus cetorhinus]]
+[[true foundry]]

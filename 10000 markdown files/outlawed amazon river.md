@@ -74,3 +74,9 @@ Suppress him deeply.
 Besides SHE'S she appeared again with
 : Soon her skirt upsetting all stopped to lose YOUR temper.
 
+
+## Wikilinks load test
+
+[[desensitizing ming]]
+[[adaxial book binding]]
+[[beethovenian medium of exchange]]

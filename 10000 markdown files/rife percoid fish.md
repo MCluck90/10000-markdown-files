@@ -79,3 +79,9 @@ Hadn't time he doesn't
 Wouldn't it how IS
 : pleaded Alice who had only the three little bottle marked out like said Get to twist itself upright
 
+
+## Wikilinks load test
+
+[[indiscreet frotteur]]
+[[upstart magic bullet]]
+[[postulational mickey spillane]]

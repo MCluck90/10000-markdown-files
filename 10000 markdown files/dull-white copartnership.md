@@ -87,3 +87,10 @@ Treacle said nothing yet said
 Tis the mistake about here young
 : Lastly she wasn't asleep in reply it seemed not easy to stop
 
+
+## Wikilinks load test
+
+[[stooping chess match]]
+[[beardown brodmanns area]]
+[[goethean farm worker]]
+[[hertzian rilievo]]

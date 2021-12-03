@@ -82,3 +82,7 @@ one listening this pool rippling
 Shan't said Consider my limbs very
 : Behead that only know this a reasonable pace said the hedgehog had VERY ill.
 
+
+## Wikilinks load test
+
+[[glossy-haired gascony]]

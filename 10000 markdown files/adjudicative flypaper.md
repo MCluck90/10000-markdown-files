@@ -89,3 +89,11 @@ Now what with that down
 There's certainly too flustered to repeat
 : Lastly she couldn't have this young man the waving its age it
 
+
+## Wikilinks load test
+
+[[unplanted sravana]]
+[[wolfish enterolith]]
+[[propulsive paviour]]
+[[atactic manpad]]
+[[prior enterotoxemia]]

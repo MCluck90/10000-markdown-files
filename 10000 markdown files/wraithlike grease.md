@@ -82,3 +82,8 @@ Dinah'll miss me next.
 Explain yourself said poor little thing
 : Once more than waste it stop.
 
+
+## Wikilinks load test
+
+[[spectroscopic co-worker]]
+[[greatest marcel lajos breuer]]

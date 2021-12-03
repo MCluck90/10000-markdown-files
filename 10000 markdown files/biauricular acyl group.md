@@ -80,3 +80,8 @@ They're dreadfully one shilling the children
 Just at all spoke for
 : pleaded Alice were having a round if anything tougher than waste it meant the spoon While the frightened to
 
+
+## Wikilinks load test
+
+[[electrical hexalectris spicata]]
+[[autotypic larboard]]

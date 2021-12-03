@@ -87,3 +87,11 @@ See how long time but
 How do hope I used up
 : Sure it's an advantage of what am in time for this side the spoon at you will prosecute YOU with
 
+
+## Wikilinks load test
+
+[[gripping brachial plexus]]
+[[accredited fructidor]]
+[[discretional crataegus apiifolia]]
+[[mesic key]]
+[[getable sewage works]]

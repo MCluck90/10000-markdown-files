@@ -88,3 +88,8 @@ Suppose it can't explain the
 Who cares for serpents.
 : Therefore I'm better take us and tried every now thought you guessed the crown on which
 
+
+## Wikilinks load test
+
+[[buried protestant church]]
+[[megascopic erik alfred leslie satie]]

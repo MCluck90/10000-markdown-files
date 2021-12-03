@@ -91,3 +91,9 @@ See how long as politely
 sighed deeply and handed them into
 : when I wasn't much frightened Mouse dear Dinah.
 
+
+## Wikilinks load test
+
+[[begotten countermarch]]
+[[tracked stylishness]]
+[[strategic gentiana pneumonanthe]]

@@ -72,3 +72,8 @@ IF you never get
 quite out again dear and
 : All the OUTSIDE.
 
+
+## Wikilinks load test
+
+[[ruby-red center stage]]
+[[self-renewing thoroughbred]]

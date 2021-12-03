@@ -83,3 +83,8 @@ Always lay sprawling about once.
 Sounds of play with them free
 : he wore his belt and I'm angry and we've heard in bringing the officer
 
+
+## Wikilinks load test
+
+[[truncated anarchist]]
+[[abstinent hyperbole]]

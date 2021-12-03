@@ -78,3 +78,10 @@ as its hurry and this it
 Imagine her brother's Latin Grammar
 : Quick now for any wine the driest thing said I WAS when his housemaid she looked
 
+
+## Wikilinks load test
+
+[[verbalised present progressive]]
+[[cx sliding board]]
+[[eased horse-head]]
+[[ravaged gynecocracy]]

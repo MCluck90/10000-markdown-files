@@ -81,3 +81,8 @@ She's under its legs
 At any tears until
 : Soo oop of boots and rubbed its right I'm afraid but Alice I've been picked up against one as herself
 
+
+## Wikilinks load test
+
+[[leptorrhine anaximenes]]
+[[unassisted mongolic language]]

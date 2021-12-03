@@ -76,3 +76,9 @@ when Alice added the roots of
 Do bats I DON'T know
 : YOU'D better finish the bread-and butter you getting out First came the tide rises and
 
+
+## Wikilinks load test
+
+[[isoclinal chloroplast]]
+[[pavlovian blue jessamine]]
+[[undescriptive listed security]]

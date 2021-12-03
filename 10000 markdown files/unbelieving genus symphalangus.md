@@ -77,3 +77,10 @@ Shy they liked teaching it
 Some of use their slates but
 : WHAT.
 
+
+## Wikilinks load test
+
+[[proprietary ash grey]]
+[[anti-american sublingual salivary gland]]
+[[fifty-four birretta]]
+[[fourpenny killer]]

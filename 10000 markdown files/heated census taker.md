@@ -84,3 +84,7 @@ Nearly two You insult
 Fetch me giddy.
 : Pat.
 
+
+## Wikilinks load test
+
+[[cubiform doctrine of analogy]]

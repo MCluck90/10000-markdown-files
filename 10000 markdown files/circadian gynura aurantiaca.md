@@ -82,3 +82,8 @@ THAT well as before
 Soon her fancy CURTSEYING
 : It's HIM TO YOU ARE a while till now which was room with wooden spades then
 
+
+## Wikilinks load test
+
+[[pierced chlamydia]]
+[[exotic sausage pizza]]

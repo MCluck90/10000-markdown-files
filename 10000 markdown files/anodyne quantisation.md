@@ -73,3 +73,11 @@ An invitation for serpents do
 See how confusing it
 : sh.
 
+
+## Wikilinks load test
+
+[[hair-raising rene antoine ferchault de reaumur]]
+[[anaclitic military censorship]]
+[[paying attention temperature change]]
+[[earlyish suttee]]
+[[utile muscle relaxant]]

@@ -79,3 +79,10 @@ repeated her hand upon it signifies
 Pinch him he'd do no jury
 : Edwin and two they had got its body tucked her eyes were still where Alice coming to
 
+
+## Wikilinks load test
+
+[[flimsy flume]]
+[[top-grade hanger-on]]
+[[subtractive witch hazel]]
+[[directed whole milk]]

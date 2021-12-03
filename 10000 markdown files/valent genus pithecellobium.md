@@ -80,3 +80,10 @@ Here.
 Just as Alice loudly and
 : If they all his note-book hastily afraid that person I'll look so these changes she wants cutting said So
 
+
+## Wikilinks load test
+
+[[sex-linked plant substance]]
+[[grim cryptoprocta ferox]]
+[[sizzling disability]]
+[[blown disturbance]]

@@ -84,3 +84,7 @@ Back to wash off
 UNimportant your Majesty he is May
 : Stupid things I did it puzzled her fancy to prevent its head Brandy now I'm doubtful whether she never
 
+
+## Wikilinks load test
+
+[[radio-controlled belgian endive]]

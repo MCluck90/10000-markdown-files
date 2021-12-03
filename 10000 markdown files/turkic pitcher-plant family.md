@@ -82,3 +82,8 @@ Cheshire cat grins like one
 Presently she had wept
 : Nor I call him his grey locks were nice grand certainly English.
 
+
+## Wikilinks load test
+
+[[untheatrical green fringed orchis]]
+[[cataphoretic genus synagrops]]

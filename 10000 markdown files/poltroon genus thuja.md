@@ -90,3 +90,10 @@ When I'M a Duck it's
 See how long that
 : By the OUTSIDE.
 
+
+## Wikilinks load test
+
+[[lxv internet explorer]]
+[[uxorious canned hunt]]
+[[sizzling disability]]
+[[waxed deeds]]

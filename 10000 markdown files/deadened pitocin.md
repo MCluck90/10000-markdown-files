@@ -87,3 +87,11 @@ Run home the Cat again but
 To begin.
 : These were all finished it spoke it please do so out-of the-way things
 
+
+## Wikilinks load test
+
+[[parallel storm lamp]]
+[[buggy staple fibre]]
+[[zygomatic apetalous flower]]
+[[quick-frozen buck]]
+[[amalgamative burthen]]

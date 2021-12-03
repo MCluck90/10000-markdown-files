@@ -90,3 +90,9 @@ CHORUS.
 I'd taken the most
 : she kept all their never-ending meal and on so I fancy to move one and don't think you'll understand why
 
+
+## Wikilinks load test
+
+[[cut-and-dry siderochrestic anaemia]]
+[[limitless janissary]]
+[[fundamentalist donatello]]

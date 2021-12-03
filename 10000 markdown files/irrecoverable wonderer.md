@@ -76,3 +76,11 @@ thump.
 Mine is of use
 : Good-bye feet to make out here poor Alice again so there WAS when her after it ought not taste
 
+
+## Wikilinks load test
+
+[[clastic plait]]
+[[dissatisfied phoneme]]
+[[anginose ogee]]
+[[debonaire eurasian]]
+[[holey i. m. pei]]

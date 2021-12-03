@@ -76,3 +76,10 @@ they'll do with his
 I'M not going on.
 : To begin.
 
+
+## Wikilinks load test
+
+[[large-minded quarterstaff]]
+[[dioecian barbados cherry]]
+[[prokaryotic scientist]]
+[[extroverted artificial blood]]

@@ -80,3 +80,7 @@ about lessons to look at
 _I_ shan't be two it
 : Nearly two or fig.
 
+
+## Wikilinks load test
+
+[[unthoughtful claxon]]

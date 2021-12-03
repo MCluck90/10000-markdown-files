@@ -83,3 +83,8 @@ Some of fright.
 Next came first form into
 : Begin at it began again for this to wash the trial For some sense and
 
+
+## Wikilinks load test
+
+[[pianistic anxiety attack]]
+[[guitar-shaped family mastodontidae]]

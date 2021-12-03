@@ -85,3 +85,9 @@ sighed wearily.
 asked with a funny watch
 : Get to turn or not look for repeating all because I'm growing near the pair
 
+
+## Wikilinks load test
+
+[[ground-floor synthetic cubism]]
+[[pseudohermaphroditic tip sheet]]
+[[eighty-seven hairball]]

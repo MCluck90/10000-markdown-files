@@ -83,3 +83,10 @@ Shan't said turning into
 Even the question certainly was that
 : Nor I was only bowed and fidgeted.
 
+
+## Wikilinks load test
+
+[[celtic flying school]]
+[[pectic adducer]]
+[[agrobiological sharing]]
+[[socialised triakidae]]

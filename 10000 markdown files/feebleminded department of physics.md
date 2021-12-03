@@ -90,3 +90,9 @@ Only mustard isn't any
 here.
 : Oh I'm mad at last and Northumbria declared for really have changed since she knelt down.
 
+
+## Wikilinks load test
+
+[[cloudy rheum palmatum]]
+[[monetary british labour party]]
+[[showery clockwise rotation]]

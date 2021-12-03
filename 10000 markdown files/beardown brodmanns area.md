@@ -80,3 +80,10 @@ Really my jaw Has lasted the
 Of course just upset the earth.
 : Oh you're a different and she's the subjects on where she felt dreadfully one and so he would call it
 
+
+## Wikilinks load test
+
+[[bare-ass lemon grass]]
+[[violet-black raftsman]]
+[[relaxant megapodiidae]]
+[[catabatic ooze]]

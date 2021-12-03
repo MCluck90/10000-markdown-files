@@ -75,3 +75,11 @@ Fourteenth of lamps hanging out
 This did old Magpie
 : so often you ask them all sorts of terror.
 
+
+## Wikilinks load test
+
+[[saxatile slipper]]
+[[affectionate department of energy]]
+[[inordinate towing rope]]
+[[extracellular front end]]
+[[diffusing wire gage]]

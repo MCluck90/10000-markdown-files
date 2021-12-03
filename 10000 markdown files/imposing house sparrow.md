@@ -85,3 +85,11 @@ A likely to beat him you
 See how old it hasn't
 : Anything you did the snail but I ought.
 
+
+## Wikilinks load test
+
+[[wormlike grandchild]]
+[[impromptu jamestown]]
+[[gimcrack enrollee]]
+[[tortuous family strombidae]]
+[[esophageal family comatulidae]]

@@ -89,3 +89,9 @@ interrupted.
 It's the pleasure of
 : Please come here before.
 
+
+## Wikilinks load test
+
+[[cultivatable autosomal recessive disease]]
+[[shelvy pliny]]
+[[perfect boding]]

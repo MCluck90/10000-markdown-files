@@ -76,3 +76,9 @@ Pray don't seem to guard him
 Stop this a funny watch
 : persisted.
 
+
+## Wikilinks load test
+
+[[inducive unrespectability]]
+[[desk-bound christs resurrection]]
+[[surplus tsatske]]

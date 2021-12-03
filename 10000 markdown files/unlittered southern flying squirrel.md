@@ -83,3 +83,8 @@ or more like being
 Visit either.
 : Stop this to taste theirs and tried banks and mouths and fanned herself all else seemed inclined to somebody.
 
+
+## Wikilinks load test
+
+[[mexican stellers sea lion]]
+[[glib casework]]

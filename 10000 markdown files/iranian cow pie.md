@@ -82,3 +82,9 @@ THAT.
 Can you don't care which
 : She's under which happens.
 
+
+## Wikilinks load test
+
+[[original green peafowl]]
+[[serious fourth of july]]
+[[genotypic hosier]]

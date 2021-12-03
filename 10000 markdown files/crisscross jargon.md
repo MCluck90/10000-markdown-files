@@ -88,3 +88,11 @@ Hand it as it's
 Is that for days
 : You'll see anything you foolish Alice for.
 
+
+## Wikilinks load test
+
+[[uniform straddle]]
+[[sober eruca vesicaria sativa]]
+[[indurate bonnet shark]]
+[[lead-free som]]
+[[botryoid stadium]]

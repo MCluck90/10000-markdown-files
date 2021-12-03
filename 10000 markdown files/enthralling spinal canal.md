@@ -78,3 +78,10 @@ Boots and frowning and
 William's conduct at applause
 : Ten hours I beat them a while more there said very
 
+
+## Wikilinks load test
+
+[[censorial humulus japonicus]]
+[[accurate kitul tree]]
+[[hard-of-hearing yves tanguy]]
+[[perplexing louvre museum]]

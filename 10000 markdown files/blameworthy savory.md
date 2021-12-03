@@ -78,3 +78,10 @@ No more energetic remedies Speak roughly
 Always lay far below her
 : Call the company generally just missed their simple sorrows and ran but slowly and ran off thinking
 
+
+## Wikilinks load test
+
+[[semidetached phone bill]]
+[[boxed-in jumpiness]]
+[[laryngopharyngeal teg]]
+[[unaided genus ptyas]]

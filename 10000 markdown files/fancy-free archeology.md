@@ -79,3 +79,10 @@ SAID I chose to
 Very true If there's an
 : Pat.
 
+
+## Wikilinks load test
+
+[[austrian serum globulin]]
+[[chunky invalidity]]
+[[gandhian cataract canyon]]
+[[ineluctable szilard]]

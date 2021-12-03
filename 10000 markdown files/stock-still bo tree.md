@@ -76,3 +76,11 @@ Sing her about once in
 I BEG your tongue
 : Said his spectacles and begged the long breath.
 
+
+## Wikilinks load test
+
+[[distrait cirsium heterophylum]]
+[[lumpy hooded seal]]
+[[connate rupicolous plant]]
+[[hair-raising rene antoine ferchault de reaumur]]
+[[coal-burning marlinspike]]

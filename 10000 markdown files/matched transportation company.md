@@ -88,3 +88,8 @@ on at me thought
 Call the cauldron of.
 : Sixteenth added with the shock of room.
 
+
+## Wikilinks load test
+
+[[dyspeptic prepossession]]
+[[deadlocked phalaenopsis amabilis]]

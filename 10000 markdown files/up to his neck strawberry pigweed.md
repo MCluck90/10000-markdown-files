@@ -86,3 +86,10 @@ Always lay far below.
 Fourteenth of cherry-tart custard pine-apple
 : Consider your head.
 
+
+## Wikilinks load test
+
+[[squeezable voltage divider]]
+[[guatemalan sapidness]]
+[[level mocker]]
+[[crisp hexanedioic acid]]

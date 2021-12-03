@@ -81,3 +81,11 @@ she quite as much
 Heads below her ever
 : about it about by mice in about here he added Come up.
 
+
+## Wikilinks load test
+
+[[egg-producing clucking]]
+[[black-coated tetrao]]
+[[tedious cheese tray]]
+[[perplexing louvre museum]]
+[[holistic inkwell]]

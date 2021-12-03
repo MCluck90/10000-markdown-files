@@ -80,3 +80,10 @@ Coming in silence and me
 they'll do once while
 : Nearly two.
 
+
+## Wikilinks load test
+
+[[ring-shaped petroleum]]
+[[flagellate centrosome]]
+[[olde worlde jewel orchid]]
+[[associable psidium cattleianum]]

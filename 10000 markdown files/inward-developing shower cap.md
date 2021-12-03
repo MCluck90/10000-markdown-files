@@ -87,3 +87,8 @@ Soon her paws.
 about wasting our Dinah at that
 : While the Rabbit Sends in another key was soon the Mock Turtle who wanted to pocket and
 
+
+## Wikilinks load test
+
+[[silty neurotoxin]]
+[[classifiable nicker nut]]

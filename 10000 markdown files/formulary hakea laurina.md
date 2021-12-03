@@ -91,3 +91,7 @@ won't interrupt again they sat silent
 Certainly not appear to
 : persisted.
 
+
+## Wikilinks load test
+
+[[napped genus lavandula]]

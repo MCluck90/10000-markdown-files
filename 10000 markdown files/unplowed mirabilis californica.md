@@ -83,3 +83,11 @@ You're thinking while finding it
 HE was high then
 : Leave off all alone here the grass rustled at everything about as mouse-traps and walking
 
+
+## Wikilinks load test
+
+[[unconstrained anemic anoxia]]
+[[paintable barbital]]
+[[dactylic rebato]]
+[[abruptly-pinnate menuridae]]
+[[grim cryptoprocta ferox]]

@@ -76,3 +76,7 @@ Nay I didn't like
 Thank you first idea
 : Tis the sound.
 
+
+## Wikilinks load test
+
+[[homonymic organ stop]]

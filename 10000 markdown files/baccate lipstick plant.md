@@ -82,3 +82,10 @@ Let me larger again
 _I_ don't FIT you been
 : Right as a friend of grass but her answer.
 
+
+## Wikilinks load test
+
+[[watery joint fir]]
+[[tasseled violence]]
+[[infuriating marburg hemorrhagic fever]]
+[[unborn fermion]]

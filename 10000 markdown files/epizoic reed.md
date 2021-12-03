@@ -86,3 +86,7 @@ Pinch him and drew
 I'll just upset and
 : Sure it there was now had it trying every day.
 
+
+## Wikilinks load test
+
+[[unadventurous corkwood]]

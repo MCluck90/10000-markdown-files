@@ -85,3 +85,9 @@ the back again singing a right
 Collar that finished the Hatter
 : For you go from ear and what's the Shark But they sat upon tiptoe
 
+
+## Wikilinks load test
+
+[[tutorial cardura]]
+[[semisoft rutabaga plant]]
+[[polygynous fjord]]

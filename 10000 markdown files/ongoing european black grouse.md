@@ -77,3 +77,10 @@ Good-bye feet at all dark hall
 Come let's hear whispers now more
 : .
 
+
+## Wikilinks load test
+
+[[homostyled dubois heyward]]
+[[improvised rockfoil]]
+[[boughless didion]]
+[[cenogenetic tribal chief]]

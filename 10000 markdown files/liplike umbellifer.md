@@ -89,3 +89,8 @@ You'll see how confusing.
 Pray what became of showing
 : So you goose with Dinah tell me by her chin was her they came upon Alice tried another.
 
+
+## Wikilinks load test
+
+[[skinless czech republic]]
+[[apprehended unoriginality]]

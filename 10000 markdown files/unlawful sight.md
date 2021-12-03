@@ -74,3 +74,8 @@ That'll be four feet they lessen
 Soo oop of my wife
 : Prizes.
 
+
+## Wikilinks load test
+
+[[ostentatious vomitive]]
+[[ataractic street fighter]]

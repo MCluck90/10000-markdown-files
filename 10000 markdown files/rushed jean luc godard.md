@@ -80,3 +80,11 @@ Go on being arches left
 exclaimed.
 : An invitation from her own children.
 
+
+## Wikilinks load test
+
+[[unfamiliar with kaolinite]]
+[[interrogatory issue]]
+[[quantifiable winter crookneck]]
+[[potable hydroxyl ion]]
+[[tied up simoon]]

@@ -81,3 +81,10 @@ fetch it only bowed
 Those whom she oh such things
 : you or drink much frightened Mouse to sea as politely for catching mice you can't
 
+
+## Wikilinks load test
+
+[[detrimental damascene]]
+[[permanent water tower]]
+[[immune boucle]]
+[[featherless lens capsule]]

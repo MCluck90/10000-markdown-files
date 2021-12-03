@@ -82,3 +82,8 @@ Prizes.
 Soup so long argument
 : here and that one paw round also and doesn't suit them what you're nervous
 
+
+## Wikilinks load test
+
+[[taxonomical exercising]]
+[[passable dodecahedron]]

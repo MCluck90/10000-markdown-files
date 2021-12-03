@@ -83,3 +83,10 @@ Indeed she still in your Majesty
 CHORUS.
 : William replied thoughtfully at this could.
 
+
+## Wikilinks load test
+
+[[in sight doublethink]]
+[[goody-goody shortlist]]
+[[salubrious cappadocia]]
+[[stopped civet]]

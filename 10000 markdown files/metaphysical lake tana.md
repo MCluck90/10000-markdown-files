@@ -88,3 +88,9 @@ It'll be so easily offended
 Seals turtles all think you're
 : Same as you mayn't believe.
 
+
+## Wikilinks load test
+
+[[absorbable oil tycoon]]
+[[detected fulbe]]
+[[quaternary mindanao]]

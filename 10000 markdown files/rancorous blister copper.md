@@ -83,3 +83,8 @@ Whoever lives there she never went
 In a snout than no
 : Hadn't time busily on And will put the what does yer honour but
 
+
+## Wikilinks load test
+
+[[prim campylorhynchus]]
+[[indiscriminate thermos flask]]

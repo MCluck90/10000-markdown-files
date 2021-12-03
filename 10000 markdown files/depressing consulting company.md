@@ -83,3 +83,9 @@ Have you want to
 Take care where Alice besides
 : CHORUS.
 
+
+## Wikilinks load test
+
+[[flat-topped offence]]
+[[brownish-green family mantispidae]]
+[[rattlepated pillock]]

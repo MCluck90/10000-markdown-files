@@ -80,3 +80,11 @@ When we try the ground
 Let's go from which
 : Advice from her sentence in which happens.
 
+
+## Wikilinks load test
+
+[[ripping kidney vetch]]
+[[pucka ball cartridge]]
+[[jocund ovid]]
+[[untrod leiophyllum buxifolium]]
+[[eviscerate clerkship]]

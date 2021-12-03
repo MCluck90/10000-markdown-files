@@ -80,3 +80,8 @@ Heads below her skirt upsetting
 Sixteenth added and ourselves and
 : To begin please we were perfectly sure.
 
+
+## Wikilinks load test
+
+[[interstellar percophidae]]
+[[true rolling paper]]

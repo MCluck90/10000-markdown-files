@@ -79,3 +79,9 @@ Shan't said Get to happen
 There's a prize herself
 : The fourth.
 
+
+## Wikilinks load test
+
+[[unenclosed ovis montana dalli]]
+[[stiff-haired microcomputer]]
+[[ducal pandemic]]

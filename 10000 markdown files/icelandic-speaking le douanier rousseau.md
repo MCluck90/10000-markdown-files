@@ -78,3 +78,10 @@ Stop this time for shutting people
 Prizes.
 : Pray don't speak.
 
+
+## Wikilinks load test
+
+[[swollen-headed insightfulness]]
+[[crocked counterclaim]]
+[[most quota]]
+[[asexual giant squid]]

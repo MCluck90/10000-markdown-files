@@ -83,3 +83,10 @@ they made another dig of
 Nearly two it suddenly
 : Their heads.
 
+
+## Wikilinks load test
+
+[[endless insecureness]]
+[[trinidadian sigmodon hispidus]]
+[[louche river horse]]
+[[unmethodical laminated glass]]

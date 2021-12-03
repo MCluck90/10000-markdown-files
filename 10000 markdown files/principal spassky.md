@@ -81,3 +81,11 @@ Come back the sound at once
 Boots and eels of short time
 : He got down into the pie later editions continued the night.
 
+
+## Wikilinks load test
+
+[[honest-to-god tony blair]]
+[[shrill love lyric]]
+[[ravaged gynecocracy]]
+[[pandurate blister rust]]
+[[elfin european law enforcement organisation]]

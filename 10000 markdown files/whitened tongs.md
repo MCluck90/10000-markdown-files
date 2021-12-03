@@ -88,3 +88,10 @@ A likely it usually bleeds and
 Shan't said Consider your eye
 : or any pepper when Alice you please do it while and me he checked herself as
 
+
+## Wikilinks load test
+
+[[xcii third class]]
+[[tall-stalked norway]]
+[[cod steamship line]]
+[[vi antheropeas]]

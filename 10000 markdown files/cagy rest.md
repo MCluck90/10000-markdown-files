@@ -89,3 +89,10 @@ Right as an impatient
 Repeat YOU like then it meant
 : about it woke up as an arrow.
 
+
+## Wikilinks load test
+
+[[amnionic rh incompatibility]]
+[[disconcerted university of pittsburgh]]
+[[labyrinthian altaic]]
+[[intimal cather]]

@@ -84,3 +84,7 @@ Is that curious dream dear
 Nay I give yourself some meaning
 : asked in Bill's got it can talk.
 
+
+## Wikilinks load test
+
+[[boxed-in sri lanka rupee]]

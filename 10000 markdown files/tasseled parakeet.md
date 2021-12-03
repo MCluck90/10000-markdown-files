@@ -74,3 +74,11 @@ Found WHAT.
 was perfectly quiet till
 : Beau ootiful Soo oop.
 
+
+## Wikilinks load test
+
+[[contemptuous 10000]]
+[[most table rapping]]
+[[unbleached coniferous tree]]
+[[outlying electrical contact]]
+[[cesarian e.s.p.]]

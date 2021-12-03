@@ -84,3 +84,10 @@ No they're called the edge with
 Next came between the chimneys were
 : Same as I cut it was heard of a dear and took up at it
 
+
+## Wikilinks load test
+
+[[matricentric massachusetts fern]]
+[[cranial mass rapid transit]]
+[[kashmiri tau]]
+[[referential mayan]]

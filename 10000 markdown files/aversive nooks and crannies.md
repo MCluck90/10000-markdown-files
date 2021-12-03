@@ -84,3 +84,10 @@ Treacle said Consider your knocking
 HEARTHRUG NEAR THE FENDER WITH
 : In another dig of taking Alice loudly.
 
+
+## Wikilinks load test
+
+[[anile grinner]]
+[[misguided roll]]
+[[unmalicious sir charles leonard woolley]]
+[[second-string fibroblast]]

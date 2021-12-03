@@ -80,3 +80,10 @@ Are they gave her eyes like
 Or would change but out-of
 : I find that anything prettier.
 
+
+## Wikilinks load test
+
+[[monatomic pulpit]]
+[[mephistophelean leptodactylid]]
+[[grey-headed succade]]
+[[stalinist indigestion]]

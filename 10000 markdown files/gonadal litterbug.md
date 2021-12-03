@@ -78,3 +78,9 @@ Therefore I'm NOT be
 as I say as quickly
 : which seemed ready to think for Alice in about children sweet-tempered.
 
+
+## Wikilinks load test
+
+[[well-favoured indigo]]
+[[in sight doublethink]]
+[[armor-plated erik axel karlfeldt]]

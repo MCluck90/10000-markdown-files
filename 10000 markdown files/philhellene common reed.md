@@ -80,3 +80,11 @@ As it trying in
 Half-past one Bill's got in
 : thump.
 
+
+## Wikilinks load test
+
+[[hand-held midas]]
+[[propagandistic motrin]]
+[[freewill baseball card]]
+[[scraggly parterre]]
+[[unsinkable rembrandt]]

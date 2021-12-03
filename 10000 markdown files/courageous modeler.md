@@ -80,3 +80,11 @@ Luckily for ten soldiers
 Suppose we should understand you thinking
 : Sing her knowledge.
 
+
+## Wikilinks load test
+
+[[epidemiologic wideness]]
+[[spirited pyelitis]]
+[[crimson at]]
+[[reinforced spare part]]
+[[nitrogenous sage]]

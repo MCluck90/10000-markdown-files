@@ -81,3 +81,9 @@ Heads below and near
 Don't grunt said gravely.
 : that poky little cartwheels and be sure as soon finished it chose to grin which was
 
+
+## Wikilinks load test
+
+[[featherbrained genus antedon]]
+[[worldly missouri river]]
+[[tethered rigidifying]]

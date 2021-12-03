@@ -87,3 +87,11 @@ sighed wearily.
 Just about.
 : but she thought the pictures hung upon them and rabbits.
 
+
+## Wikilinks load test
+
+[[nauseous elf]]
+[[calycular prairie trillium]]
+[[unfulfilled battle of bunker hill]]
+[[un-get-at-able tin opener]]
+[[undescriptive listed security]]

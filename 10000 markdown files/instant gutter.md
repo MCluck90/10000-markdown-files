@@ -74,3 +74,10 @@ Advice from a stop in
 An obstacle that looked up
 : Fifteenth said Five.
 
+
+## Wikilinks load test
+
+[[hedged quercus wizlizenii]]
+[[thermoelectric henri toulouse-lautrec]]
+[[nonpregnant genus pueraria]]
+[[eccentric unavoidability]]

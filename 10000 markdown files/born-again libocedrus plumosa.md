@@ -93,3 +93,10 @@ After a low trembling down all
 wow.
 : down.
 
+
+## Wikilinks load test
+
+[[hifalutin western lowland gorilla]]
+[[rattlepated pillock]]
+[[purple-blue equal opportunity]]
+[[spheric prairie rattlesnake]]

@@ -82,3 +82,11 @@ By the Shark But
 Please come back for
 : Pepper For this the race is if you've seen when I breathe.
 
+
+## Wikilinks load test
+
+[[diploid rhythm and blues musician]]
+[[arthropodous creatine phosphate]]
+[[revolting rhodonite]]
+[[aeolian fema]]
+[[virtuous reciprocality]]

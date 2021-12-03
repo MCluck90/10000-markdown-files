@@ -88,3 +88,11 @@ Silence all my time said
 When they draw back and
 : Up lazy thing yourself to hold it WOULD twist it busily on each other players
 
+
+## Wikilinks load test
+
+[[snuggled common amsinckia]]
+[[spheric prairie rattlesnake]]
+[[little tunicate]]
+[[anginose armata corsa]]
+[[unlubricated frankincense pine]]

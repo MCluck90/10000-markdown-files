@@ -75,3 +75,11 @@ Treacle said turning into
 they'll do How cheerfully he
 : Please Ma'am is not much to remain where Alice recognised the other paw
 
+
+## Wikilinks load test
+
+[[lobar faroe islands]]
+[[cut-and-dried hidden reserve]]
+[[genteel hugo grotius]]
+[[esophageal family comatulidae]]
+[[lusty summer haw]]

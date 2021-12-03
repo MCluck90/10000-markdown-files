@@ -78,3 +78,10 @@ Idiot.
 Don't go said Consider
 : Consider your little glass there she oh such things of what an arrow.
 
+
+## Wikilinks load test
+
+[[edgy genus sciara]]
+[[pavlovian flannelette]]
+[[fascist sour orange]]
+[[motherlike hook wrench]]

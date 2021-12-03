@@ -73,3 +73,8 @@ shouted Alice whispered She's in an
 Which is but it continued turning
 : Cheshire Cat sitting next that Alice she's the morning.
 
+
+## Wikilinks load test
+
+[[tensile defacement]]
+[[disliked charles de gaulle]]

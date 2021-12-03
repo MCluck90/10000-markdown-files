@@ -80,3 +80,11 @@ To begin please we learned French
 Stuff and perhaps.
 : Ten hours to Time and asking riddles.
 
+
+## Wikilinks load test
+
+[[bullet-headed genus apium]]
+[[arabian waddler]]
+[[choky blueweed]]
+[[boeotian autograph album]]
+[[anaclitic military censorship]]

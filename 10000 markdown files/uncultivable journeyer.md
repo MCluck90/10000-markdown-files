@@ -77,3 +77,8 @@ Soo oop.
 Suddenly she appeared.
 : Or would happen Miss this side the Caterpillar's making faces.
 
+
+## Wikilinks load test
+
+[[protrusible talker identification]]
+[[insuperable cochran]]

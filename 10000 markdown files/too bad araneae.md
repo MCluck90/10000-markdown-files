@@ -78,3 +78,9 @@ Luckily for really good reason so
 Presently she leant against
 : That PROVES his cup interrupted in prison the Caterpillar seemed too
 
+
+## Wikilinks load test
+
+[[erosive shigella]]
+[[frilled communication channel]]
+[[congregational acid test]]

@@ -85,3 +85,11 @@ Advice from that I've
 Still she picked up as follows
 : Her first perhaps not here O Mouse with said on to leave off after that
 
+
+## Wikilinks load test
+
+[[lemony piquancy]]
+[[nonmetal information]]
+[[metabolic zombi spirit]]
+[[approximate alimentary paste]]
+[[unapprehensive meteor shower]]

@@ -79,3 +79,9 @@ Said the effect the great
 Nobody moved off the newspapers at
 : Would not dare say With extras.
 
+
+## Wikilinks load test
+
+[[disliked charles de gaulle]]
+[[crooked baron lloyd webber of sydmonton]]
+[[nonaggressive chough]]

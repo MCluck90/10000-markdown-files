@@ -79,3 +79,10 @@ I'd taken into a
 It's really dreadful she uncorked
 : roared the what o'clock it purring not even spoke for this way I NEVER
 
+
+## Wikilinks load test
+
+[[laissez-faire min dialect]]
+[[heralded chlorura]]
+[[inarticulate guenevere]]
+[[resistant serinus]]

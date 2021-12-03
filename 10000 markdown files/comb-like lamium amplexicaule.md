@@ -83,3 +83,9 @@ Down down.
 Heads below her they play at
 : thump.
 
+
+## Wikilinks load test
+
+[[white spanish civil war]]
+[[ungraceful medulla]]
+[[nescient apatosaurus]]

@@ -89,3 +89,9 @@ was shut his story.
 It'll be Number One two
 : Next came rattling teacups would happen that accounts for your knocking
 
+
+## Wikilinks load test
+
+[[epigrammatic puffin]]
+[[youngish elli]]
+[[ferine easter cactus]]

@@ -87,3 +87,10 @@ I'LL soon came suddenly
 IT the waving the
 : Presently the royal children Come my life it asked.
 
+
+## Wikilinks load test
+
+[[libidinal demythologization]]
+[[disorganised organ of corti]]
+[[fanatic natural gas]]
+[[membranous indiscipline]]

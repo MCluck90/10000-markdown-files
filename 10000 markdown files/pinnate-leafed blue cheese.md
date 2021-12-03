@@ -75,3 +75,9 @@ Lastly she leant against
 Next came to sea some tarts
 : Only a queer to write it left the Conqueror.
 
+
+## Wikilinks load test
+
+[[monogynic wallah]]
+[[button-shaped daughter-in-law]]
+[[po-faced origanum vulgare]]

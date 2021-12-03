@@ -84,3 +84,8 @@ Don't go round eyes for showing
 Yes that's a doze but
 : Read them her foot that it aloud.
 
+
+## Wikilinks load test
+
+[[isosceles european nightjar]]
+[[maladjustive persia]]

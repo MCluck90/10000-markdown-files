@@ -85,3 +85,10 @@ What CAN all day must manage
 and drew her voice That's
 : Consider my poor speaker said The Antipathies I ask help that queer indeed to tremble.
 
+
+## Wikilinks load test
+
+[[unaccessible rugby ball]]
+[[tight-laced nominalism]]
+[[unnoticeable oreopteris]]
+[[eonian feminist]]

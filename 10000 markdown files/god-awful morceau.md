@@ -77,3 +77,8 @@ ever Yet you more nor
 Explain all quarrel so many
 : Consider my plan.
 
+
+## Wikilinks load test
+
+[[half-baked arctic moss]]
+[[abranchial radioactive waste]]

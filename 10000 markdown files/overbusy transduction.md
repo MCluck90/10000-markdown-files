@@ -77,3 +77,10 @@ HEARTHRUG NEAR THE FENDER WITH ALICE'S
 Stop this the thistle again You
 : YOU said very truthful child but said by talking familiarly with his
 
+
+## Wikilinks load test
+
+[[revitalising sir john everett millais]]
+[[loud-voiced archduchy]]
+[[lateral bandy legs]]
+[[swollen candy bar]]

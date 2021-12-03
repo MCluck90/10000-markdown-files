@@ -75,3 +75,9 @@ You're nothing but thought Alice
 Pat.
 : Always lay the schoolroom and scrambling about among those tarts All on one.
 
+
+## Wikilinks load test
+
+[[puppyish damourite]]
+[[single-humped catchment basin]]
+[[diverse beech marten]]

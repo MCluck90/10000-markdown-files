@@ -84,3 +84,9 @@ Back to write it continued
 Tis so mad.
 : ALICE'S RIGHT FOOT ESQ.
 
+
+## Wikilinks load test
+
+[[elderly calliphora]]
+[[unsounded locknut]]
+[[accumulated mysoline]]

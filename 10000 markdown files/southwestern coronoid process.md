@@ -84,3 +84,8 @@ How do cats.
 one side and you've been
 : Wow.
 
+
+## Wikilinks load test
+
+[[sectioned scrupulousness]]
+[[unbelievable adrenergic agonist eyedrop]]

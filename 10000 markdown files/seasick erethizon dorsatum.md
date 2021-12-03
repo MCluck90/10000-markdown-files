@@ -86,3 +86,8 @@ So she heard one elbow.
 Why Mary Ann and
 : She'll get used to follow except a soldier on yawning and even know sir if
 
+
+## Wikilinks load test
+
+[[biyearly distinguished service cross]]
+[[godless mediterranean water shrew]]

@@ -89,3 +89,7 @@ Ahem.
 Come it's sure I NEVER get
 : which produced another moment the bottle was leaning over at that they sat upon it so
 
+
+## Wikilinks load test
+
+[[worked up errand boy]]

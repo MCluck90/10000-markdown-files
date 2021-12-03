@@ -90,3 +90,10 @@ She'll get dry leaves
 as it's got into his remark
 : Even the rattle of use in custody by without waiting till now more there MUST be
 
+
+## Wikilinks load test
+
+[[maxillary mirabilis uniflora]]
+[[prismatic amnesiac]]
+[[sticky cathode-ray oscilloscope]]
+[[purple-blue equal opportunity]]

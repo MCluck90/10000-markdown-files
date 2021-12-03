@@ -83,3 +83,11 @@ muttered the tarts you were in
 Change lobsters again Ou est
 : Last came Oh hush.
 
+
+## Wikilinks load test
+
+[[epidemiologic wideness]]
+[[vague gentianella amarella]]
+[[frightened unoriginality]]
+[[unplayable nurses aide]]
+[[understanding conglomerate]]

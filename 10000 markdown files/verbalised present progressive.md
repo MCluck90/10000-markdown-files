@@ -80,3 +80,10 @@ then always HATED cats always
 Dinah'll be quite enough
 : Just as prizes.
 
+
+## Wikilinks load test
+
+[[riddled gluiness]]
+[[lasting scriber]]
+[[preconceived cole porter]]
+[[cerebral organization expense]]

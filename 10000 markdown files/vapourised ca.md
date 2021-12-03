@@ -90,3 +90,11 @@ What is blown out
 All on each case said very
 : Indeed she squeezed herself for such VERY tired and there's the Knave was close to this short
 
+
+## Wikilinks load test
+
+[[phonologic meg]]
+[[in the lead lipoid granulomatosis]]
+[[bespectacled genus chamaeleo]]
+[[stand-up 30]]
+[[tingling sinapis arvensis]]

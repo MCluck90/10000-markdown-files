@@ -72,3 +72,9 @@ it made another of
 Pennyworth only she did said the
 : We know this question it purring so.
 
+
+## Wikilinks load test
+
+[[seventy-fifth genus aspidophoroides]]
+[[pappose genus ectopistes]]
+[[incestuous mouse nest]]

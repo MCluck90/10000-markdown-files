@@ -87,3 +87,11 @@ An obstacle that will put
 Pennyworth only kept from
 : Stolen.
 
+
+## Wikilinks load test
+
+[[easterly pteridospermae]]
+[[exotic sausage pizza]]
+[[silty neurotoxin]]
+[[puppyish genus mitchella]]
+[[bratty congridae]]

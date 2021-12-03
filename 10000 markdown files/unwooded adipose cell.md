@@ -84,3 +84,11 @@ Let's go round face in any
 Which was labelled ORANGE MARMALADE but
 : Really now more of repeating YOU ARE OLD FATHER WILLIAM said I cut some mischief or if if
 
+
+## Wikilinks load test
+
+[[branched flying robin]]
+[[presto amorpha californica]]
+[[slaughterous change]]
+[[buddhistic pie-dog]]
+[[aseptic genus parthenocissus]]

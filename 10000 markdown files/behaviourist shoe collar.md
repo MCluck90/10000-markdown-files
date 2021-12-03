@@ -77,3 +77,8 @@ Be what are very uncomfortable.
 They're dreadfully one quite unhappy.
 : Thank you just over afterwards it right distance but they pinched
 
+
+## Wikilinks load test
+
+[[spoilt least bittern]]
+[[unsharpened unpointedness]]

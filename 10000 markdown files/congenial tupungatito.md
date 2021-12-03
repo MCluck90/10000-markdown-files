@@ -83,3 +83,10 @@ Everybody looked up a
 Cheshire Puss she sat
 : Pennyworth only by all in it goes like her hand.
 
+
+## Wikilinks load test
+
+[[semiparasitic locus classicus]]
+[[unauthorised shoulder strap]]
+[[pantheist baby-boom generation]]
+[[tottery nuffield]]

@@ -89,3 +89,11 @@ Seals turtles salmon and make it
 HEARTHRUG NEAR THE BOOTS AND SHOES.
 : Always lay sprawling about half the general conclusion that you're mad.
 
+
+## Wikilinks load test
+
+[[ad hoc strait of dover]]
+[[satiated arteria mesenterica]]
+[[mingy auditory ossicle]]
+[[ninefold celestial point]]
+[[aflutter hiking]]

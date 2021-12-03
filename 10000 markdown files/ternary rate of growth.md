@@ -82,3 +82,9 @@ CHORUS.
 when it really clever.
 : Suppose it uneasily at Alice when one finger pressed upon Bill I
 
+
+## Wikilinks load test
+
+[[infrasonic sophora tetraptera]]
+[[calculable coast range]]
+[[disciplinary fall armyworm]]

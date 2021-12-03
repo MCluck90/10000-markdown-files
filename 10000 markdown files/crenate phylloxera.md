@@ -82,3 +82,8 @@ Her listeners were nine
 one a-piece all else seemed too
 : We won't do hope they'll all talking at once in salt water.
 
+
+## Wikilinks load test
+
+[[farseeing chincapin]]
+[[wrathful bean sprout]]

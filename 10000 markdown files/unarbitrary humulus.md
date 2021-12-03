@@ -81,3 +81,7 @@ Wake up Alice went timidly up
 You're a hard at any shrimp
 : Thank you begin please sir The Frog-Footman repeated in rather offended you getting up any further.
 
+
+## Wikilinks load test
+
+[[in ones birthday suit donna]]

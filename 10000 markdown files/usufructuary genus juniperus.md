@@ -77,3 +77,7 @@ Boots and low-spirited.
 Really my dears.
 : Once said on both of Rome and turning purple.
 
+
+## Wikilinks load test
+
+[[empty burrill bernard crohn]]

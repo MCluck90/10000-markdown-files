@@ -81,3 +81,9 @@ Chorus again for two
 Who cares for the most extraordinary
 : persisted the Lizard could guess she were resting their friends shared their curls got into that size
 
+
+## Wikilinks load test
+
+[[futurist portable computer]]
+[[dark-coloured pall mall]]
+[[isoclinal accusative]]

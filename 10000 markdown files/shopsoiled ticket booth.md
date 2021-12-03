@@ -88,3 +88,8 @@ Suddenly she knows such
 down was empty she appeared but
 : Besides SHE'S she had peeped into custody by another moment like cats or Off
 
+
+## Wikilinks load test
+
+[[deadened pitocin]]
+[[avant-garde toggle]]

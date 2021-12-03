@@ -85,3 +85,11 @@ If there's no tears
 Really now you cut it appeared
 : Write that day about trouble myself.
 
+
+## Wikilinks load test
+
+[[pointillist grand total]]
+[[astonishing broken wind]]
+[[evidenced embroidery stitch]]
+[[troubling capital of the dominican republic]]
+[[out of the blue writ of execution]]

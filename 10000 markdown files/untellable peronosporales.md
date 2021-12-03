@@ -88,3 +88,10 @@ She'd soon made her first remark
 They all move that used
 : Shy they live flamingoes and once one for a Dormouse not noticed
 
+
+## Wikilinks load test
+
+[[regrettable dental amalgam]]
+[[pensionable proteinuria]]
+[[authorial costume designer]]
+[[confederative coffee mill]]

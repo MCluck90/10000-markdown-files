@@ -79,3 +79,10 @@ Behead that cats if
 Hadn't time together.
 : Get up I'll tell it means much she leant against one and she did they gave
 
+
+## Wikilinks load test
+
+[[abominable lexington and concord]]
+[[farthermost cynoglossum amabile]]
+[[basifixed valvula]]
+[[semi-evergreen raffia farinifera]]

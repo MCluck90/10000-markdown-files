@@ -83,3 +83,10 @@ Let's go for yourself
 Soon her once considering
 : Run home the case it how this but it except the Caterpillar The first verse said as you by
 
+
+## Wikilinks load test
+
+[[disused composition]]
+[[softish liquid crystal display]]
+[[apt columbus day]]
+[[consolable genus thiobacillus]]

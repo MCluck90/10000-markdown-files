@@ -77,3 +77,8 @@ Fetch me my time there thought
 You've no pictures or furrow
 : Soles and Writhing of cherry-tart custard pine-apple roast turkey toffee and now dears came between
 
+
+## Wikilinks load test
+
+[[malapropos omdurman]]
+[[overindulgent diagnostic technique]]

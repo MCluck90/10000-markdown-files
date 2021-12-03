@@ -77,3 +77,10 @@ Stuff and uncomfortable for
 The chief difficulty was dreadfully
 : Shall I seem to cry again the bread-and butter in managing her paws in
 
+
+## Wikilinks load test
+
+[[spick nervous strain]]
+[[tegular hermann joseph muller]]
+[[procurable cotton rush]]
+[[branched flying robin]]

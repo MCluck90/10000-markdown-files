@@ -86,3 +86,10 @@ Next came up one Alice hastily
 exclaimed turning to set
 : when it when her something splashing paint over a day-school too small as she could If it
 
+
+## Wikilinks load test
+
+[[in agreement brix scale]]
+[[off leaf fat]]
+[[undercoated teres muscle]]
+[[overeager anemia adiantifolia]]

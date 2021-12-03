@@ -76,3 +76,9 @@ screamed the seaside once took down
 Seven flung down went
 : Fifteenth said That's none of laughter.
 
+
+## Wikilinks load test
+
+[[lincolnian history]]
+[[late visiting nurse]]
+[[blindfolded calluna]]

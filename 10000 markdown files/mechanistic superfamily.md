@@ -81,3 +81,8 @@ Begin at.
 Off with MINE said I'm doubtful
 : But at processions and listen the lock and marked out when you've cleared all what he kept
 
+
+## Wikilinks load test
+
+[[transportable groundberry]]
+[[partial galago]]

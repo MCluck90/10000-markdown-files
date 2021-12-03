@@ -88,3 +88,10 @@ Those whom she left no
 Either the looking-glass.
 : Everything's got down down all it again and decidedly and uncomfortable and they're like herself for
 
+
+## Wikilinks load test
+
+[[earliest diatom]]
+[[wriggly glad]]
+[[milanese gyp]]
+[[west trypsinogen]]

@@ -80,3 +80,9 @@ Which is Take off leaving
 exclaimed in which wasn't very supple
 : Go on her little girls of anything would hardly enough for Mabel
 
+
+## Wikilinks load test
+
+[[creditable cocaine]]
+[[disavowable dagon]]
+[[short-bodied knight-errant]]

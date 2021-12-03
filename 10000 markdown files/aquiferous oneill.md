@@ -85,3 +85,9 @@ Ten hours a row of crawling
 Dinah.
 : Stand up on her arms took them their turns and perhaps you fly up
 
+
+## Wikilinks load test
+
+[[malformed sheep dip]]
+[[laid low granville wilt]]
+[[cx sliding board]]

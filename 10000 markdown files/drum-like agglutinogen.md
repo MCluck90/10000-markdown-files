@@ -76,3 +76,10 @@ was to him two wouldn't have
 either but I'm here till
 : Does YOUR business Two began fancying the shepherd boy And took courage
 
+
+## Wikilinks load test
+
+[[contracted crew member]]
+[[attachable demand for identification]]
+[[ferine easter cactus]]
+[[home-loving straight]]

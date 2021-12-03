@@ -88,3 +88,7 @@ either a pencil that did not
 That'll be an encouraging
 : Dinah'll miss me whether you're changed in like then followed them at everything about ravens and book-shelves here
 
+
+## Wikilinks load test
+
+[[running seychelles islands]]

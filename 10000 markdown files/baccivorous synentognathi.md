@@ -83,3 +83,8 @@ Don't go among those roses
 _I_ don't bother ME but hurriedly
 : Ugh.
 
+
+## Wikilinks load test
+
+[[transdermic lxxx]]
+[[fabricated teth]]

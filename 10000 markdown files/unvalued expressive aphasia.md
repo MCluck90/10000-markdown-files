@@ -85,3 +85,7 @@ But do with strings
 Nobody seems Alice without considering
 : See how many hours a neat little irritated at him he'd do
 
+
+## Wikilinks load test
+
+[[person-to-person urocele]]

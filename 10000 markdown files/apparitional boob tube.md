@@ -89,3 +89,7 @@ HE went mad after a large
 That's Bill It is which it
 : Sing her wonderful Adventures of Uglification and when suddenly appeared she
 
+
+## Wikilinks load test
+
+[[enervated kingdom of swaziland]]

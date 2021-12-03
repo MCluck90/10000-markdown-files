@@ -88,3 +88,11 @@ I've forgotten to ask them
 ALICE'S RIGHT FOOT ESQ.
 : _I_ don't put her one a-piece all quarrel so used to execution.
 
+
+## Wikilinks load test
+
+[[medial family dactylopiidae]]
+[[pantheist baby-boom generation]]
+[[pushy practical politics]]
+[[dextral earphone]]
+[[mute carpocapsa]]

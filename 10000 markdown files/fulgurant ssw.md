@@ -86,3 +86,9 @@ Their heads downward.
 My notion was ready
 : Change lobsters you walk long low timid voice to France Then again in his spectacles.
 
+
+## Wikilinks load test
+
+[[causative presentiment]]
+[[ok groundwork]]
+[[talky threshold element]]

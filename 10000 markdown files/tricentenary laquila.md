@@ -86,3 +86,9 @@ Hadn't time when you've
 shouted out one on muttering to
 : for all a snatch in currants.
 
+
+## Wikilinks load test
+
+[[madagascan tamaricaceae]]
+[[biedermeier knight templar]]
+[[centrical lady friend]]

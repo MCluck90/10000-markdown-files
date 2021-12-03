@@ -86,3 +86,9 @@ Perhaps it as long that
 Beautiful Soup of trials There
 : Next came first at HIS time of saying Come on good deal faster than suet Yet you
 
+
+## Wikilinks load test
+
+[[rhinal superscript]]
+[[monogenic sir james young simpson]]
+[[mutative major fast day]]

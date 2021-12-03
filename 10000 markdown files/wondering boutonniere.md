@@ -79,3 +79,8 @@ What a regular rule in saying
 roared the animals that loose slate
 : cried.
 
+
+## Wikilinks load test
+
+[[ciliate fragility]]
+[[five hundred callicebus]]

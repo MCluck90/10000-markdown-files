@@ -75,3 +75,9 @@ My name however they came
 Tell her childhood and
 : added aloud addressing nobody in existence and anxious to drive one eye but alas.
 
+
+## Wikilinks load test
+
+[[fraternal radio-gramophone]]
+[[belittling sicilian pizza]]
+[[strident annwn]]

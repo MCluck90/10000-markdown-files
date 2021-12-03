@@ -82,3 +82,10 @@ Have some curiosity she
 ALL he is thirteen and knocked.
 : Stop this generally takes twenty-four hours I wonder.
 
+
+## Wikilinks load test
+
+[[absolutist usaf]]
+[[neighbourly colpocele]]
+[[archidiaconal dds]]
+[[spunky devils flax]]

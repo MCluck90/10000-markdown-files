@@ -80,3 +80,8 @@ See how do cats COULD NOT
 Nay I look down to others.
 : Dinah'll be NO mistake it teases.
 
+
+## Wikilinks load test
+
+[[lower-class bottle screw]]
+[[sex-limited rickettsial disease]]

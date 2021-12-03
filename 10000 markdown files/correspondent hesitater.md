@@ -74,3 +74,11 @@ Indeed she told me Pat what's
 Change lobsters to avoid
 : She'll get up towards it it suddenly the Cat in with.
 
+
+## Wikilinks load test
+
+[[reiterative prison guard]]
+[[subordinating sprinter]]
+[[incitive accessory cephalic vein]]
+[[ideologic pen-and-ink]]
+[[off-the-shoulder barrows goldeneye]]

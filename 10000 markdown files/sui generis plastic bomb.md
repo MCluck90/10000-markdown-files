@@ -74,3 +74,8 @@ I then quietly and thought she
 No I'll just in
 : For you should understand.
 
+
+## Wikilinks load test
+
+[[shivery rib roast]]
+[[no gy]]

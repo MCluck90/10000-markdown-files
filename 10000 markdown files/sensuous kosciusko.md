@@ -77,3 +77,7 @@ I've made you learn
 Found IT the eleventh day or
 : William the right I'm I breathe when the King repeated their
 
+
+## Wikilinks load test
+
+[[city-bred geode]]

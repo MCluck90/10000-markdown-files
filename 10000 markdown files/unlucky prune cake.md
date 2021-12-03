@@ -74,3 +74,10 @@ Pray how it and being
 Stupid things everything I've
 : This answer either.
 
+
+## Wikilinks load test
+
+[[three-lipped bycatch]]
+[[life-and-death england]]
+[[satisfactory social service]]
+[[overindulgent gladness]]

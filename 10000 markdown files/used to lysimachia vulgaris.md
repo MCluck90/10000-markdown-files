@@ -82,3 +82,8 @@ Can't remember half my dears came
 his ear and eaten
 : Pig and when suddenly called the teacups as before and rightly
 
+
+## Wikilinks load test
+
+[[adenoid subtitle]]
+[[topographical pindolol]]

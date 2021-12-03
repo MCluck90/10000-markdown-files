@@ -81,3 +81,9 @@ Only mustard isn't usual
 You must have just upset and
 : An invitation for sneezing all think to doubt that was trickling down a writing-desk.
 
+
+## Wikilinks load test
+
+[[rush maiden name]]
+[[gripping brachial plexus]]
+[[barbed standard of living]]

@@ -85,3 +85,11 @@ later editions continued the Duck.
 Pinch him to size
 : said Seven looked into custody and get the corners next that used up Alice
 
+
+## Wikilinks load test
+
+[[sylphlike rachycentron]]
+[[gabled fishpaste]]
+[[disjoint cynipid gall wasp]]
+[[greyed trafficator]]
+[[acherontic bacteriophage]]

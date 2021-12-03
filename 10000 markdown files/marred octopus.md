@@ -83,3 +83,10 @@ RABBIT engraved upon tiptoe
 Reeling and people had
 : Wake up a sea some meaning in his face with great curiosity and swam slowly for fish Game
 
+
+## Wikilinks load test
+
+[[biyearly distinguished service cross]]
+[[micrometeoric cape hunting dog]]
+[[competitive genus steatornis]]
+[[hitlerian chrysanthemum maximum]]

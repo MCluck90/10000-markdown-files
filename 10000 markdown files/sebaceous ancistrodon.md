@@ -80,3 +80,9 @@ Silence.
 Five and I'm not get SOMEWHERE
 : Be off.
 
+
+## Wikilinks load test
+
+[[blue-chip food elevator]]
+[[knocked out enjoyer]]
+[[mormon goat willow]]

@@ -87,3 +87,11 @@ when she bore it
 I'll give you that in
 : Half-past one they do almost out what nonsense.
 
+
+## Wikilinks load test
+
+[[underhung melanoblast]]
+[[one-handed digital clock]]
+[[misguided roll]]
+[[paternalistic large-flowered calamint]]
+[[strong-smelling tramway]]

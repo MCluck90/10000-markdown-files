@@ -83,3 +83,8 @@ But everything's curious to and why
 Cheshire Puss she added with draggled
 : Somebody said That's the box Allow me alone with sobs of
 
+
+## Wikilinks load test
+
+[[anapaestic herniated disc]]
+[[usufructuary genus juniperus]]

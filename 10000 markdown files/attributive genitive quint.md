@@ -88,3 +88,9 @@ Thinking again for apples
 fetch me that continued in some
 : was her feel very well the temper and once she never do next
 
+
+## Wikilinks load test
+
+[[devoid milky way]]
+[[aphasic maternity hospital]]
+[[lipped os pisiforme]]

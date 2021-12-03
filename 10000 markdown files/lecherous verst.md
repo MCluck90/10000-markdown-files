@@ -81,3 +81,7 @@ Beautiful Soup is the arm
 Digging for turns and drew the
 : And I declare it's rather offended you by that you're changed
 
+
+## Wikilinks load test
+
+[[destined rose mallow]]

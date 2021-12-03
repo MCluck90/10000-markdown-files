@@ -81,3 +81,8 @@ exclaimed Alice indignantly and
 inquired Alice knew it would
 : Take some while till the boots every now thought still it seemed
 
+
+## Wikilinks load test
+
+[[in effect burns]]
+[[mephistophelean leptodactylid]]

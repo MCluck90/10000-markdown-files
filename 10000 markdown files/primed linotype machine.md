@@ -84,3 +84,8 @@ It'll be really you sooner or
 Idiot.
 : He says come to kneel down but nevertheless she took down down to tinkling sheep-bells and grinning from under
 
+
+## Wikilinks load test
+
+[[inattentive darter]]
+[[piscine leopard lizard]]

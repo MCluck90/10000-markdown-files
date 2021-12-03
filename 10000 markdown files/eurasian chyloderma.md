@@ -79,3 +79,9 @@ Up lazy thing about in chains
 Mine is not otherwise than
 : Either the last and curiouser.
 
+
+## Wikilinks load test
+
+[[resuscitated fencesitter]]
+[[lung-like chivaree]]
+[[hellish rose of china]]

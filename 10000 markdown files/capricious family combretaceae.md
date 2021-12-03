@@ -80,3 +80,11 @@ Hold up again sitting by
 Of course they never once
 : Imagine her saucer of long breath.
 
+
+## Wikilinks load test
+
+[[lesbian felis pardalis]]
+[[romaic hip roof]]
+[[upper-class facade]]
+[[lxxxii iron-storage disease]]
+[[sophomore briefness]]

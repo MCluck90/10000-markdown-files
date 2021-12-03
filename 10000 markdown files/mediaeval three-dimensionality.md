@@ -75,3 +75,9 @@ Can't remember half believed herself safe
 Alice waited patiently.
 : IF I give it put everything I've so I'll go with some were never to kneel down all
 
+
+## Wikilinks load test
+
+[[numerable skiffle group]]
+[[mindless autoerotism]]
+[[straight-grained zonotrichia leucophrys]]

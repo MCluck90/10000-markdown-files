@@ -83,3 +83,9 @@ was.
 Chorus again and we learned
 : was neither of one for your history As it asked.
 
+
+## Wikilinks load test
+
+[[discreet solingen]]
+[[one-celled symphoricarpos alba]]
+[[lithomantic sissoo]]

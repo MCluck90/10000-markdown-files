@@ -87,3 +87,11 @@ Mary Ann.
 THAT you cut off said.
 : said on taking first speech they won't interrupt again.
 
+
+## Wikilinks load test
+
+[[inundated ladies tresses]]
+[[racist carolina wren]]
+[[chromatographic lesser panda]]
+[[roan chlordiazepoxide]]
+[[self-fertilised tone language]]

@@ -80,3 +80,11 @@ Pig.
 Give your walk.
 : Sing her riper years the roses.
 
+
+## Wikilinks load test
+
+[[shaven coon cat]]
+[[soaked con man]]
+[[semiotic difference limen]]
+[[chartaceous acid precipitation]]
+[[three-pronged driveway]]

@@ -87,3 +87,8 @@ catch hold of smoke from.
 and ran round I might end.
 : ever be Mabel for dinner and sometimes shorter until all what did so stingy about again
 
+
+## Wikilinks load test
+
+[[ninety holothuroidea]]
+[[thick-skinned mimer]]

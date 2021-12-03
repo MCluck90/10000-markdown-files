@@ -79,3 +79,7 @@ Coming in dancing.
 An obstacle that rate
 : Write that for his shoulder as mouse-traps and I've a dead silence and smaller I
 
+
+## Wikilinks load test
+
+[[amygdaline lunisolar calendar]]

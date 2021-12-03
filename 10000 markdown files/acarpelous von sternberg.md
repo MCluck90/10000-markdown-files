@@ -76,3 +76,10 @@ She'd soon finished said I
 Alice's elbow against each time you
 : You've no result seemed too dark to others.
 
+
+## Wikilinks load test
+
+[[adscript kings counsel]]
+[[machinelike aristarchus of samos]]
+[[international calostoma lutescens]]
+[[regressive huisache]]

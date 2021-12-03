@@ -85,3 +85,7 @@ She boxed the puppy
 I'LL soon make anything
 : By-the bye what nonsense I'm better this for apples indeed.
 
+
+## Wikilinks load test
+
+[[fumbling grosbeak]]

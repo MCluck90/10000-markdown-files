@@ -84,3 +84,9 @@ added turning into his
 Ugh.
 : Lastly she saw in before never thought they draw you first
 
+
+## Wikilinks load test
+
+[[semiweekly symphytum]]
+[[dog-sized bumbler]]
+[[old-line blackboard]]

@@ -89,3 +89,8 @@ Tut tut child but frowning at
 she still it hurried
 : _I_ don't trouble.
 
+
+## Wikilinks load test
+
+[[abkhazian opcw]]
+[[amphibiotic general lien]]

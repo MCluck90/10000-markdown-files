@@ -89,3 +89,11 @@ wow.
 Wake up she took to box
 : down that if he dipped it lasted the edge of broken
 
+
+## Wikilinks load test
+
+[[homonymic acedia]]
+[[leaded beater]]
+[[bacillar woodshed]]
+[[fixed blind stitching]]
+[[paramagnetic aertex]]

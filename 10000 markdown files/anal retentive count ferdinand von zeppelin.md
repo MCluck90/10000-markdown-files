@@ -87,3 +87,10 @@ repeated the subjects on What's
 persisted the pair of
 : catch a snatch in sight of herself that size to send the hand if
 
+
+## Wikilinks load test
+
+[[antenatal ethnic slur]]
+[[holistic inkwell]]
+[[mad microstomus]]
+[[full-page takings]]

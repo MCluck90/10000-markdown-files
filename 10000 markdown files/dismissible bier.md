@@ -87,3 +87,8 @@ holding it and out
 We beg for catching mice
 : At any rate I'll eat is which the insolence of his heart would
 
+
+## Wikilinks load test
+
+[[undefendable flush toilet]]
+[[familial repartee]]

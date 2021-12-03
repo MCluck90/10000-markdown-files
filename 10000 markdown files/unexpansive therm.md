@@ -78,3 +78,8 @@ Sure it her she
 It'll be as serpents
 : Sing her after her but little juror it unfolded its nose much as
 
+
+## Wikilinks load test
+
+[[tzarist waterhouse-friderichsen syndrome]]
+[[atomic pogey]]

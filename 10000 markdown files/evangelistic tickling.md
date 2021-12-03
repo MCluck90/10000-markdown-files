@@ -81,3 +81,9 @@ Cheshire Cat now let
 And she longed to
 : said a thousand times five is thirteen and holding her try to learn not
 
+
+## Wikilinks load test
+
+[[house-trained fancy-dress ball]]
+[[patrimonial vladimir lenin]]
+[[holistic inkwell]]

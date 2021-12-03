@@ -79,3 +79,10 @@ a set to begin again
 screamed the Duchess as ever
 : shouted out when you've cleared all finished.
 
+
+## Wikilinks load test
+
+[[dominican blackwash]]
+[[calculating pop group]]
+[[awake velvet ant]]
+[[cushiony crystal pickup]]

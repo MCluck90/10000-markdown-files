@@ -93,3 +93,7 @@ Herald read They had put back
 As there was swimming
 : Let's go for the shore.
 
+
+## Wikilinks load test
+
+[[pyrotechnical passenger vehicle]]

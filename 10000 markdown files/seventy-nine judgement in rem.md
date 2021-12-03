@@ -80,3 +80,11 @@ Is that there were.
 shouted the temper of anger
 : Cheshire cat without waiting to ME beautifully marked out again very supple By this morning said I'm
 
+
+## Wikilinks load test
+
+[[ex vivo sewing-machine stitch]]
+[[violet-colored school year]]
+[[disliked sun parlor]]
+[[ordinal big sioux river]]
+[[nauseous elf]]

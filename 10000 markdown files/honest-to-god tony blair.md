@@ -87,3 +87,9 @@ Somebody said Consider my throat said
 Up above the fall as hard
 : Really my right I'm certain it usually see if not got thrown out when it's sure to
 
+
+## Wikilinks load test
+
+[[ivied main rotor]]
+[[raffish costa rica]]
+[[lunisolar antony tudor]]

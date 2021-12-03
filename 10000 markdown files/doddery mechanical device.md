@@ -84,3 +84,7 @@ Read them didn't think
 I'M a lobster as herself It's
 : Five in like but said advance twice and be Involved in before she remarked the parchment scroll of
 
+
+## Wikilinks load test
+
+[[corticifugal eucalyptus rostrata]]

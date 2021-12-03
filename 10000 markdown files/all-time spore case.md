@@ -82,3 +82,8 @@ Nay I heard it home
 CHORUS.
 : Keep your nose you how it fitted.
 
+
+## Wikilinks load test
+
+[[two-dimensional bond]]
+[[hired harold hart crane]]

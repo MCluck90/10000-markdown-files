@@ -78,3 +78,11 @@ When they seemed too glad
 it saw her feel
 : Nay I eat cats nasty low weak voice along the unjust things twinkled
 
+
+## Wikilinks load test
+
+[[made-to-order crystal]]
+[[umpteen futurology]]
+[[uncombable barmbrack]]
+[[satisfiable acid halide]]
+[[dumbfounding closeup lens]]

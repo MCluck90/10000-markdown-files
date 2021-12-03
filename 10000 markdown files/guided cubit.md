@@ -79,3 +79,11 @@ Suppose it could get
 Change lobsters again heard before
 : .
 
+
+## Wikilinks load test
+
+[[antique coffee rose]]
+[[clean-limbed bursa]]
+[[aeolotropic cercopithecidae]]
+[[circadian gynura aurantiaca]]
+[[naked-tailed polystichum acrostichoides]]

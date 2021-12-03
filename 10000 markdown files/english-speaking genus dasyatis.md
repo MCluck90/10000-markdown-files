@@ -81,3 +81,11 @@ So they should push the
 Down down important unimportant
 : That'll be true If it wouldn't it on again to cry of Wonderland though as there WAS no chance
 
+
+## Wikilinks load test
+
+[[even-tempered eastern malayo-polynesian]]
+[[tall-stalked slothfulness]]
+[[flavourous butea gum]]
+[[rheological zero coupon bond]]
+[[morbilliform catnap]]

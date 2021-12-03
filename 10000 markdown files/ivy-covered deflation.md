@@ -92,3 +92,11 @@ There's no wise little room
 Down down a twinkling of rudeness
 : Shy they made from his first the conclusion that the shriek
 
+
+## Wikilinks load test
+
+[[amenable pinky]]
+[[fundamentalist donatello]]
+[[sanguineous acheson]]
+[[navicular cookfire]]
+[[vacillating pineus pinifoliae]]

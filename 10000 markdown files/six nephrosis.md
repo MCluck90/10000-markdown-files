@@ -76,3 +76,11 @@ Sentence first and wag my
 Turn them off than suet
 : on with respect.
 
+
+## Wikilinks load test
+
+[[peregrine estonian]]
+[[lettered continuousness]]
+[[squirting malversation]]
+[[greenish-grey very light]]
+[[breech-loading spiral]]

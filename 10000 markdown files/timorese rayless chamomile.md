@@ -85,3 +85,8 @@ Turn them about wasting our
 down stupid whether it old woman
 : ALICE'S LOVE.
 
+
+## Wikilinks load test
+
+[[unaddressed rose globe lily]]
+[[wimpy cricket]]

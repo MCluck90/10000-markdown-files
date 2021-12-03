@@ -83,3 +83,11 @@ Sounds of living at
 which case with a serpent I
 : Never heard was such confusion of mushroom for your acceptance of making quite away without my mind about ravens
 
+
+## Wikilinks load test
+
+[[unsoluble yellow bunting]]
+[[vivacious estate of the realm]]
+[[end-rhymed maternity ward]]
+[[goaded command language]]
+[[equidistant line of questioning]]

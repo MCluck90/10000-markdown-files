@@ -80,3 +80,8 @@ Consider my dear how
 Back to wish they'd
 : Once more conversation with pink eyes appeared to go for sneezing on second thoughts were gardeners who
 
+
+## Wikilinks load test
+
+[[trained exploding cucumber]]
+[[applicative halimodendron argenteum]]

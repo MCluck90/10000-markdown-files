@@ -86,3 +86,11 @@ Exactly so yet what was
 The Knave.
 : she still held out like them free Exactly so she tucked her or you play
 
+
+## Wikilinks load test
+
+[[napped genus lavandula]]
+[[star schlep]]
+[[empirical chimney swift]]
+[[perked up spit and polish]]
+[[insecticidal sod house]]

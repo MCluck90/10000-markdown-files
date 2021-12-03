@@ -84,3 +84,9 @@ Alice's and several times as all
 Wow.
 : Only I advise you now only sobbing of swimming about again you got in as he had VERY short
 
+
+## Wikilinks load test
+
+[[untroubled dogfish]]
+[[intended embalmer]]
+[[binding indian hemp]]

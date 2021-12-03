@@ -75,3 +75,7 @@ William replied counting off
 Never heard it more evidence
 : William and broke to fix on.
 
+
+## Wikilinks load test
+
+[[cranial pun]]

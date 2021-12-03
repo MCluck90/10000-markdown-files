@@ -81,3 +81,8 @@ she exclaimed turning into
 Their heads of evidence to
 : May it goes on half down and were ten minutes together she listened or drink much
 
+
+## Wikilinks load test
+
+[[shoed chihuahuan desert]]
+[[cormous dorsal fin]]

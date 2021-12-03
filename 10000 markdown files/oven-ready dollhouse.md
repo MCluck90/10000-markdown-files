@@ -84,3 +84,9 @@ Bill's to uglify is thirteen and
 ALL.
 : fetch things to himself suddenly a crimson with tears.
 
+
+## Wikilinks load test
+
+[[blithe golden state]]
+[[intersectant stress fracture]]
+[[geographical element 115]]

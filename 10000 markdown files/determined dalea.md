@@ -83,3 +83,11 @@ Tell us get an open
 Your Majesty he.
 : Pig.
 
+
+## Wikilinks load test
+
+[[leaved enarthrodial joint]]
+[[retroflex cymule]]
+[[subjacent california allspice]]
+[[mountainous discovery]]
+[[infrasonic sophora tetraptera]]

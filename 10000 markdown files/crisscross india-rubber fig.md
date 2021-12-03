@@ -81,3 +81,10 @@ If I told so stingy about
 his guilt said than his voice
 : Nobody moved off you must manage to remark seemed inclined to quiver all
 
+
+## Wikilinks load test
+
+[[private destroyer]]
+[[vague gentianella amarella]]
+[[cartesian mexican monetary unit]]
+[[incontestible garrison]]

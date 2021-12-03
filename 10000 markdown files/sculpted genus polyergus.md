@@ -75,3 +75,10 @@ Right as loud voice
 that only by far below.
 : With extras.
 
+
+## Wikilinks load test
+
+[[hemiparasitic tactical maneuver]]
+[[palpitant gasterosteus aculeatus]]
+[[pantropical peripheral device]]
+[[gilbertian bowling]]

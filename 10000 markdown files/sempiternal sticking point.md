@@ -89,3 +89,11 @@ Stuff and leave it about
 but I might have nothing written
 : Nobody asked the largest telescope that poky little creature down.
 
+
+## Wikilinks load test
+
+[[flaky may fish]]
+[[addled flatbed]]
+[[impressive riffle]]
+[[xxxiii rooting]]
+[[debauched tartar sauce]]

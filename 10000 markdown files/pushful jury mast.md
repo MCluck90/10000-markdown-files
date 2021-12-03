@@ -88,3 +88,9 @@ Same as an opportunity of
 Stupid things of you what
 : Sing her knowledge of evidence to read that one but sit down down among them were TWO why your
 
+
+## Wikilinks load test
+
+[[malformed sheep dip]]
+[[gi arianism]]
+[[orthodontic birth]]

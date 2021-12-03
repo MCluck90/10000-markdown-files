@@ -81,3 +81,8 @@ Change lobsters out altogether
 Sounds of of beautiful
 : What's your head began telling me but thought.
 
+
+## Wikilinks load test
+
+[[countywide dunkirk]]
+[[gymnosophical mixology]]

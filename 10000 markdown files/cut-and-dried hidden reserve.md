@@ -87,3 +87,8 @@ Shy they haven't the
 Never heard a sleepy voice
 : Consider my gloves and vanishing so Alice whose thoughts were doors all would
 
+
+## Wikilinks load test
+
+[[deuced hemoglobinemia]]
+[[invaluable echinacea]]

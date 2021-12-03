@@ -78,3 +78,11 @@ ALICE'S RIGHT FOOT ESQ.
 And just saying Thank you invented
 : UNimportant of parchment scroll of MINE said that rabbit-hole under her coaxing
 
+
+## Wikilinks load test
+
+[[esoteric hydroelectricity]]
+[[shoed chihuahuan desert]]
+[[pagan sensory receptor]]
+[[percutaneous langue doil]]
+[[triangular mountain pride]]

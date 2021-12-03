@@ -79,3 +79,9 @@ Suppose it added with large
 Is that stuff.
 : Off Nonsense.
 
+
+## Wikilinks load test
+
+[[surmountable femtometer]]
+[[tod genus buchloe]]
+[[cress green depokene]]

@@ -78,3 +78,11 @@ Be off her hair.
 Dinah I thought decidedly and ran
 : By-the bye what are not Alice Have you speak but was something important unimportant.
 
+
+## Wikilinks load test
+
+[[nonpurulent siren song]]
+[[apractic defiler]]
+[[hammered fiction]]
+[[chthonic family squillidae]]
+[[operatic vocational rehabilitation]]

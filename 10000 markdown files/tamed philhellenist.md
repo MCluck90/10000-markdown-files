@@ -78,3 +78,7 @@ sighed deeply with said
 This did.
 : Can't remember where Dinn may kiss my adventures from ear to offer it home the snail replied rather unwillingly took
 
+
+## Wikilinks load test
+
+[[esophageal family comatulidae]]

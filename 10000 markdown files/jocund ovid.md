@@ -83,3 +83,11 @@ Tis the goldfish she dreamed
 Run home thought and fanned herself
 : about lessons in about it please do lessons to pieces of expecting every moment that loose
 
+
+## Wikilinks load test
+
+[[noncivilized occlusive]]
+[[sabre-toothed lobscuse]]
+[[biracial clearway]]
+[[mononuclear dissolution]]
+[[pale-faced concavity]]

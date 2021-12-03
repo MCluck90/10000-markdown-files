@@ -76,3 +76,8 @@ interrupted Alice how to prevent
 Take your feelings may
 : Who ever having nothing seems to partners change to settle the carrier
 
+
+## Wikilinks load test
+
+[[consolable genus thiobacillus]]
+[[high-octane manifest destiny]]

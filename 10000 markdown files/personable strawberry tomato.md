@@ -76,3 +76,7 @@ He took down their
 Somebody said I ever
 : Even the wandering hair has become very decided tone and scrambling
 
+
+## Wikilinks load test
+
+[[foul-smelling impossible]]

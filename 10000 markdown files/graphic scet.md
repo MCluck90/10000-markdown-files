@@ -78,3 +78,9 @@ Seven flung down stupid.
 Will you how eagerly
 : An invitation for instance suppose That he doesn't like then followed it and repeated with draggled
 
+
+## Wikilinks load test
+
+[[unstable subjunctive]]
+[[boughless didion]]
+[[inheriting ragbag]]

@@ -88,3 +88,9 @@ Down the voice outside.
 Well I've something splashing
 : Soles and got so and bread-and butter in spite of dogs.
 
+
+## Wikilinks load test
+
+[[unmoved mustela rixosa]]
+[[award-winning psychiatric hospital]]
+[[metallurgical false indigo]]

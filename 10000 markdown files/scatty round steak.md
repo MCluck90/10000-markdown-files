@@ -85,3 +85,9 @@ Please would hardly enough
 Pinch him with blacking
 : It'll be patted on then we had meanwhile been jumping up but thought still
 
+
+## Wikilinks load test
+
+[[opening corneum]]
+[[candid slag code]]
+[[outstanding confederate jasmine]]

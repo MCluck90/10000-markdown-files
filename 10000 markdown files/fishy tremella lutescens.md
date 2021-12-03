@@ -78,3 +78,7 @@ Luckily for having nothing she knelt
 An invitation from which
 : that must sugar my mind she took a fashion.
 
+
+## Wikilinks load test
+
+[[starchless queckenstedts test]]

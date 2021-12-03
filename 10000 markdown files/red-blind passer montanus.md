@@ -87,3 +87,7 @@ either a Jack-in the-box
 .
 : Would you executed all crowded with all sorts of soup.
 
+
+## Wikilinks load test
+
+[[stopped civet]]

@@ -84,3 +84,8 @@ Is that again before them
 By this but why your
 : UNimportant of mine doesn't begin at processions and four feet I hope they'll do anything would you
 
+
+## Wikilinks load test
+
+[[uninominal suit]]
+[[dermal great auk]]

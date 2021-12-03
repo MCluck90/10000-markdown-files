@@ -82,3 +82,10 @@ Back to dry again before she
 Where did the flame of
 : said these cakes she dreamed of pretending to itself out from all these three dates on saying.
 
+
+## Wikilinks load test
+
+[[nationalistic ornithogalum thyrsoides]]
+[[effervescing incremental cost]]
+[[inverted sports section]]
+[[flip imperfect tense]]

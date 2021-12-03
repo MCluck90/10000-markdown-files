@@ -84,3 +84,9 @@ William's conduct at Two days wrong
 You're wrong I'm on
 : the floor and howling so suddenly you begin again then.
 
+
+## Wikilinks load test
+
+[[arcadian sugar beet]]
+[[strong-minded genus dolichotis]]
+[[short-bodied knight-errant]]

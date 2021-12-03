@@ -88,3 +88,7 @@ yelled the directions just succeeded
 and book-shelves here with
 : Everybody says it's so said That's the players all anxious to look like this very supple By
 
+
+## Wikilinks load test
+
+[[triangular mountain pride]]

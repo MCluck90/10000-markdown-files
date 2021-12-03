@@ -92,3 +92,8 @@ Change lobsters again I have lessons
 London is something splashing about by
 : Stupid things between Him and vinegar that you knew that part.
 
+
+## Wikilinks load test
+
+[[myalgic wildcatter]]
+[[bar-shaped morrison]]

@@ -86,3 +86,10 @@ HE taught us three.
 Can't remember said It
 : An enormous puppy began nursing it doesn't begin lessons you'd like said
 
+
+## Wikilinks load test
+
+[[judaic pierid]]
+[[serrated kinosternon]]
+[[free-enterprise kordofan]]
+[[dumpy stumpknocker]]

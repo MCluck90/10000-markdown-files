@@ -80,3 +80,7 @@ Heads below and get
 May it stop.
 : Tell me giddy.
 
+
+## Wikilinks load test
+
+[[upstream duke university]]

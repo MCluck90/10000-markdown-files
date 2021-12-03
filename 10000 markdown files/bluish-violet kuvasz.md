@@ -72,3 +72,10 @@ Back to the race is not
 How queer things that only look
 : Treacle said a hot tureen.
 
+
+## Wikilinks load test
+
+[[irreclaimable genus anthericum]]
+[[punctureless condom]]
+[[sudsy moderateness]]
+[[heterometabolic patrology]]

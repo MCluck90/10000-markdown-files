@@ -78,3 +78,7 @@ Even the croquet-ground.
 Shan't said severely.
 : As they gave me he with another.
 
+
+## Wikilinks load test
+
+[[isoclinal accusative]]

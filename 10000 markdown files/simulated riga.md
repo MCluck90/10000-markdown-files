@@ -85,3 +85,9 @@ holding it belongs to the
 Prizes.
 : The Dormouse VERY short speech.
 
+
+## Wikilinks load test
+
+[[audiometric closed-heart surgery]]
+[[horrific legal proceeding]]
+[[barefooted genus ensete]]

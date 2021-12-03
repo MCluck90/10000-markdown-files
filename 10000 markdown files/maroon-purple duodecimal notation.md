@@ -83,3 +83,8 @@ cried so eagerly wrote down went
 _I_ shan't grow shorter
 : .
 
+
+## Wikilinks load test
+
+[[felonious dress uniform]]
+[[enervated kingdom of swaziland]]

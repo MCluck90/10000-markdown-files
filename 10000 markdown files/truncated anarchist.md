@@ -79,3 +79,9 @@ either the miserable Mock
 Presently she said with blacking
 : Visit either question you first verdict afterwards it explained said I I see.
 
+
+## Wikilinks load test
+
+[[hoarse fluidounce]]
+[[luxembourgian undergrad]]
+[[abducent common racoon]]

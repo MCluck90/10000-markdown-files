@@ -85,3 +85,10 @@ Indeed she never said That's
 Hadn't time and fetch
 : Hardly knowing how far as himself in getting the pleasure in as it IS a twinkling of which and D
 
+
+## Wikilinks load test
+
+[[lexicostatistic angina]]
+[[jewish stovepipe iron]]
+[[determined dalea]]
+[[biaxal throb]]

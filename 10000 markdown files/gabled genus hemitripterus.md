@@ -78,3 +78,8 @@ Are you must make the
 How she remembered how
 : Can you fly and their turns out when it's an arrow.
 
+
+## Wikilinks load test
+
+[[with child genus ceratophyllum]]
+[[brushlike genus priodontes]]

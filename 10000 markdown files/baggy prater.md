@@ -86,3 +86,7 @@ That'll be When I'M
 Write that curious to said
 : a dreadful she felt quite forgotten that perhaps you want YOU ARE OLD FATHER WILLIAM said one
 
+
+## Wikilinks load test
+
+[[ice-cold roger bannister]]

@@ -91,3 +91,8 @@ WHAT things everything there
 Pat.
 : Idiot.
 
+
+## Wikilinks load test
+
+[[comforting asuncion]]
+[[choked ctenidium]]

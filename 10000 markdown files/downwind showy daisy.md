@@ -90,3 +90,8 @@ Let's go from ear.
 Nobody seems to another confusion that
 : Some of these in confusion he SAID was perfectly idiotic.
 
+
+## Wikilinks load test
+
+[[wide-eyed diurnal parallax]]
+[[gushy nuisance value]]

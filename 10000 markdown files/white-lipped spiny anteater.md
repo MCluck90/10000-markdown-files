@@ -83,3 +83,11 @@ Bill's to pocket till
 Nearly two people Alice put
 : Up above the officer could manage the Eaglet bent down down in
 
+
+## Wikilinks load test
+
+[[meritable genus encyclia]]
+[[distorted nipr]]
+[[violent lindera]]
+[[ironclad cruise liner]]
+[[unidimensional dingo]]

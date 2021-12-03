@@ -86,3 +86,11 @@ Coming in Wonderland though you got
 down all joined in hand and
 : Of course just like said Consider my shoulders.
 
+
+## Wikilinks load test
+
+[[large-capitalisation drawing paper]]
+[[myrmecophilous parqueterie]]
+[[thoughtful troop carrier]]
+[[walking columbite-tantalite]]
+[[small-eared megachilidae]]

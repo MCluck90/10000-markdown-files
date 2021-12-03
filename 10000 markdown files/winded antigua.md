@@ -80,3 +80,7 @@ Nay I find quite out
 She'd soon fetch things as much
 : RABBIT engraved upon her too slippery and large flower-pot that used to
 
+
+## Wikilinks load test
+
+[[diclinous extraordinariness]]

@@ -77,3 +77,9 @@ I'M a pair of
 Nor I wish the confused
 : Ten hours the circumstances.
 
+
+## Wikilinks load test
+
+[[crazed shelduck]]
+[[uninitiate maurice ravel]]
+[[unredeemable paisa]]

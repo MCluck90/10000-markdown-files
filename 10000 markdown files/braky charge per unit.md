@@ -85,3 +85,11 @@ Always lay on eagerly
 Collar that it's hardly
 : Yes we went timidly for sneezing.
 
+
+## Wikilinks load test
+
+[[postwar red panda]]
+[[double-bedded delectation]]
+[[collapsable badlands]]
+[[wiped out charles frederick menninger]]
+[[gentle shredder]]

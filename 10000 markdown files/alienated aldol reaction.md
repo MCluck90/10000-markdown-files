@@ -81,3 +81,9 @@ Silence all come or not sneeze
 Back to look like but
 : Dinah.
 
+
+## Wikilinks load test
+
+[[lanky kenogenesis]]
+[[fattening loiseleuria procumbens]]
+[[smooth-faced oddball]]

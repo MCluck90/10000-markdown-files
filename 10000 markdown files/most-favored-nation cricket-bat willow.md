@@ -73,3 +73,8 @@ Soup is to-day.
 sighed deeply with closed
 : At last.
 
+
+## Wikilinks load test
+
+[[horn-rimmed lawmaking]]
+[[disfranchised acipenser]]

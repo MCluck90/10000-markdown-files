@@ -86,3 +86,9 @@ Nor I NEVER get dry me
 for you sooner or so said
 : Alas.
 
+
+## Wikilinks load test
+
+[[underhanded bolshie]]
+[[zillion flashiness]]
+[[behavioural walk-in]]

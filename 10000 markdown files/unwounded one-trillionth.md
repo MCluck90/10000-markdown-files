@@ -87,3 +87,10 @@ from here poor Alice soon left
 I'd rather a Dodo
 : Sixteenth added to stoop.
 
+
+## Wikilinks load test
+
+[[kind teiid lizard]]
+[[thick-skinned mimer]]
+[[teachable slapshot]]
+[[anile frequentative]]

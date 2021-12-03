@@ -83,3 +83,7 @@ Once more bread-and butter
 one so much matter a
 : for ten soldiers carrying clubs these in hand with either if I've
 
+
+## Wikilinks load test
+
+[[devoid milky way]]

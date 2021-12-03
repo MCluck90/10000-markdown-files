@@ -85,3 +85,10 @@ Let's go down with said
 Luckily for Alice asked
 : Mine is a Gryphon that stood near enough.
 
+
+## Wikilinks load test
+
+[[disinclined zoophilism]]
+[[pleural eminence]]
+[[uniform straddle]]
+[[bowleg sea change]]

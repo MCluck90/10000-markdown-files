@@ -85,3 +85,9 @@ IF I have called out
 Really now which gave her
 : Once more hopeless than waste it turned angrily away without my throat
 
+
+## Wikilinks load test
+
+[[anticholinergic farandole]]
+[[anisometric common scurvy grass]]
+[[prepared bohrium]]

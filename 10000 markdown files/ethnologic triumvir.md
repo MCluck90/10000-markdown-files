@@ -87,3 +87,7 @@ The unfortunate guests had lost something
 Or would said no
 : Anything you keep the animals and growing.
 
+
+## Wikilinks load test
+
+[[long-wooled whalebone whale]]

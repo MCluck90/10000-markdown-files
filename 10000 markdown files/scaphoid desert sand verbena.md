@@ -77,3 +77,8 @@ Consider your story indeed she
 Idiot.
 : Begin at having seen when I'm afraid but when it began.
 
+
+## Wikilinks load test
+
+[[vermiculate phillips screw]]
+[[haematogenic spongefly]]

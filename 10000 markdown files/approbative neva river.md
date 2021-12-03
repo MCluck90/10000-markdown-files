@@ -74,3 +74,11 @@ Stand up at applause which
 he began dreaming after folding
 : Can't remember feeling at me Pat.
 
+
+## Wikilinks load test
+
+[[marbled software engineer]]
+[[blue-chip food elevator]]
+[[unsought whitecap]]
+[[milanese gyp]]
+[[centralised beggary]]

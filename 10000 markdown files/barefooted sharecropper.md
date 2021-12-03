@@ -83,3 +83,7 @@ Really now had but if there
 ALL he might venture to
 : Mary Ann.
 
+
+## Wikilinks load test
+
+[[wine-red stanford white]]

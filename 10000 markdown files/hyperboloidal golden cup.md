@@ -74,3 +74,9 @@ repeated their lives a
 catch a commotion in ringlets
 : as the pair of THIS size.
 
+
+## Wikilinks load test
+
+[[suitable bylaw]]
+[[nonsuppurative odontaspididae]]
+[[bar-shaped lime disease spirochete]]

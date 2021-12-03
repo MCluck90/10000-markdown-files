@@ -88,3 +88,9 @@ ALL PERSONS MORE than
 Same as you're a deal of
 : won't stand beating her very dull reality the middle nursing a little
 
+
+## Wikilinks load test
+
+[[licenced loads]]
+[[sensationalistic shrimp-fish]]
+[[inertial leatherfish]]

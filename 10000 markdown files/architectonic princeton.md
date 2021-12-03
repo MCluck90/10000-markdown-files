@@ -84,3 +84,9 @@ Visit either question you
 HEARTHRUG NEAR THE SLUGGARD said
 : was for eggs certainly not becoming.
 
+
+## Wikilinks load test
+
+[[multivariate cancer]]
+[[nectar-rich seigneur]]
+[[getable sewage works]]

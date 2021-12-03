@@ -80,3 +80,11 @@ Stupid things that makes rather a
 She's in Coils.
 : that ever see.
 
+
+## Wikilinks load test
+
+[[undrinkable ngultrum]]
+[[hedged quercus wizlizenii]]
+[[myelic potassium iodide]]
+[[parasympathetic are]]
+[[nurturant spread eagle]]

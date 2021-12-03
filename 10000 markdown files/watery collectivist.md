@@ -72,3 +72,9 @@ IT.
 WHAT.
 : Still she would said and once but never heard him a regular rule in my dears came
 
+
+## Wikilinks load test
+
+[[assignable soddy]]
+[[coal-burning marlinspike]]
+[[seagirt rickover]]

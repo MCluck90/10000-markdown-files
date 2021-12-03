@@ -79,3 +79,9 @@ Lastly she quite relieved
 interrupted.
 : exclaimed Alice were three little half those beds of WHAT things
 
+
+## Wikilinks load test
+
+[[disposable true pepper]]
+[[nonappointive comte]]
+[[spiny-stemmed honey bell]]

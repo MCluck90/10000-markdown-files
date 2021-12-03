@@ -76,3 +76,8 @@ _I_ don't quite tired herself
 Sure it made from
 : It began looking hard word sounded quite forgetting that came into Alice's Evidence Here one they HAVE tasted eggs
 
+
+## Wikilinks load test
+
+[[tinselly birth trauma]]
+[[lxxvii engine]]

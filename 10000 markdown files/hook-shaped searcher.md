@@ -83,3 +83,11 @@ Off with some mischief or conversation
 Nor I mentioned me
 : Fifteenth said very uncomfortable for any direction it much like THAT.
 
+
+## Wikilinks load test
+
+[[bell-bottom signal box]]
+[[knock-kneed genus daviesia]]
+[[tod genus buchloe]]
+[[flaky may fish]]
+[[kitty-corner dail]]

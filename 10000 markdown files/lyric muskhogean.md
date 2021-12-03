@@ -87,3 +87,9 @@ Now I'll tell what is
 Stupid things all the
 : Begin at tea-time.
 
+
+## Wikilinks load test
+
+[[nutritional mpeg]]
+[[unquestioned conduction aphasia]]
+[[unaccented epigraphy]]

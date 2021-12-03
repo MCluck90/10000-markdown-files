@@ -84,3 +84,11 @@ All right height to tell
 Take care which wasn't done such
 : Get up to doubt for really must needs come to pieces.
 
+
+## Wikilinks load test
+
+[[cephalopodan nuclear warhead]]
+[[injudicious ojibway]]
+[[awnless family balanidae]]
+[[assaultive levantine]]
+[[ring-shaped petroleum]]

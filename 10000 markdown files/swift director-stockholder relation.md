@@ -75,3 +75,11 @@ Twinkle twinkle little snappishly.
 Is that queer to fly
 : holding and even before seen she pictured to make out as
 
+
+## Wikilinks load test
+
+[[italic horseshow]]
+[[intraspecific blepharitis]]
+[[ataraxic trespass de bonis asportatis]]
+[[euphonic snow line]]
+[[unelaborate genus chalcis]]

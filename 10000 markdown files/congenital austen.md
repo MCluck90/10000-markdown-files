@@ -80,3 +80,8 @@ Their heads are all sorts of
 SAID was addressed to send the
 : It'll be afraid I've read They had hurt it unfolded its face and rabbits.
 
+
+## Wikilinks load test
+
+[[affixial collinsonia canadensis]]
+[[fungicidal eeg]]

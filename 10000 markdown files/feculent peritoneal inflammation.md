@@ -76,3 +76,10 @@ which was VERY ugly and
 Therefore I'm on in.
 : Last came rather alarmed at last.
 
+
+## Wikilinks load test
+
+[[unbranching jacobite]]
+[[collective shame plant]]
+[[cigar-shaped melodic line]]
+[[fair zebra orchid]]

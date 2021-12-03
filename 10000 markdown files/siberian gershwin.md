@@ -82,3 +82,7 @@ Fetch me out now for
 I've offended.
 : Sixteenth added aloud addressing nobody which certainly Alice alone.
 
+
+## Wikilinks load test
+
+[[incidental loaf of bread]]

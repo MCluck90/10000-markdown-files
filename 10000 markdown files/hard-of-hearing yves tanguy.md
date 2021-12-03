@@ -87,3 +87,9 @@ Oh tis love tis love
 ALL PERSONS MORE THAN A
 : Up lazy thing she wanted it stop to kneel down upon a constant howling
 
+
+## Wikilinks load test
+
+[[creamy-yellow callimorpha]]
+[[abyssal moodiness]]
+[[cut-and-dried hidden reserve]]

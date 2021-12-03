@@ -91,3 +91,11 @@ It'll be denied so
 Everything's got thrown out his sleep
 : No indeed and her.
 
+
+## Wikilinks load test
+
+[[strapless rat chinchilla]]
+[[orthodontic birth]]
+[[exterminated great-nephew]]
+[[farseeing chincapin]]
+[[libyan lithuresis]]

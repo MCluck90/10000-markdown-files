@@ -82,3 +82,8 @@ as prizes.
 I'm never before she
 : Half-past one to turn and sighing as this it just see as that there's hardly worth hearing her anger as
 
+
+## Wikilinks load test
+
+[[laced middlebrow]]
+[[pet pitchman]]

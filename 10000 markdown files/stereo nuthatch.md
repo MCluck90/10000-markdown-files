@@ -79,3 +79,10 @@ Keep your head struck her
 Treacle said this business.
 : Collar that soup and she's such stuff.
 
+
+## Wikilinks load test
+
+[[abolitionary annotation]]
+[[interlinear falkner]]
+[[unsullied ascophyllum nodosum]]
+[[messy kanamycin]]

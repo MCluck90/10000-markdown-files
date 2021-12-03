@@ -85,3 +85,9 @@ Where CAN I can
 a hurry.
 : With extras.
 
+
+## Wikilinks load test
+
+[[advective pesticide]]
+[[solvable hencoop]]
+[[blotched state department]]

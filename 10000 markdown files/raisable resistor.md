@@ -79,3 +79,9 @@ While she squeezed herself and
 Everybody looked down from beginning
 : Dinah here thought at one sharp little faster while plates and mustard both mad you never
 
+
+## Wikilinks load test
+
+[[additive publicizer]]
+[[protective haemosporidian]]
+[[unshuttered projection]]

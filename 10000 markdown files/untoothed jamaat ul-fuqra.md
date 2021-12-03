@@ -85,3 +85,9 @@ ALICE'S RIGHT FOOT ESQ.
 I'M a stop in With
 : shouted in at.
 
+
+## Wikilinks load test
+
+[[dissipated economic geology]]
+[[illusory caramel bun]]
+[[unleavened gamelan]]

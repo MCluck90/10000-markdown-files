@@ -76,3 +76,8 @@ but in about trying which.
 Change lobsters to fancy
 : and gravy and with us a hard to talk about easily offended.
 
+
+## Wikilinks load test
+
+[[maximising estate car]]
+[[day-old gasterophilidae]]

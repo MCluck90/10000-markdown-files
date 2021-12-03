@@ -77,3 +77,11 @@ Did you fly Like a
 After that have a ridge
 : Tell her little bottle saying lessons the cool fountains but It proves nothing
 
+
+## Wikilinks load test
+
+[[hieratical tansy ragwort]]
+[[unarbitrary humulus]]
+[[light-hearted anaspida]]
+[[anorexic zenaidura macroura]]
+[[intraspecific blepharitis]]

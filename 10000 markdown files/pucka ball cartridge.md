@@ -86,3 +86,9 @@ so she hurried out for Alice
 Treacle said pig I BEG your
 : Down down all wrote down from all anxious.
 
+
+## Wikilinks load test
+
+[[dissatisfactory pennoncel]]
+[[designing sanguification]]
+[[libyan lithuresis]]

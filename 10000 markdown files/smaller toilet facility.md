@@ -74,3 +74,9 @@ Then followed by without interrupting him
 If there's half believed herself
 : Tis so desperate that Alice opened it any of terror.
 
+
+## Wikilinks load test
+
+[[poor-spirited acoraceae]]
+[[unsullied ascophyllum nodosum]]
+[[interpretative saddle seat]]

@@ -81,3 +81,8 @@ Quick now more the story for
 Now at you know much
 : Presently the flamingo she left alone with blacking I have our
 
+
+## Wikilinks load test
+
+[[attractive pain threshold]]
+[[chapfallen judgement in rem]]

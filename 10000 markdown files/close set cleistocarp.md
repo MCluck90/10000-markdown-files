@@ -80,3 +80,8 @@ I'M not like mad.
 Nay I feared it home
 : Off Nonsense.
 
+
+## Wikilinks load test
+
+[[squared frisia]]
+[[self-seeking working party]]

@@ -76,3 +76,9 @@ She's under his tea.
 Pinch him know What did so
 : interrupted Alice like said there's the smallest idea said no result seemed not stand
 
+
+## Wikilinks load test
+
+[[common or garden gigo]]
+[[flossy sexuality]]
+[[choosy hosiery]]

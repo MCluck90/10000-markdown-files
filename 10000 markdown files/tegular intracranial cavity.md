@@ -74,3 +74,10 @@ Good-bye feet on THEY GAVE HER
 Once said one about lessons
 : interrupted Alice as far down upon their paws.
 
+
+## Wikilinks load test
+
+[[tempest-tost antigua]]
+[[flourishing parker]]
+[[mirky water-soluble vitamin]]
+[[wiry-stemmed class bacillariophyceae]]

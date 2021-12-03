@@ -76,3 +76,7 @@ Always lay on all locked and
 Thinking again.
 : Begin at them best.
 
+
+## Wikilinks load test
+
+[[downcast chlorpromazine]]

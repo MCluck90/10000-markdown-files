@@ -73,3 +73,7 @@ a dreamy sort it behind
 Same as long curly
 : Coming in bed.
 
+
+## Wikilinks load test
+
+[[repulsive moirae]]

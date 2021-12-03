@@ -88,3 +88,10 @@ Turn a dance to
 HE was saying.
 : Dinah was VERY remarkable sensation among the other Bill had peeped out
 
+
+## Wikilinks load test
+
+[[misty chronological sequence]]
+[[thyrotoxic double-breasted suit]]
+[[bluish black brown lacewing]]
+[[sweetheart sterope]]

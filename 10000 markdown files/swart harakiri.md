@@ -86,3 +86,10 @@ Sing her look askance
 Thank you liked.
 : Pat.
 
+
+## Wikilinks load test
+
+[[fain springing cow]]
+[[fossil izanami]]
+[[shakedown mustachio]]
+[[legato pterygoid muscle]]

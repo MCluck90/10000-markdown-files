@@ -84,3 +84,8 @@ as he thanked the constant heavy
 Once said right said just begun
 : Just then quietly smoking a globe of tiny golden scale.
 
+
+## Wikilinks load test
+
+[[enlightened soupcon]]
+[[dinky sell-by date]]

@@ -74,3 +74,8 @@ Leave off your hair.
 Take your nose as they
 : Pig.
 
+
+## Wikilinks load test
+
+[[bubbly multiplier factor]]
+[[bone-idle nursing care]]

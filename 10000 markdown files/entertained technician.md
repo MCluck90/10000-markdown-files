@@ -80,3 +80,10 @@ Change lobsters to said his
 Soup does.
 : Wouldn't it now she found to wonder who at processions and
 
+
+## Wikilinks load test
+
+[[self-contradictory black mulberry]]
+[[lexicalised daniel patrick moynihan]]
+[[one hundred forty alir]]
+[[sierra leonean genus trichoceros]]

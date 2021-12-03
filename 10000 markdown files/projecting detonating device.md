@@ -80,3 +80,10 @@ Chorus again very neatly
 Let's go and unlocking the
 : Ahem.
 
+
+## Wikilinks load test
+
+[[nodding revolutionary proletarian nucleus]]
+[[milch pyrausta nubilalis]]
+[[jiggered karaya gum]]
+[[pre-jurassic country of origin]]

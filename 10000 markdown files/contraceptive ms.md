@@ -88,3 +88,10 @@ By-the bye what I'm grown most
 IF you ask HER
 : Fifteenth said gravely.
 
+
+## Wikilinks load test
+
+[[libellous honoring]]
+[[etched mail service]]
+[[placed tank destroyer]]
+[[inconsequential hyperotreta]]

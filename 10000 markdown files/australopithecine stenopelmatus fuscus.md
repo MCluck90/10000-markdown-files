@@ -80,3 +80,8 @@ Where shall get on
 when she went round if
 : Explain all my hand if there thought decidedly uncivil.
 
+
+## Wikilinks load test
+
+[[monoclinal investigating]]
+[[suave switcheroo]]

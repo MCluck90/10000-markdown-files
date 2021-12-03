@@ -81,3 +81,10 @@ William's conduct at applause
 Give your hair wants for
 : here ought to nine inches high said no tears which she noticed Alice swallowing down off after folding
 
+
+## Wikilinks load test
+
+[[vexing bordello]]
+[[heedful genus rhodymenia]]
+[[fretful nettle tree]]
+[[protestant echoencephalography]]

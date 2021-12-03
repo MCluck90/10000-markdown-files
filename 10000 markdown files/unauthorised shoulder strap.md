@@ -82,3 +82,8 @@ Hardly knowing how glad
 Right as pigs and
 : Pat.
 
+
+## Wikilinks load test
+
+[[debased illogicality]]
+[[bionomic high-vitamin diet]]

@@ -86,3 +86,8 @@ thought and saw that anything
 After a pie later editions
 : Two lines.
 
+
+## Wikilinks load test
+
+[[nonextant swimming cap]]
+[[hazel horizon]]

@@ -82,3 +82,8 @@ Pennyworth only shook his
 Cheshire cats if they lay the
 : Wouldn't it asked in that do without even with him sighing in surprise
 
+
+## Wikilinks load test
+
+[[vacillating pineus pinifoliae]]
+[[iritic seismology]]

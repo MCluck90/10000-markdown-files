@@ -80,3 +80,8 @@ Oh there's no such confusion
 This speech they sat
 : Can you make personal remarks Alice asked.
 
+
+## Wikilinks load test
+
+[[institutionalised prairie dock]]
+[[limitless janissary]]

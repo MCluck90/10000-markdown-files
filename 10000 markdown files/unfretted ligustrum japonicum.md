@@ -81,3 +81,7 @@ Mind now hastily said
 I learn it sat silent for
 : Call it.
 
+
+## Wikilinks load test
+
+[[smooth-faced trifolium stoloniferum]]

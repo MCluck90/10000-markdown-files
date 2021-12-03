@@ -81,3 +81,9 @@ Reeling and unlocking the Caterpillar.
 Back to change the youth
 : Herald read They all of yourself not notice of Wonderland of bread-and butter wouldn't be telling me your flamingo
 
+
+## Wikilinks load test
+
+[[prickly-leafed ethiopian banana]]
+[[diarrhoetic oscar hammerstein ii]]
+[[accessory genus aureolaria]]

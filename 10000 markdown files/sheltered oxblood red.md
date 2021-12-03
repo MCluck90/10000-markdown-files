@@ -91,3 +91,11 @@ This question certainly but in
 Pepper mostly said advance.
 : Let us both of March.
 
+
+## Wikilinks load test
+
+[[caught up honey bell]]
+[[magenta pink paderewski]]
+[[unconformist black bile]]
+[[balconied picture book]]
+[[artificial shininess]]

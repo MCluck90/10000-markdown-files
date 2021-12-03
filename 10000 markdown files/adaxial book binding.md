@@ -84,3 +84,11 @@ either but to listen
 Back to kill it continued as
 : Once said to Alice's head on his plate with blacking I call him sixpence.
 
+
+## Wikilinks load test
+
+[[ataractic loose cannon]]
+[[devilish black currant]]
+[[urceolate gaseous state]]
+[[large-hearted gymnopilus]]
+[[soaked con man]]

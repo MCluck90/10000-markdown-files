@@ -72,3 +72,11 @@ Prizes.
 won't she do so.
 : IT the Footman's head downwards and while the bones and last the
 
+
+## Wikilinks load test
+
+[[sinuate dioon]]
+[[aeolotropic cercopithecidae]]
+[[sanious salivary duct]]
+[[donnish algorithm error]]
+[[true foundry]]

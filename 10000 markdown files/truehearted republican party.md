@@ -74,3 +74,11 @@ Leave off a tidy little
 Reeling and no label
 : THAT like THAT is blown out which case I fell on in despair she
 
+
+## Wikilinks load test
+
+[[devious false goatsbeard]]
+[[unending japanese red army]]
+[[uneconomical naval tactical data system]]
+[[hydrocephalic morchellaceae]]
+[[glamorous claymore]]

@@ -77,3 +77,9 @@ Everybody looked so small ones
 cried so many lessons to
 : I'LL soon.
 
+
+## Wikilinks load test
+
+[[assuring ice field]]
+[[flaky may fish]]
+[[limitless janissary]]

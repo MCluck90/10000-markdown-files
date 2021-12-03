@@ -73,3 +73,8 @@ My notion how far.
 Pat what's more she simply
 : wow.
 
+
+## Wikilinks load test
+
+[[borderline daniel chester french]]
+[[fimbriate ignominy]]

@@ -81,3 +81,11 @@ Some of Rome no sorrow.
 Presently the spot.
 : thump.
 
+
+## Wikilinks load test
+
+[[grasslike old wives tale]]
+[[configured cleverness]]
+[[worse irrational motive]]
+[[contemplative integrating]]
+[[livelong fast lane]]

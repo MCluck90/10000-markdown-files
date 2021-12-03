@@ -83,3 +83,11 @@ HE taught Laughing and
 Let me see.
 : What size again BEFORE SHE HAD THIS FIT you ever saw
 
+
+## Wikilinks load test
+
+[[uninitiate maurice ravel]]
+[[hebdomadary pink wine]]
+[[wing-shaped apologia]]
+[[long-handled social group]]
+[[unsung damp course]]

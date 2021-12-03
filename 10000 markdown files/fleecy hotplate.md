@@ -86,3 +86,8 @@ WHAT.
 Shy they walked off together
 : persisted.
 
+
+## Wikilinks load test
+
+[[sinewy killarney fern]]
+[[restrictive laurelwood]]

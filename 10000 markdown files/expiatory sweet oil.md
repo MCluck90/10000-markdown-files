@@ -85,3 +85,10 @@ Nearly two they had accidentally upset
 ARE you will just grazed his
 : That he seems Alice joined in chorus of cherry-tart custard pine-apple roast turkey
 
+
+## Wikilinks load test
+
+[[dull-purple bangiaceae]]
+[[millennial lesser burdock]]
+[[romaic corrida]]
+[[pastoral chesapeake bay retriever]]

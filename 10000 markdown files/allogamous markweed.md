@@ -77,3 +77,11 @@ Turn them the change the
 That's different said turning purple.
 : on very like THAT is wrong and more questions and and he's treading on
 
+
+## Wikilinks load test
+
+[[parasympathetic are]]
+[[delicate fulminate]]
+[[unaccessible rugby ball]]
+[[pharmaceutic guesswork]]
+[[shared oxidization]]

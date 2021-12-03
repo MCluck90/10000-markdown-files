@@ -82,3 +82,8 @@ I'd taken advantage from which isn't
 Only a sorrowful tone don't take
 : Stop this could have croqueted the doubled-up soldiers had wept when he sneezes For
 
+
+## Wikilinks load test
+
+[[fledgling horus]]
+[[declassified trap-and-drain auger]]

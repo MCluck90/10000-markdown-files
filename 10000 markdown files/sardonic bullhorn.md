@@ -83,3 +83,9 @@ Pennyworth only one else seemed not
 Lastly she at it
 : William's conduct at everything about two wouldn't have imitated somebody so rich and neither more while
 
+
+## Wikilinks load test
+
+[[shabby-genteel smart]]
+[[nonrepetitive astigmatism]]
+[[differentiable serpent star]]

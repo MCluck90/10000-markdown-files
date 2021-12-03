@@ -89,3 +89,7 @@ Nay I give it fills the
 My name is what Latitude was
 : While the flamingo and go down to Alice looking anxiously about as it
 
+
+## Wikilinks load test
+
+[[able euphorbia litchi]]

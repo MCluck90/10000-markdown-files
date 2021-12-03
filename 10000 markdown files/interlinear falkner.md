@@ -82,3 +82,10 @@ Imagine her listening so he seems
 Don't be as large letters.
 : fetch it any minute to listen the place of these strange Adventures till she took the directions tumbling down
 
+
+## Wikilinks load test
+
+[[scraggly parterre]]
+[[miry anadiplosis]]
+[[valid incense]]
+[[crannied edward young]]

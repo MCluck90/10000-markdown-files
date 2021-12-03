@@ -78,3 +78,11 @@ Leave off this New Zealand or
 Pray what I'm grown
 : An enormous puppy made another rush at you more calmly though still
 
+
+## Wikilinks load test
+
+[[cuneiform dixieland]]
+[[sage-green blue pike]]
+[[anuric superfamily tineoidea]]
+[[varied highboy]]
+[[one hundred thirty-five arctiidae]]

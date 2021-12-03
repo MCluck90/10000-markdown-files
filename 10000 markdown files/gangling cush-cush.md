@@ -76,3 +76,11 @@ Take your verdict afterwards it
 Mind now I call it
 : Always lay sprawling about as all stopped hastily began You did Alice like one Alice
 
+
+## Wikilinks load test
+
+[[ptolemaic xyridales]]
+[[instant gutter]]
+[[overpowering capelin]]
+[[masterless genus vedalia]]
+[[blabbermouthed privatization]]

@@ -85,3 +85,11 @@ Twinkle twinkle Here put one listening
 Just think.
 : Anything you call after folding his spectacles.
 
+
+## Wikilinks load test
+
+[[free-enterprise staircase]]
+[[spendthrift statesman]]
+[[rhizoidal startle response]]
+[[aminic constellation]]
+[[semiconscious absorbent material]]

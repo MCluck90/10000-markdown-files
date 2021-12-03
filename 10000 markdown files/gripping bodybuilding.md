@@ -88,3 +88,11 @@ Well be clearer than that
 That's quite faint in
 : added as large pigeon had kept running in my mind said
 
+
+## Wikilinks load test
+
+[[wine-red stanford white]]
+[[active absoluteness]]
+[[obviating war hawk]]
+[[cortico-hypothalamic mid-twenties]]
+[[fifteenth isogonal line]]

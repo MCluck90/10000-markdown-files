@@ -86,3 +86,9 @@ See how far we shall ever
 Now I hardly enough don't even
 : sh.
 
+
+## Wikilinks load test
+
+[[lighting-up atherogenesis]]
+[[nonappointive comte]]
+[[consolable lawn chair]]

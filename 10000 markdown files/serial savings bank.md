@@ -89,3 +89,9 @@ exclaimed.
 Nothing WHATEVER.
 : Alas.
 
+
+## Wikilinks load test
+
+[[energizing calochortus elegans]]
+[[pointillist grand total]]
+[[pessimum crude]]

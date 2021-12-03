@@ -83,3 +83,11 @@ Shy they went out
 Just about again using the smallest
 : a bit again Ou est ma chatte.
 
+
+## Wikilinks load test
+
+[[largish buckbean]]
+[[unthoughtful claxon]]
+[[expansile telephone service]]
+[[ruinous erivan]]
+[[jetting kilobyte]]

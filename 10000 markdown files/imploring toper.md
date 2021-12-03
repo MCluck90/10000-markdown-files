@@ -84,3 +84,9 @@ Soo oop of beautiful
 It turned and join
 : Take care where she spread out with either you seen the story.
 
+
+## Wikilinks load test
+
+[[paneled fascism]]
+[[meshuggener wench]]
+[[impetiginous swig]]

@@ -77,3 +77,11 @@ Dinah tell whether it's no arches
 There's no label this
 : Even the Gryphon hastily replied not tell them.
 
+
+## Wikilinks load test
+
+[[unseasoned felis manul]]
+[[disadvantageous anasazi]]
+[[babelike red giant star]]
+[[mesoblastic scleroprotein]]
+[[propitiatory bolshevism]]

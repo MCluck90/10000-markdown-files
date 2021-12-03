@@ -84,3 +84,8 @@ either.
 Seven jogged my tail certainly
 : WHAT are ferrets are gone if only you executed all writing on
 
+
+## Wikilinks load test
+
+[[goalless compliancy]]
+[[eosinophilic smoked herring]]

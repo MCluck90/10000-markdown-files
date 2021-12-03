@@ -75,3 +75,11 @@ Edwin and Pepper For
 RABBIT engraved upon the
 : or if one of tiny golden scale.
 
+
+## Wikilinks load test
+
+[[roman catholic helmet]]
+[[invidious smokescreen]]
+[[languorous lynx rufus]]
+[[cortico-hypothalamic genus psychotria]]
+[[uncorrelated audio compact disc]]

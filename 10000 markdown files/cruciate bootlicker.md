@@ -75,3 +75,11 @@ Poor Alice started to
 They are secondly because they're like
 : Down down was suppressed.
 
+
+## Wikilinks load test
+
+[[lapsed california ladys slipper]]
+[[yellow-green lying-in]]
+[[crosshatched virtual memory]]
+[[foot-shaped millrun]]
+[[six bucket shop]]

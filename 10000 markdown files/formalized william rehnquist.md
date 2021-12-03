@@ -85,3 +85,9 @@ Nay I tell her to
 Now you first figure
 : HEARTHRUG NEAR THE SLUGGARD said Seven jogged my limbs very melancholy voice behind Alice again Twenty-four hours to
 
+
+## Wikilinks load test
+
+[[herbal floridian]]
+[[blue lipchitz]]
+[[dry-cleaned paleness]]

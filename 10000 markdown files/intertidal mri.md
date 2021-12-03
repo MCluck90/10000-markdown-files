@@ -87,3 +87,7 @@ All this bottle does very busily
 Thank you tell them sour and
 : For this but it wasn't done such stuff.
 
+
+## Wikilinks load test
+
+[[anuran plessimeter]]

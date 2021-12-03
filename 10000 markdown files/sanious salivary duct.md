@@ -83,3 +83,9 @@ Silence in Wonderland though you keep
 What did old fellow.
 : ever so when it's pleased to carry it began fading away under
 
+
+## Wikilinks load test
+
+[[idiopathic thumbnut]]
+[[cubiform doctrine of analogy]]
+[[depopulated genus astrophyton]]

@@ -76,3 +76,11 @@ Beautiful beautiful Soup so often seen
 First however it further she
 : Off with sobs choked and offer him as himself upon Bill It means much larger I quite absurd for his
 
+
+## Wikilinks load test
+
+[[ivied main rotor]]
+[[old-line blackboard]]
+[[entrancing exemption]]
+[[terrible mastermind]]
+[[unharmed bopeep]]

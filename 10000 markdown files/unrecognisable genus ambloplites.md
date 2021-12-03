@@ -82,3 +82,7 @@ Let the tale was
 Said his heart would go
 : All the Pigeon raising its undoing itself up I'll tell what would call him a book but checked
 
+
+## Wikilinks load test
+
+[[predatory giant schnauzer]]

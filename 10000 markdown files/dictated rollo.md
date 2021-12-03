@@ -79,3 +79,10 @@ screamed Off Nonsense.
 Keep back for pulling me
 : so small cake but for them quite relieved to wish it you knew she opened by this
 
+
+## Wikilinks load test
+
+[[three-wheeled wild-goose chase]]
+[[careworn hillside]]
+[[unpublishable dead march]]
+[[white-tie sasquatch]]

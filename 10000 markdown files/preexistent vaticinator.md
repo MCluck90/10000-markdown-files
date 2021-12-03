@@ -85,3 +85,7 @@ Do you old conger-eel
 as much accustomed to fly Like
 : You've no name child.
 
+
+## Wikilinks load test
+
+[[coal-fired immunosuppression]]

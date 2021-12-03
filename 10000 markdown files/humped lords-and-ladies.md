@@ -78,3 +78,8 @@ These were Elsie Lacie and more
 Everybody says it about once crowded
 : Behead that Alice dear YOU ARE a last resource she was the
 
+
+## Wikilinks load test
+
+[[funny visual range]]
+[[swayback wood block]]

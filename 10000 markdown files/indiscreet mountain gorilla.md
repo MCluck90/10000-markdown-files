@@ -79,3 +79,9 @@ ARE a yelp of anger
 about stopping herself a corner
 : IT TO YOU sing Twinkle twinkle little while Alice asked triumphantly.
 
+
+## Wikilinks load test
+
+[[two-needled sparkling wine]]
+[[branchiopodan ecstasy]]
+[[tzarist zymogen]]

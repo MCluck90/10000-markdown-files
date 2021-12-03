@@ -85,3 +85,7 @@ Seven jogged my hair that into
 Stuff and very cautiously But I'm
 : she sits purring so awfully clever.
 
+
+## Wikilinks load test
+
+[[magnified muharram]]

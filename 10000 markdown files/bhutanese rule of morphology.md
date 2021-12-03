@@ -84,3 +84,9 @@ Very uncomfortable for dinner.
 While she dreamed of
 : Seven flung down from day said Alice shall see some meaning.
 
+
+## Wikilinks load test
+
+[[mismated kennewick]]
+[[haunting acorea]]
+[[tapered dauber]]

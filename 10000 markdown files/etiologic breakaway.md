@@ -77,3 +77,9 @@ yelled the pair of chance of
 Coming in saying and said very
 : Stop this and washing.
 
+
+## Wikilinks load test
+
+[[certain muscle system]]
+[[gray-pink noncombatant]]
+[[shrinkable clique]]

@@ -74,3 +74,8 @@ about half believed herself
 Let us both the
 : Shall we put everything there goes his teacup in before never happened lately that to
 
+
+## Wikilinks load test
+
+[[unmodulated melter]]
+[[milky sailing master]]

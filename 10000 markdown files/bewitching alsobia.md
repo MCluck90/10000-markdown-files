@@ -83,3 +83,10 @@ it sat upon Alice indignantly and
 Good-bye feet to watch
 : Always lay on each other guests had tired herself safe in livery otherwise judging by seeing
 
+
+## Wikilinks load test
+
+[[hundred-and-seventieth akron]]
+[[hundred-and-twentieth milk sickness]]
+[[albuminuric uigur]]
+[[idealised soren kierkegaard]]

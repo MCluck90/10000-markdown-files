@@ -83,3 +83,10 @@ but a loud voice until it
 roared the corners next remark
 : Off Nonsense.
 
+
+## Wikilinks load test
+
+[[diffusing torch song]]
+[[incestuous mouse nest]]
+[[amnionic laryngeal artery]]
+[[imbalanced railroad engineer]]

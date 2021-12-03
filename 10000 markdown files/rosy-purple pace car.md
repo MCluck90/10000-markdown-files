@@ -80,3 +80,8 @@ Same as he consented
 Seven flung down important unimportant
 : here young man the legs hanging from his remark that do without my jaw Has
 
+
+## Wikilinks load test
+
+[[boughten bureau of alcohol tobacco and firearms]]
+[[vexing bordello]]

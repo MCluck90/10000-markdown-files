@@ -78,3 +78,11 @@ No accounting for Mabel I'll manage
 She'd soon fetch her
 : Nothing can talk.
 
+
+## Wikilinks load test
+
+[[ongoing power meter]]
+[[cubiform doctrine of analogy]]
+[[off-line vintager]]
+[[catarrhal plavix]]
+[[swordlike staffordshire bull terrier]]

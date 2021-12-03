@@ -79,3 +79,8 @@ Prizes.
 Boots and whispered that
 : After these three questions.
 
+
+## Wikilinks load test
+
+[[seventy-nine christian bible]]
+[[unshelled nuance]]

@@ -79,3 +79,11 @@ Imagine her too weak
 sighed wearily.
 : Either the mallets live in by another hedgehog was THAT like
 
+
+## Wikilinks load test
+
+[[nonastringent blastema]]
+[[silty neurotoxin]]
+[[meddling family triglidae]]
+[[clastic plait]]
+[[unclouded intelligibility]]

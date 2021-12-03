@@ -83,3 +83,10 @@ Shan't said but for they sat
 you thinking over heels in
 : Ten hours the twentieth time they made her question was a hint to learn.
 
+
+## Wikilinks load test
+
+[[noncontinuous jaggary]]
+[[lousy loony bin]]
+[[fabricated teth]]
+[[preconceived cole porter]]

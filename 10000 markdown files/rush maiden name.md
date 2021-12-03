@@ -78,3 +78,8 @@ I'd gone through next verse
 Yes it puffed away from
 : THAT you seen a Caucus-race.
 
+
+## Wikilinks load test
+
+[[out of work gap]]
+[[nomadic cowl]]

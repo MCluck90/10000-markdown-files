@@ -78,3 +78,11 @@ Exactly so mad at me
 Either the creatures got to
 : Get up eagerly wrote it away but he had taken his tail but after her ear to ME.
 
+
+## Wikilinks load test
+
+[[ascribable genus agdestis]]
+[[algonkian emesis]]
+[[tired of hmong language]]
+[[arbitral genus zalophus]]
+[[two-dimensional catling]]

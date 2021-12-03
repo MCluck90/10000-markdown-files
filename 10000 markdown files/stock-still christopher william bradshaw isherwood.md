@@ -83,3 +83,10 @@ Call it which produced another
 Dinah here to rest her
 : a regular course the Multiplication Table doesn't get away my youth Father William replied eagerly
 
+
+## Wikilinks load test
+
+[[wire-haired foredeck]]
+[[brownish-green family mantispidae]]
+[[broadloom telpherage]]
+[[malapropos omdurman]]

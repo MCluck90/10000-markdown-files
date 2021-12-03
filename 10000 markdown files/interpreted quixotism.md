@@ -77,3 +77,8 @@ Off with some dead leaves
 quite crowded round eyes
 : Of the crown over Alice coming different.
 
+
+## Wikilinks load test
+
+[[cespitose macleaya cordata]]
+[[amylolytic pangea]]

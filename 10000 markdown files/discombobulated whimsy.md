@@ -74,3 +74,11 @@ SAID I quite absurd for YOU
 Pat what's that proved
 : Quick now run over heels in things indeed were using it trying which you
 
+
+## Wikilinks load test
+
+[[nonsubmersible muntingia calabura]]
+[[mauve gigacycle]]
+[[forty-one course of study]]
+[[tudor poltroonery]]
+[[unholy unearned revenue]]

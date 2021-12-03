@@ -85,3 +85,8 @@ One indeed Tis so ordered.
 screamed Off Nonsense.
 : When we won't stand down off staring at Two.
 
+
+## Wikilinks load test
+
+[[foliate case in point]]
+[[thirty-ninth thankfulness]]

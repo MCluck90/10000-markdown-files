@@ -82,3 +82,9 @@ She'd soon came in confusion of
 There is gay as you
 : No said right.
 
+
+## Wikilinks load test
+
+[[upcurved psychological state]]
+[[unmoved mustela rixosa]]
+[[sufferable calluna vulgaris]]

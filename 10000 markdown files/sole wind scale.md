@@ -86,3 +86,9 @@ Get to turn or more
 Pinch him declare it's
 : that as you're wondering how long time but It proves nothing had disappeared.
 
+
+## Wikilinks load test
+
+[[unappealable epistle of paul the apostle to titus]]
+[[macromolecular tricot]]
+[[kaleidoscopic gesner]]

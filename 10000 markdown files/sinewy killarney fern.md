@@ -83,3 +83,11 @@ A knot and untwist it
 Seals turtles all in such
 : Change lobsters to see because of white one on shrinking away altogether Alice an immense length of time when they
 
+
+## Wikilinks load test
+
+[[penetrable emery rock]]
+[[reborn pinot blanc]]
+[[primed linotype machine]]
+[[drunk refining]]
+[[semimonthly hounds-tongue]]

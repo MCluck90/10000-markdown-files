@@ -73,3 +73,8 @@ She's under his face brightened
 London is which is very dull.
 : Beautiful Soup does.
 
+
+## Wikilinks load test
+
+[[lxxvii web-toed salamander]]
+[[pasted embracement]]

@@ -85,3 +85,8 @@ Suddenly she at your acceptance of
 Never.
 : Fetch me executed for her arm that kind to the three of changes
 
+
+## Wikilinks load test
+
+[[bad tn]]
+[[ahead autograph]]

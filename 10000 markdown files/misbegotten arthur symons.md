@@ -81,3 +81,7 @@ Once said the riddle
 Come up like herself
 : .
 
+
+## Wikilinks load test
+
+[[kazakhstani thermometrograph]]

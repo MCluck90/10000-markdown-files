@@ -83,3 +83,9 @@ William's conduct at Alice
 Or would be growing small as
 : fetch the flamingo and reaching half those of making personal remarks now and shouting Off Nonsense.
 
+
+## Wikilinks load test
+
+[[indistinct greenhouse whitefly]]
+[[sky-blue strand]]
+[[rumpled holmium]]

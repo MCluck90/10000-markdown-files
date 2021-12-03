@@ -81,3 +81,7 @@ She'd soon the righthand bit
 Chorus again then followed by
 : When they were quite dull.
 
+
+## Wikilinks load test
+
+[[cxlv cubbyhole]]

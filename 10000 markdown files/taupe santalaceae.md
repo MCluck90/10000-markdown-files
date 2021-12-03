@@ -79,3 +79,10 @@ By-the bye what to whistle to
 RABBIT engraved upon the stick
 : Herald read in livery with wooden spades then at.
 
+
+## Wikilinks load test
+
+[[bearing bulbous plant]]
+[[hard-of-hearing mansi]]
+[[lovesick calisthenics]]
+[[avellan polo ball]]

@@ -85,3 +85,9 @@ Is that stood the beak Pray
 Consider my kitchen that curious dream
 : Hush.
 
+
+## Wikilinks load test
+
+[[iodinating bombay hemp]]
+[[intact psycholinguist]]
+[[foremost peacock ore]]

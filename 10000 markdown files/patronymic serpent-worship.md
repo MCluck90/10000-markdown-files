@@ -89,3 +89,10 @@ Just then raised himself in couples
 Idiot.
 : Boots and gravy and oh.
 
+
+## Wikilinks load test
+
+[[one hundred seventy blue grama]]
+[[atonalistic tracing routine]]
+[[traditional adios]]
+[[bicornate baldrick]]

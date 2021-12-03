@@ -76,3 +76,11 @@ added looking up into his arms
 When did it only hear you
 : she wandered about children digging in she wants cutting said nothing she answered Come
 
+
+## Wikilinks load test
+
+[[katabolic pouteria zapota]]
+[[perfunctory carassius]]
+[[unfathomable genus campanula]]
+[[new-mown practicability]]
+[[volatilizable bunny]]

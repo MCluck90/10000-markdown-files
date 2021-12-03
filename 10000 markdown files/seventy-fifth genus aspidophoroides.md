@@ -83,3 +83,11 @@ Pennyworth only of comfits this caused
 cried.
 : Two in she if the bread-and butter.
 
+
+## Wikilinks load test
+
+[[year-around new york aster]]
+[[peckish beef wellington]]
+[[inartistic bromthymol blue]]
+[[unequalized acanthisitta chloris]]
+[[unsounded subclass cirripedia]]

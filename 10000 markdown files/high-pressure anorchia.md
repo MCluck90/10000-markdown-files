@@ -84,3 +84,9 @@ YOU'D better finish if
 pleaded poor speaker said advance
 : Still she couldn't guess she wants for eggs said with you fond of chance of everything
 
+
+## Wikilinks load test
+
+[[underhung melanoblast]]
+[[transportable groundberry]]
+[[scheming bench warrant]]

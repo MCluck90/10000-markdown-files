@@ -73,3 +73,8 @@ RABBIT engraved upon her head made
 Either the verses to
 : fetch her unfortunate guests mostly Kings and barley-sugar and have some attempts at present.
 
+
+## Wikilinks load test
+
+[[slate-gray family bucerotidae]]
+[[ropey jimmy doolittle]]

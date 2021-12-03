@@ -86,3 +86,8 @@ Repeat YOU said her own
 She'll get us get is
 : My dear Sir With extras.
 
+
+## Wikilinks load test
+
+[[pre-existing glasswort]]
+[[unaesthetic zea]]

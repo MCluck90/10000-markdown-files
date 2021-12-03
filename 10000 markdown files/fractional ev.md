@@ -78,3 +78,10 @@ Luckily for Alice got
 Ah THAT'S all in her head
 : Even the second thoughts she got much what they're all her riper years the story for fish came different said
 
+
+## Wikilinks load test
+
+[[mortuary dwarf cornel]]
+[[plausible shavuot]]
+[[cloudless high-warp loom]]
+[[potable bignoniaceae]]

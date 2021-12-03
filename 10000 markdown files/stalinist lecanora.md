@@ -73,3 +73,11 @@ cried out in an
 Let's go nearer till
 : sh.
 
+
+## Wikilinks load test
+
+[[two-humped ornithischian]]
+[[swordlike staffordshire bull terrier]]
+[[corpulent pilea pumilla]]
+[[chaetognathous mucous membrane]]
+[[butyraceous philippopolis]]

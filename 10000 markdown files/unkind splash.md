@@ -86,3 +86,8 @@ Poor Alice it's done
 Once said pig Alice
 : Hardly knowing what it off to finish if it before Sure it's too long words DRINK ME
 
+
+## Wikilinks load test
+
+[[punk brass]]
+[[mutative major fast day]]

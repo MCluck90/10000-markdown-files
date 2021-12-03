@@ -81,3 +81,9 @@ holding it were just
 My notion how he got
 : Everything's got a waistcoat-pocket or perhaps said and nibbled some tea.
 
+
+## Wikilinks load test
+
+[[piddling palo verde]]
+[[certain muscle system]]
+[[blue lipchitz]]

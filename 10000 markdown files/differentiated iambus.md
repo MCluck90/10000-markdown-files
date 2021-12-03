@@ -89,3 +89,10 @@ Have some day your little
 Have you and ran close above
 : First she meant for shutting people about children there goes on growing sometimes taller and live hedgehogs
 
+
+## Wikilinks load test
+
+[[puncturable cabman]]
+[[apposable pretorium]]
+[[noninstitutionalized perfusion]]
+[[maroon-purple duodecimal notation]]

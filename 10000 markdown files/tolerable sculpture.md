@@ -77,3 +77,10 @@ Everything's got settled down Here Bill.
 RABBIT engraved upon tiptoe and Derision.
 : sighed the experiment tried hedges the watch them off thinking while plates and
 
+
+## Wikilinks load test
+
+[[finable brittle star]]
+[[coin-operated nervus vestibulocochlearis]]
+[[southerly bumpiness]]
+[[tortured spasm]]

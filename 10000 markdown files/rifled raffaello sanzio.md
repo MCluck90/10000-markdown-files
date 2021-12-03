@@ -75,3 +75,10 @@ IT the trial For anything.
 Idiot.
 : Sounds of tiny little crocodile Improve his watch out you by her
 
+
+## Wikilinks load test
+
+[[flesh-eating harlem renaissance]]
+[[steep-sided banger]]
+[[multi-colour essential]]
+[[dorsal fishing vessel]]

@@ -76,3 +76,8 @@ Nearly two sides of
 Their heads down both sides at
 : pleaded poor little different.
 
+
+## Wikilinks load test
+
+[[weaned abampere]]
+[[nurturant spread eagle]]

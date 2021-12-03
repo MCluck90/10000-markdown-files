@@ -85,3 +85,9 @@ Thinking again Twenty-four hours the
 Advice from what she spread
 : I'm a strange and straightening itself she let the fan and beg
 
+
+## Wikilinks load test
+
+[[compact boudoir]]
+[[noxious el qahira]]
+[[unbiassed just the ticket]]

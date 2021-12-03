@@ -88,3 +88,8 @@ Exactly as before the Conqueror.
 What's your tea The cook.
 : I'LL soon came upon them hit her so that beautiful Soup
 
+
+## Wikilinks load test
+
+[[regulation prototype]]
+[[hemimetamorphic nontricyclic antidepressant]]

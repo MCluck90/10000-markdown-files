@@ -79,3 +79,10 @@ I couldn't help thinking a
 shouted at applause which
 : about anxiously fixed on.
 
+
+## Wikilinks load test
+
+[[thronged blackmail]]
+[[desiccated piscary]]
+[[alto xinjiang uighur autonomous region]]
+[[undecipherable beaked whale]]

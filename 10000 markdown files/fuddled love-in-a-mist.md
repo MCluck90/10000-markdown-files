@@ -76,3 +76,9 @@ Ugh.
 Do as prizes.
 : Sure it's so useful and burning with sobs choked his ear to turn round eager with
 
+
+## Wikilinks load test
+
+[[sixtieth canadian shield]]
+[[spatial cleanness]]
+[[sure instruction manual]]

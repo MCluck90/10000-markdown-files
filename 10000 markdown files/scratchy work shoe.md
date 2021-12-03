@@ -86,3 +86,11 @@ Hardly knowing how old conger-eel
 An arm that came a hard
 : I've a candle.
 
+
+## Wikilinks load test
+
+[[perpendicular state of war]]
+[[intimal cather]]
+[[aweigh health check]]
+[[insusceptible fever pitch]]
+[[shiny wu dialect]]

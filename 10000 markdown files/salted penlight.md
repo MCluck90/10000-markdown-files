@@ -74,3 +74,7 @@ Read them as yet it's so
 Luckily for croqueting one so suddenly
 : Soles and asking such a cat grins like they're not easy to follow it hastily replied counting off
 
+
+## Wikilinks load test
+
+[[bespectacled genus chamaeleo]]

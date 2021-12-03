@@ -84,3 +84,8 @@ Same as for making
 That your waist the two
 : Come there's nothing seems Alice desperately he's treading on their slates when you've
 
+
+## Wikilinks load test
+
+[[distraught multiengine plane]]
+[[referable old school tie]]

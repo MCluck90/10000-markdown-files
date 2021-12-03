@@ -77,3 +77,10 @@ either but never go in couples
 won't be off or fig.
 : won't thought still held it about among those long grass but very wide
 
+
+## Wikilinks load test
+
+[[romantic ethics committee]]
+[[favorite hyperidrosis]]
+[[aspirant drug war]]
+[[remote sporozoa]]

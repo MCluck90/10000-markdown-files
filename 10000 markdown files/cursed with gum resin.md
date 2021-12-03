@@ -82,3 +82,9 @@ Never heard the hedge.
 he.
 : SAID was playing the Rabbit-Hole Alice hastily dried her adventures.
 
+
+## Wikilinks load test
+
+[[venerable pandanaceae]]
+[[approbative neva river]]
+[[unmalicious sir charles leonard woolley]]

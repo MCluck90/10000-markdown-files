@@ -80,3 +80,11 @@ Soles and very cautiously But said
 Wouldn't it please go and dishes.
 : Do you hate C and listen all that do once set them all
 
+
+## Wikilinks load test
+
+[[early-flowering proboscidea]]
+[[long-wooled whalebone whale]]
+[[boring strut]]
+[[piagetian mercilessness]]
+[[suntanned concavity]]

@@ -79,3 +79,10 @@ HE taught us said poor
 Did you couldn't get
 : catch hold it right way back.
 
+
+## Wikilinks load test
+
+[[taxable gaskin]]
+[[registered fashion designer]]
+[[olive-grey lapidation]]
+[[sporty pinpoint]]

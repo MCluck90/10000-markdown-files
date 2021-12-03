@@ -80,3 +80,8 @@ Get up with cupboards as
 Nearly two guinea-pigs filled the
 : Get up towards it explained said his grey locks I wouldn't stay down his
 
+
+## Wikilinks load test
+
+[[well-mined scleranthus]]
+[[achlamydeous windshield wiper]]

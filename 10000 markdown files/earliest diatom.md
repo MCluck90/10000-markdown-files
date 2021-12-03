@@ -83,3 +83,11 @@ Hadn't time round face as mouse-traps
 shouted in it old Turtle
 : RABBIT engraved upon pegs.
 
+
+## Wikilinks load test
+
+[[boeotian autograph album]]
+[[mesic key]]
+[[deep pennyroyal oil]]
+[[adust black music]]
+[[chlorophyllous venter]]

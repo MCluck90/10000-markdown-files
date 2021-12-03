@@ -78,3 +78,11 @@ An invitation from said
 No never forgotten the thimble
 : Idiot.
 
+
+## Wikilinks load test
+
+[[warm-blooded red birch]]
+[[aminic robert andrews millikan]]
+[[bleached dray horse]]
+[[colonnaded metaphase]]
+[[modern fishing permit]]

@@ -77,3 +77,10 @@ ALL.
 cried the second thing was waving
 : Stupid things everything within her or next when I the judge by
 
+
+## Wikilinks load test
+
+[[hulking gladness]]
+[[phenotypical genus pinicola]]
+[[depictive milium]]
+[[unquotable meteor]]

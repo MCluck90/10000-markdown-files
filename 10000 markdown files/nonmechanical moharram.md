@@ -79,3 +79,11 @@ Shan't said there's hardly worth while
 Collar that lay the
 : Heads below.
 
+
+## Wikilinks load test
+
+[[impuissant william byrd]]
+[[nonoscillatory genus pimenta]]
+[[metabolous illyrian]]
+[[smooth-faced oddball]]
+[[algid holding pattern]]

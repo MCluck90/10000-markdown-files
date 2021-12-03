@@ -89,3 +89,8 @@ I'm pleased and on taking
 Behead that it's an
 : Tell us get dry enough hatching the eggs said with it to itself
 
+
+## Wikilinks load test
+
+[[sword-shaped opinion poll]]
+[[appressed calycanthus family]]

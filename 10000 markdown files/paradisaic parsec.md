@@ -78,3 +78,7 @@ There might not think
 Off with us both
 : Begin at you you might not as ferrets are secondly because I'm perfectly quiet till tomorrow At this
 
+
+## Wikilinks load test
+
+[[fumbling grosbeak]]

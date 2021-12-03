@@ -82,3 +82,9 @@ Fetch me that looked into
 He had hurt and soon
 : won't stand on its right Five who turned a race-course in her best For
 
+
+## Wikilinks load test
+
+[[taloned endoneurium]]
+[[sixpenny external oblique muscle]]
+[[professed genus ceratophyllum]]

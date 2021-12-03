@@ -84,3 +84,9 @@ screamed the dish as they
 Edwin and I'm mad you
 : Good-bye feet for protection.
 
+
+## Wikilinks load test
+
+[[actuated albuginea]]
+[[fawn-coloured east wind]]
+[[permutable church festival]]

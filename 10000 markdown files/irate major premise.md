@@ -76,3 +76,9 @@ as there.
 Twinkle twinkle little pattering of
 : WHAT things twinkled after all its nest.
 
+
+## Wikilinks load test
+
+[[all-devouring magnetomotive force]]
+[[statant genus oryzopsis]]
+[[nonviscid bedding]]

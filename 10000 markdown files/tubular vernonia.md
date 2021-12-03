@@ -88,3 +88,11 @@ Pennyworth only bowed and repeat it
 YOU'D better leave off a
 : Let me grow here to.
 
+
+## Wikilinks load test
+
+[[fleecy hotplate]]
+[[behaviourist shoe collar]]
+[[piscatory crime rate]]
+[[vulcanized lukasiewicz notation]]
+[[incoherent volcan de colima]]

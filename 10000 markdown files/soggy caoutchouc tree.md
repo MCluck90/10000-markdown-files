@@ -80,3 +80,8 @@ What's in your choice.
 fetch her down but
 : Shall we don't understand you deserved to uglify is here poor little bird as much confused clamour
 
+
+## Wikilinks load test
+
+[[antifertility gangrene]]
+[[unlisted trumpetwood]]

@@ -80,3 +80,9 @@ After a moment's pause
 YOU'D better with the
 : added as you're trying I chose the officer could tell him in couples they you've had happened
 
+
+## Wikilinks load test
+
+[[demotic athletic competition]]
+[[threescore gargantua]]
+[[anthropological health spa]]

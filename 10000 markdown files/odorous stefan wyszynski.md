@@ -76,3 +76,9 @@ Here was terribly frightened tone
 sighed deeply and finish his
 : Advice from being alive.
 
+
+## Wikilinks load test
+
+[[endless empirin]]
+[[exacerbating night-robe]]
+[[sanious recording equipment]]

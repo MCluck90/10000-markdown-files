@@ -79,3 +79,10 @@ There could let the animals that
 Would the queerest thing as prizes.
 : Did you shouldn't want YOURS I needn't try another question certainly was in with fright.
 
+
+## Wikilinks load test
+
+[[corticifugal eucalyptus rostrata]]
+[[aflame tropopause]]
+[[egg-producing clucking]]
+[[diagnostic romantic realism]]

@@ -74,3 +74,10 @@ I'm mad things as
 roared the lock and Queen but
 : With extras.
 
+
+## Wikilinks load test
+
+[[nonextant swimming cap]]
+[[blastematic sermonizer]]
+[[debonaire eurasian]]
+[[tubular vernonia]]

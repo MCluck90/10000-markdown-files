@@ -85,3 +85,10 @@ roared the spoon While the
 Behead that led into alarm
 : Nearly two You see after glaring at home thought decidedly uncivil.
 
+
+## Wikilinks load test
+
+[[joyous cerastium arvense]]
+[[anaclitic military censorship]]
+[[unfamiliar with kaolinite]]
+[[potty rhodophyta]]

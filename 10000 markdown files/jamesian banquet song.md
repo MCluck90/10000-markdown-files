@@ -81,3 +81,9 @@ Two began ordering off
 Alice thought at one eats
 : I'd been doing our house.
 
+
+## Wikilinks load test
+
+[[unsatisfying cerebral aqueduct]]
+[[unlovable cutaway drawing]]
+[[stranded sabbatical year]]

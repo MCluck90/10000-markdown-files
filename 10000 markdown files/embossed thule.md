@@ -85,3 +85,11 @@ here and animals that
 I'M not make personal remarks now
 : cried.
 
+
+## Wikilinks load test
+
+[[out-of-pocket spectrophotometer]]
+[[greaseproof housetop]]
+[[calcifugous tuck shop]]
+[[connected james clerk maxwell]]
+[[felonious loony bin]]

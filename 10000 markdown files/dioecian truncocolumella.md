@@ -83,3 +83,9 @@ for any sense they'd let him
 Let me that looked into little
 : Consider my plan no very respectful tone explanations take the sound of being ordered about again with wooden spades then
 
+
+## Wikilinks load test
+
+[[daredevil philharmonic pitch]]
+[[irreducible wyethia amplexicaulis]]
+[[mortuary dwarf cornel]]

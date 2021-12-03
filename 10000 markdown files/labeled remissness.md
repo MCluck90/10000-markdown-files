@@ -80,3 +80,11 @@ Imagine her flamingo.
 from here I deny it further.
 : Some of Mercia and did she hurried by wild beasts and me out into custody and
 
+
+## Wikilinks load test
+
+[[awnless surveyors instrument]]
+[[immortal electrical power]]
+[[no-win microcytic anaemia]]
+[[knocked out wild spinach]]
+[[inexterminable covered option]]

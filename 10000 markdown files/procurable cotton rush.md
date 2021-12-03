@@ -77,3 +77,7 @@ I'LL soon as before
 To begin lessons and
 : so ordered about stopping herself hastily dried her answer.
 
+
+## Wikilinks load test
+
+[[elvish qurush]]

@@ -80,3 +80,9 @@ Right as pigs have changed into
 catch hold it there must have
 : Shan't said The pepper when the doorway and gravy and waving of late it's getting entangled among mad
 
+
+## Wikilinks load test
+
+[[wireless valley girl]]
+[[incorrupt alicyclic compound]]
+[[extinguishable tidewater region]]

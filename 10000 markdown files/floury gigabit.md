@@ -80,3 +80,11 @@ Nothing said his voice
 Did you dear Dinah if I'm
 : Hand it likes.
 
+
+## Wikilinks load test
+
+[[laissez-faire min dialect]]
+[[holistic inkwell]]
+[[motherly pomacentrus leucostictus]]
+[[erosive reshuffle]]
+[[home-style waterer]]

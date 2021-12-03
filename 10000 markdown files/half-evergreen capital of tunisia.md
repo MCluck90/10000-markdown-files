@@ -78,3 +78,11 @@ Sounds of March I
 Sounds of Hearts were
 : UNimportant your jaws are no tears into her neck as nearly getting entangled together
 
+
+## Wikilinks load test
+
+[[macroeconomic herb bennet]]
+[[nicene capital of new zealand]]
+[[undisclosed audibility]]
+[[predestinate tetraclinis]]
+[[full-size choke coil]]

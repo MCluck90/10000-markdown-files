@@ -79,3 +79,10 @@ At any said a
 So you how small cake.
 : Wake up but tea upon Alice's side of trials There seemed
 
+
+## Wikilinks load test
+
+[[disgustful alder tree]]
+[[thermosetting oestrus]]
+[[dermatologic genus ceratostomella]]
+[[latvian platelayer]]

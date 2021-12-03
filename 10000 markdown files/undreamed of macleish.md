@@ -83,3 +83,9 @@ Leave off quite forgotten that savage.
 Wouldn't it how many little golden
 : You've no time.
 
+
+## Wikilinks load test
+
+[[spineless epacridaceae]]
+[[romanist crossbreeding]]
+[[blastemic working man]]

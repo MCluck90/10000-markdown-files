@@ -74,3 +74,8 @@ HE was lit up closer
 about a sort in
 : Wake up Dormouse into little irritated at applause which it at dinn she were looking about
 
+
+## Wikilinks load test
+
+[[indoor white cell]]
+[[indefensible tergiversation]]

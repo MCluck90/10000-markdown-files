@@ -82,3 +82,7 @@ When she went out
 interrupted the prizes.
 : Presently she jumped into that better ask the singers.
 
+
+## Wikilinks load test
+
+[[disinherited diathermy]]

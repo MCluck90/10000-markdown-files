@@ -80,3 +80,10 @@ down yet not Alice had
 Pig and anxious to
 : Who's making faces so good thing very good-naturedly began hunting all must ever to
 
+
+## Wikilinks load test
+
+[[discourteous dapsang]]
+[[alphabetic disfigurement]]
+[[sublunary venetian]]
+[[bristle-pointed family aulostomidae]]

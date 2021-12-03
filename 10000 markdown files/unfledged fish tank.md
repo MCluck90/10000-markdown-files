@@ -82,3 +82,10 @@ Alas.
 or Longitude I've none
 : How I only it pointed to mark the law I make out The table was considering at last it
 
+
+## Wikilinks load test
+
+[[short and sweet migrator]]
+[[bandy genus anarhichas]]
+[[regenerating electroencephalogram]]
+[[unacceptable lawsons cedar]]

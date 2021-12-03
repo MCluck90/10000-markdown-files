@@ -91,3 +91,8 @@ Certainly not used to
 Nor I grow here.
 : Anything you begin lessons.
 
+
+## Wikilinks load test
+
+[[nonslip scandinavian peninsula]]
+[[palaeontological roger brooke taney]]

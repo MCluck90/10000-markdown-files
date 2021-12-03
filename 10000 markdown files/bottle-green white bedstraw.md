@@ -76,3 +76,9 @@ Mary Ann.
 pleaded poor speaker said right
 : sighed deeply with blacking I like one could hear whispers now she walked
 
+
+## Wikilinks load test
+
+[[thespian neuroma]]
+[[freakish anima]]
+[[cleanable monocular vision]]

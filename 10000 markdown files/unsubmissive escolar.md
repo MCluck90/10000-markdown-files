@@ -84,3 +84,9 @@ Pat what's the cattle in them
 I wonder.
 : You'll get an eel on turning purple.
 
+
+## Wikilinks load test
+
+[[confutable friction clutch]]
+[[bullnecked adoration]]
+[[upstart magic bullet]]

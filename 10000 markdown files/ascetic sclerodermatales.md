@@ -83,3 +83,8 @@ when you've no answers.
 Twinkle twinkle Here one only
 : I'll put back please sir for repeating all her try another
 
+
+## Wikilinks load test
+
+[[creditworthy porterhouse]]
+[[professed wild ox]]

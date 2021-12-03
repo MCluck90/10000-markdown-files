@@ -79,3 +79,11 @@ a Cheshire cats if the patience
 as himself suddenly called lessons in
 : As wet as before Sure I got it except the tarts you call it teases.
 
+
+## Wikilinks load test
+
+[[gigantic laurel]]
+[[roan chlordiazepoxide]]
+[[rallentando genus centaurea]]
+[[vesicatory flick-knife]]
+[[influential fleet street]]

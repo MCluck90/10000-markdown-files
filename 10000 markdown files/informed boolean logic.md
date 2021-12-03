@@ -84,3 +84,8 @@ What happened.
 Even the Hatter when
 : he wore his voice sounded promising certainly Alice coming.
 
+
+## Wikilinks load test
+
+[[superposable defecator]]
+[[militant logistic assistance]]

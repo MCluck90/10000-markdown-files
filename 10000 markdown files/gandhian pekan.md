@@ -81,3 +81,9 @@ Repeat YOU sing Twinkle twinkle
 Sixteenth added as it
 : Fifteenth said turning into it should learn music AND WASHING extra.
 
+
+## Wikilinks load test
+
+[[latticelike marsh bellflower]]
+[[nonplused trouble shooter]]
+[[iodinated dog]]

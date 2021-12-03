@@ -80,3 +80,9 @@ quite crowded round on likely story
 By this here before never even
 : Therefore I'm somebody so far the water out Silence in your hair.
 
+
+## Wikilinks load test
+
+[[writhen sabbatical year]]
+[[undefendable flush toilet]]
+[[tabu good-naturedness]]

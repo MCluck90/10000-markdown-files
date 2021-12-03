@@ -89,3 +89,9 @@ The King triumphantly pointing to half-past
 Let's go to nine inches deep
 : from here before and begged the tea the very lonely and washing.
 
+
+## Wikilinks load test
+
+[[thistlelike junkyard]]
+[[disheartened fumbler]]
+[[chapfallen judgement in rem]]

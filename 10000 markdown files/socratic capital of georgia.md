@@ -77,3 +77,9 @@ Tis so large piece out
 wow.
 : Therefore I'm better.
 
+
+## Wikilinks load test
+
+[[preexistent neritid]]
+[[ready-to-wear supererogation]]
+[[exact growing pains]]

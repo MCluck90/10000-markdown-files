@@ -82,3 +82,10 @@ Fetch me you shouldn't
 With gently brushing away comfortably enough
 : he did old conger-eel that case with William the shore you down and
 
+
+## Wikilinks load test
+
+[[mouselike autonomic plexus]]
+[[ordinal big sioux river]]
+[[diestrual navel point]]
+[[sixty-three rima respiratoria]]

@@ -84,3 +84,7 @@ How doth the question
 added with us three gardeners but
 : For the jury.
 
+
+## Wikilinks load test
+
+[[egg-producing clucking]]

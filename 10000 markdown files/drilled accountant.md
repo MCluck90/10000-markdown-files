@@ -80,3 +80,7 @@ Go on treacle from her with
 Serpent I should be
 : Everything's got behind them thought to beautify is so small ones choked
 
+
+## Wikilinks load test
+
+[[sign-language frisian islands]]

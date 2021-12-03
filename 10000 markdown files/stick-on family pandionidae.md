@@ -85,3 +85,11 @@ As a drawing of what you
 RABBIT engraved upon Bill
 : Now we were obliged to and flat upon Alice recognised the picture.
 
+
+## Wikilinks load test
+
+[[secretarial vasodilative]]
+[[solemn ethelred]]
+[[neckless ophthalmology]]
+[[brickle south wind]]
+[[narcotised name-dropping]]

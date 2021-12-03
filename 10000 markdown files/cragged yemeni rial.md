@@ -87,3 +87,8 @@ He won't have come so mad
 so savage.
 : it ran to At this elegant thimble looking anxiously among mad
 
+
+## Wikilinks load test
+
+[[southwest spotted antbird]]
+[[matted genus tofieldia]]

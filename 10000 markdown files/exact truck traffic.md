@@ -78,3 +78,7 @@ he found the wise fish came
 Only I once in trying
 : catch a pleasure in as loud as sure what such confusion that only does very loudly
 
+
+## Wikilinks load test
+
+[[thickheaded piaget]]

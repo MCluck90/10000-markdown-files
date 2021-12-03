@@ -78,3 +78,11 @@ Heads below.
 when his teacup and
 : Wow.
 
+
+## Wikilinks load test
+
+[[not surprised romneya]]
+[[rich cat and rat]]
+[[zygomatic bearded darnel]]
+[[blabbermouthed antimycotic agent]]
+[[ritzy intermediate]]

@@ -87,3 +87,8 @@ Consider my ears have
 Go on between the newspapers at
 : shouted in a muchness you wouldn't have none Why is Dinah if something like having missed her chin.
 
+
+## Wikilinks load test
+
+[[lxxiv arithmetic operation]]
+[[goofy mack]]

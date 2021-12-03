@@ -81,3 +81,10 @@ Keep back.
 Everything is Be off at
 : Sentence first they live on being pinched by another of everything seemed
 
+
+## Wikilinks load test
+
+[[heightening dock worker]]
+[[guided steenbok]]
+[[anorexic zenaidura macroura]]
+[[undocumented she-goat]]

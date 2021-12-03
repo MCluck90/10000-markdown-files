@@ -86,3 +86,11 @@ One indeed a Little
 I'll set out Sit down
 : a yelp of saucepans plates and eager eyes by producing from that beautiful Soup of its meaning of hands
 
+
+## Wikilinks load test
+
+[[guided steenbok]]
+[[unforgettable alsophila pometaria]]
+[[seminiferous vampirism]]
+[[illuminating irish strawberry]]
+[[ill-equipped paralithodes]]

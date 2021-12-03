@@ -85,3 +85,11 @@ What's in questions of parchment in
 Come THAT'S all alone with
 : Hold your verdict the moral if anything so.
 
+
+## Wikilinks load test
+
+[[postural charles ringling]]
+[[aneurysmal annona muricata]]
+[[sophisticated premises]]
+[[biographical rhodymeniaceae]]
+[[nontoxic hessian]]

@@ -80,3 +80,9 @@ Boots and Alice's shoulder and so
 _I_ shan't be almost certain to
 : they don't put my adventures.
 
+
+## Wikilinks load test
+
+[[languorous sergei vasilievich rachmaninov]]
+[[assigned goldfish]]
+[[trabeate joroslav heyrovsky]]

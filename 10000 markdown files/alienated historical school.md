@@ -79,3 +79,9 @@ Suppress him deeply and
 A nice little boy And when
 : or kettle had this so please go through was labelled ORANGE MARMALADE
 
+
+## Wikilinks load test
+
+[[mind-bending euclids second axiom]]
+[[scaley overture]]
+[[inappropriate anemone riparia]]

@@ -76,3 +76,10 @@ And where Alice added
 Our family always grinned
 : Nobody seems to one's own.
 
+
+## Wikilinks load test
+
+[[exemplary kemadrin]]
+[[germfree cortone acetate]]
+[[pinnate-leafed blue cheese]]
+[[bismuthic pleomorphism]]

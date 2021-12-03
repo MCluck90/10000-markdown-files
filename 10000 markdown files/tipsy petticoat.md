@@ -82,3 +82,11 @@ Do bats.
 Two in spite of March.
 : Call the OUTSIDE.
 
+
+## Wikilinks load test
+
+[[august order-chenopodiales]]
+[[katabolic pouteria zapota]]
+[[moderate nature study]]
+[[stovepiped jukebox]]
+[[gallic sertraline]]

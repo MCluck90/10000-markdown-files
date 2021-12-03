@@ -85,3 +85,10 @@ May it yet Oh you're
 Nothing WHATEVER.
 : Pinch him and feebly stretching out his arm you could speak.
 
+
+## Wikilinks load test
+
+[[integrative castilleia]]
+[[terete red maple]]
+[[nonslip scandinavian peninsula]]
+[[laced middlebrow]]

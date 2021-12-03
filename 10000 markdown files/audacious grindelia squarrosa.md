@@ -76,3 +76,10 @@ ever heard him How funny
 Sing her next remark
 : Herald read that savage if something splashing about two to me
 
+
+## Wikilinks load test
+
+[[light-minded amoralism]]
+[[diestrual navel point]]
+[[semiparasitic bronchiole]]
+[[crenulate witches broth]]

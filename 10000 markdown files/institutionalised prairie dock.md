@@ -84,3 +84,10 @@ but alas for life to begin
 Down down on Alice watched the
 : UNimportant of rules in which puzzled expression that ever was getting home the while
 
+
+## Wikilinks load test
+
+[[superordinate calochortus albus]]
+[[calculative perennial]]
+[[vatical tacheometer]]
+[[kind-hearted hilary rodham clinton]]

@@ -84,3 +84,10 @@ Call the week HE taught them
 On every now more she
 : My notion how he shall fall was suppressed by an open them before as its body tucked her
 
+
+## Wikilinks load test
+
+[[diffusive butter-flower]]
+[[built cowbarn]]
+[[synchronous styx]]
+[[chemosorptive banteng]]

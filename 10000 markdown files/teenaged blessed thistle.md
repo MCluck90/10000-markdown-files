@@ -82,3 +82,8 @@ Let's go anywhere without speaking
 Pat.
 : Stolen.
 
+
+## Wikilinks load test
+
+[[collective shame plant]]
+[[irreclaimable genus anthericum]]

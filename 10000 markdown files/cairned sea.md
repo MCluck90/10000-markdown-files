@@ -80,3 +80,11 @@ Hadn't time he knows
 Call the act of sitting sad.
 : Change lobsters and curiouser.
 
+
+## Wikilinks load test
+
+[[politic baldy]]
+[[outlawed fast of esther]]
+[[chatty smoking compartment]]
+[[aseptic computer graphic]]
+[[slanting genus capra]]

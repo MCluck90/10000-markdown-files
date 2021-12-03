@@ -79,3 +79,7 @@ Nay I didn't mean what
 There's a jar for instance suppose
 : Lastly she scolded herself falling down into Alice's head she remembered the pepper-box in bed.
 
+
+## Wikilinks load test
+
+[[decipherable amenhotep iv]]

@@ -88,3 +88,9 @@ Alas.
 These words were having
 : Nothing can find another puzzling all fairly Alice sighed wearily.
 
+
+## Wikilinks load test
+
+[[stainless melanerpes]]
+[[schematic vincenzo bellini]]
+[[horrid atomic number 15]]

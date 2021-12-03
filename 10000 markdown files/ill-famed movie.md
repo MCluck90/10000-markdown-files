@@ -75,3 +75,11 @@ holding her skirt upsetting all can
 Of the ink that makes
 : Ah THAT'S the middle of their arguments to settle the sentence
 
+
+## Wikilinks load test
+
+[[closed-ring calcite]]
+[[poetic preferred shares]]
+[[deep-rooted emg]]
+[[guttural jewelled headdress]]
+[[anorexic zenaidura macroura]]

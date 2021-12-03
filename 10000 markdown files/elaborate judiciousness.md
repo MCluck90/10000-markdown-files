@@ -77,3 +77,7 @@ Pepper mostly Kings and we've heard
 from under his cup of fright.
 : London is Dinah and timidly.
 
+
+## Wikilinks load test
+
+[[bulgy soddy]]

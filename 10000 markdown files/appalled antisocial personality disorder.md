@@ -72,3 +72,7 @@ Leave off you if
 Bill's place for two
 : sh.
 
+
+## Wikilinks load test
+
+[[sonant norvasc]]

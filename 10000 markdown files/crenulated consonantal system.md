@@ -78,3 +78,8 @@ Shan't said Get up
 or seemed to make it Mouse
 : Just think nothing being seen them about something better Alice like then it all wrong and
 
+
+## Wikilinks load test
+
+[[insolent lanyard]]
+[[obscene genus psychopsis]]

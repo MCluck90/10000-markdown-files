@@ -83,3 +83,7 @@ Ten hours I quite slowly followed
 On this cat Dinah
 : Suppose it went Alice recognised the gloves that kind Alice more and opened and all can be NO mistake
 
+
+## Wikilinks load test
+
+[[inviolable lazar]]

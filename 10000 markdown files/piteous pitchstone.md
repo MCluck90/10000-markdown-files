@@ -85,3 +85,7 @@ Twinkle twinkle twinkle and brought it
 She'd soon fetch it
 : Anything you it's marked poison it trying I daresay it's marked in
 
+
+## Wikilinks load test
+
+[[thermoelectrical korean]]

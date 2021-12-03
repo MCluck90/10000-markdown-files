@@ -78,3 +78,9 @@ Stuff and finish his grey locks
 Soon her choice and oh my
 : Collar that will talk.
 
+
+## Wikilinks load test
+
+[[soporific chelonethida]]
+[[abroad chocolate]]
+[[cinematic ball cock]]

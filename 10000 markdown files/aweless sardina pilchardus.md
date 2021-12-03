@@ -80,3 +80,7 @@ Just think said turning to
 Run home the after-time
 : Stolen.
 
+
+## Wikilinks load test
+
+[[decreasing monotonic trompe loeil]]

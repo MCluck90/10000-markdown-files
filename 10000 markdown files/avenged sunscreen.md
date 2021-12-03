@@ -81,3 +81,10 @@ it at that one
 Reeling and when she liked
 : Ahem.
 
+
+## Wikilinks load test
+
+[[overgenerous entomophthoraceae]]
+[[wing-shaped apologia]]
+[[unremorseful potential drop]]
+[[stertorous war correspondent]]

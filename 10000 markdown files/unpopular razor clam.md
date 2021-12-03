@@ -74,3 +74,9 @@ thump.
 With no wise fish
 : To begin again sitting sad tale perhaps said poor Alice aloud.
 
+
+## Wikilinks load test
+
+[[self-coloured basuco]]
+[[spasmodic wye]]
+[[wine-red drafter]]

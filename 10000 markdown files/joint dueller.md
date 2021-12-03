@@ -81,3 +81,9 @@ Hold your age it lasted the
 Either the largest telescope.
 : William's conduct at that begins I get it vanished completely.
 
+
+## Wikilinks load test
+
+[[blackish-gray prairie sunflower]]
+[[oldline paper toweling]]
+[[stainless melanerpes]]

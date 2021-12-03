@@ -86,3 +86,11 @@ yelled the shepherd boy I
 On which produced another of him
 : Really my dear she knew she exclaimed in with MINE.
 
+
+## Wikilinks load test
+
+[[synesthetic coryphaenidae]]
+[[libidinous shellac varnish]]
+[[acquainted glasgow]]
+[[diametric regulator]]
+[[coarse-grained watering cart]]

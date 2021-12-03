@@ -74,3 +74,7 @@ Heads below.
 What's in an air
 : Don't go back please do such nonsense.
 
+
+## Wikilinks load test
+
+[[fussy russian thistle]]

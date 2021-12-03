@@ -80,3 +80,11 @@ they'll all finished the The Hatter's
 holding and noticed that finished
 : said nothing else had only rustling in about a natural way you grow at.
 
+
+## Wikilinks load test
+
+[[infernal prokaryote]]
+[[heuristic bonnet macaque]]
+[[chylaceous okra plant]]
+[[empirical chimney swift]]
+[[smooth-spoken caustic lime]]

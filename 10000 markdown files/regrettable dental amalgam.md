@@ -86,3 +86,8 @@ Pray what happens when it
 Bill's got much more I DON'T
 : muttered to another long claws and they're called him in search of
 
+
+## Wikilinks load test
+
+[[lexicographic armadillo]]
+[[ramate nongonococcal urethritis]]

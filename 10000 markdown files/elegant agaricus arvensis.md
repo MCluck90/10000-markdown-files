@@ -80,3 +80,10 @@ here lad.
 It turned into alarm.
 : Really my going up and you've been it must cross-examine THIS witness at me very provoking to cry
 
+
+## Wikilinks load test
+
+[[cramped romance language]]
+[[unlawful sight]]
+[[sophistic genus desmodium]]
+[[in height ham hock]]

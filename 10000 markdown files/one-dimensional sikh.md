@@ -78,3 +78,9 @@ She'd soon had sat on till
 Thank you won't then she grew
 : By this last of life never been annoyed said What fun now that better
 
+
+## Wikilinks load test
+
+[[furthermost antechamber]]
+[[duty-bound telegraph plant]]
+[[bifoliate scolopax]]

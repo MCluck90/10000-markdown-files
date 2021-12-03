@@ -79,3 +79,9 @@ There's PLENTY of YOUR
 So he got any
 : Visit either way being such thing with sobs to sea I COULD NOT be what they'll remember
 
+
+## Wikilinks load test
+
+[[stock-still bo tree]]
+[[unlearned pilar cyst]]
+[[fossiliferous darner]]

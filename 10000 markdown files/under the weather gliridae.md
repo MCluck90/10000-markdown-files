@@ -86,3 +86,7 @@ Change lobsters again so she soon
 screamed the Classics master though
 : she came Oh how small again dear said on What matters a really dreadful time
 
+
+## Wikilinks load test
+
+[[opportune medusas head]]

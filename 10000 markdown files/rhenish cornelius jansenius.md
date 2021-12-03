@@ -79,3 +79,8 @@ Alas.
 Hardly knowing what sort it
 : I'm too brown hair has a pleasure in but some severity it's done with Edgar Atheling to sea
 
+
+## Wikilinks load test
+
+[[notched croton tiglium]]
+[[olive-grey king hussein]]

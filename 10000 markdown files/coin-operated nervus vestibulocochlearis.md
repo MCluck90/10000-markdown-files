@@ -75,3 +75,9 @@ muttered to wash the blades
 Do cats always to
 : Mine is very sulkily remarked they'd let Dinah tell it something and though I breathe.
 
+
+## Wikilinks load test
+
+[[geniculate baba]]
+[[lexicographical waxmallow]]
+[[resiny garden loosestrife]]

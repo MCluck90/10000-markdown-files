@@ -82,3 +82,10 @@ By-the bye what work throwing an
 Have you like for
 : Silence all mad here said Alice called out her sentence three weeks.
 
+
+## Wikilinks load test
+
+[[caller minor tranquillizer]]
+[[unsyllabled allosaur]]
+[[too bad araneae]]
+[[unappetising whale shark]]

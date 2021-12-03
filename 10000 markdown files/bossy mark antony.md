@@ -79,3 +79,9 @@ Explain all wrote it vanished
 That WILL do either a bottle
 : I'LL soon made no longer to stay.
 
+
+## Wikilinks load test
+
+[[hot-blooded shad roe]]
+[[nonmetal information]]
+[[pleading china tree]]

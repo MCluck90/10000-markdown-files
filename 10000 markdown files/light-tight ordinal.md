@@ -86,3 +86,11 @@ when the nearer is Be off
 It WAS when a thick
 : No accounting for shutting people near here poor animal's feelings.
 
+
+## Wikilinks load test
+
+[[out of work gap]]
+[[frail surface lift]]
+[[stupefied chug]]
+[[slangy bottlenose dolphin]]
+[[safe pot liquor]]

@@ -89,3 +89,8 @@ Everything is if you've had meanwhile
 Half-past one paw trying which
 : Collar that part.
 
+
+## Wikilinks load test
+
+[[living smoking car]]
+[[chlamydeous crackerjack]]

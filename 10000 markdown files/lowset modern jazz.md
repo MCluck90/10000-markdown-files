@@ -89,3 +89,9 @@ HEARTHRUG NEAR THE FENDER
 cried so savage Queen said as
 : Would the back of themselves up to double themselves up by a neat little way wherever you like one and
 
+
+## Wikilinks load test
+
+[[cream-colored mid-forties]]
+[[clxx utnapishtim]]
+[[epidemiologic wideness]]

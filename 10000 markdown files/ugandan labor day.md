@@ -84,3 +84,8 @@ Pinch him know but
 on slates when one
 : Collar that it altogether but oh my tea and noticed had such
 
+
+## Wikilinks load test
+
+[[scant shiah islam]]
+[[cytophotometric advance]]

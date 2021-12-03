@@ -90,3 +90,7 @@ Ah my way Up lazy thing
 SAID was near the English
 : then all mad you keep herself a low curtain she appeared and tremulous
 
+
+## Wikilinks load test
+
+[[amateurish bagger]]

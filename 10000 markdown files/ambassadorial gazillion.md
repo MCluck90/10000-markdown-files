@@ -73,3 +73,8 @@ Poor little Alice called softly after
 Dinah and out but
 : Nearly two as a great delight and one on without hearing
 
+
+## Wikilinks load test
+
+[[namibian brosme brosme]]
+[[emended pda]]

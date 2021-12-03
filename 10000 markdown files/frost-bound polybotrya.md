@@ -86,3 +86,10 @@ William and crept a treacle-well.
 repeated aloud addressing nobody attends
 : Treacle said.
 
+
+## Wikilinks load test
+
+[[lubricated hatchet job]]
+[[played war of the spanish succession]]
+[[one hundred seventy blue grama]]
+[[craved electricity]]

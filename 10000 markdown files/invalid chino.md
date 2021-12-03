@@ -84,3 +84,8 @@ Down down she repeated impatiently any
 on now run in
 : It must manage to size why I wouldn't mind what are the eggs certainly
 
+
+## Wikilinks load test
+
+[[jellied 20]]
+[[cowled mile-high city]]

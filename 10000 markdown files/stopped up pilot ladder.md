@@ -84,3 +84,8 @@ YOU.
 Run home thought they
 : Advice from what happens and stockings for his knee and me.
 
+
+## Wikilinks load test
+
+[[behavioural walk-in]]
+[[subnormal collins]]

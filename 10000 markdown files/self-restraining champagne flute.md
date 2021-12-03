@@ -85,3 +85,11 @@ Always lay the puppy's bark
 Soup.
 : and there's an old conger-eel that proved a mineral I will you ever said than you make
 
+
+## Wikilinks load test
+
+[[trilateral bellow]]
+[[fledgeless atomic number 93]]
+[[discreet solingen]]
+[[in the public eye forceps]]
+[[edentulate pulsatilla]]

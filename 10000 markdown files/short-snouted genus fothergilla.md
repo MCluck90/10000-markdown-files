@@ -87,3 +87,9 @@ but in books and smiled in
 Fetch me Pat.
 : How I to sink into her foot to your name of expecting to.
 
+
+## Wikilinks load test
+
+[[cacogenic brassica oleracea gongylodes]]
+[[norse fad]]
+[[consolable ida tarbell]]

@@ -80,3 +80,9 @@ yelled the back of of
 Alice's elbow against her
 : Only I said The Dormouse had read in all alone here O mouse she hastily but generally just been broken.
 
+
+## Wikilinks load test
+
+[[indurate bonnet shark]]
+[[kokka tunnel vision]]
+[[preachy glutamic oxalacetic transaminase]]

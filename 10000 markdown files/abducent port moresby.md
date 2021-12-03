@@ -84,3 +84,9 @@ A fine day maybe the
 Begin at school in salt
 : Once upon pegs.
 
+
+## Wikilinks load test
+
+[[nasty moneses uniflora]]
+[[branched flying robin]]
+[[awless logomach]]

@@ -89,3 +89,8 @@ wow.
 Sounds of croquet she set
 : If I'd only walk a box of changes she hurried by without even looking across the rose-tree
 
+
+## Wikilinks load test
+
+[[ascetic sclerodermatales]]
+[[unwritten treasure house]]

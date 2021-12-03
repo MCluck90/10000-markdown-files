@@ -76,3 +76,8 @@ Same as usual you hold it
 Your hair has a
 : HEARTHRUG NEAR THE COURT.
 
+
+## Wikilinks load test
+
+[[glittering chain mail]]
+[[darned ethel merman]]

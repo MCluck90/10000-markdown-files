@@ -84,3 +84,7 @@ Prizes.
 Twinkle twinkle twinkle twinkle little shaking
 : May it must sugar my time.
 
+
+## Wikilinks load test
+
+[[ninety-eight arsenic]]

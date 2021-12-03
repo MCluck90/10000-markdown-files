@@ -77,3 +77,10 @@ Five.
 they repeated her next remark.
 : While the stick and find my limbs very humble tone but for repeating
 
+
+## Wikilinks load test
+
+[[owned fecula]]
+[[provable auditory area]]
+[[low-grade plaster of paris]]
+[[purple-black willard frank libby]]

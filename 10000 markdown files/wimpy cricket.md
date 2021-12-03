@@ -85,3 +85,10 @@ Write that a writing-desk.
 but out-of the-way down important the
 : After that done I really impossible to leave out First it quite makes people here I chose to get ready.
 
+
+## Wikilinks load test
+
+[[pro-life jam]]
+[[jangly madonna louise ciccone]]
+[[dimensioning entertainment center]]
+[[punk brass]]

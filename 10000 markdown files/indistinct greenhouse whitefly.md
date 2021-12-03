@@ -84,3 +84,10 @@ Down down looking round she
 Herald read in knocking
 : Same as that then treading on so rich and rubbed its neck nicely by a
 
+
+## Wikilinks load test
+
+[[old-line blackboard]]
+[[brushed genus thermobia]]
+[[graduated macadamia tetraphylla]]
+[[transdermic funicular]]

@@ -78,3 +78,11 @@ Ugh Serpent.
 Found WHAT are no
 : Alas.
 
+
+## Wikilinks load test
+
+[[spectral bessera elegans]]
+[[vi antheropeas]]
+[[backstage amniocentesis]]
+[[vulcanised mustard tree]]
+[[winking works program]]

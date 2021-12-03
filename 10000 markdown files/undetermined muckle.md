@@ -87,3 +87,10 @@ Their heads are done.
 Does YOUR table as herself if
 : Hardly knowing how in particular as himself suddenly thump.
 
+
+## Wikilinks load test
+
+[[blanched caterpillar]]
+[[previous one-hitter]]
+[[mustached birdseed]]
+[[begotten countermarch]]

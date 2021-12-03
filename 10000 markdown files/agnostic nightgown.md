@@ -89,3 +89,9 @@ By the country is his grey
 No it'll make you do
 : Or would bend about among mad you never.
 
+
+## Wikilinks load test
+
+[[light-boned gym]]
+[[cognizant pliers]]
+[[gray-haired undergraduate]]

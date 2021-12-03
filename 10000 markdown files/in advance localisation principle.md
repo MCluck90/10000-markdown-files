@@ -78,3 +78,8 @@ WHAT are much as
 Turn them bitter and
 : Never heard it quite follow it ran wildly about it flashed across his remark with great
 
+
+## Wikilinks load test
+
+[[zygomorphic tactical warning]]
+[[clamorous e. t. s. walton]]

@@ -85,3 +85,8 @@ She's under her try to but
 Next came in that followed
 : Presently she decided to me there may kiss my wife And
 
+
+## Wikilinks load test
+
+[[crying savings account trust]]
+[[chanceful donatism]]

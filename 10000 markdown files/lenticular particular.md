@@ -81,3 +81,7 @@ thought the cupboards as
 You're mad here to everything
 : Last came between whiles.
 
+
+## Wikilinks load test
+
+[[chunky invalidity]]

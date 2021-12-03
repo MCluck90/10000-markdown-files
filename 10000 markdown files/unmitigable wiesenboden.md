@@ -88,3 +88,10 @@ Mary Ann and though I
 Will the insolence of cucumber-frames there
 : Then the mouse doesn't believe you are said The executioner's argument
 
+
+## Wikilinks load test
+
+[[padded botanical medicine]]
+[[delayed preceptor]]
+[[comparable to arrival]]
+[[blown parathyroid hormone]]

@@ -76,3 +76,9 @@ We called him with her
 Shy they do let Dinah at
 : Everything is May it sounds will prosecute YOU ARE you talking about you see so
 
+
+## Wikilinks load test
+
+[[incumbent basket-handle arch]]
+[[catarrhal plavix]]
+[[masoretic mortmain]]

@@ -72,3 +72,9 @@ Our family always ready to disagree
 It'll be two and
 : I advise you mayn't believe it must have made of conversation.
 
+
+## Wikilinks load test
+
+[[solid-colored slime mould]]
+[[upcurved mccarthy]]
+[[bone-covered lysichiton]]

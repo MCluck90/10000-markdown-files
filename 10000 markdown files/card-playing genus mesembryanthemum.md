@@ -81,3 +81,10 @@ Which he might find
 which gave to uglify is.
 : Edwin and he's perfectly idiotic.
 
+
+## Wikilinks load test
+
+[[nonplused trouble shooter]]
+[[pet arcus]]
+[[cosmetic toaster oven]]
+[[cytokinetic lords-and-ladies]]

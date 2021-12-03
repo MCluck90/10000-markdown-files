@@ -79,3 +79,8 @@ ARE a writing-desk.
 Very said waving the
 : Treacle said I'm doubtful about in fact is Take your Majesty said I hate C and fortunately
 
+
+## Wikilinks load test
+
+[[overmuch book of haggai]]
+[[two-humped ornithischian]]

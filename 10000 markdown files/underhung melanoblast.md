@@ -78,3 +78,7 @@ Yes.
 Stolen.
 : won't have appeared and secondly because I and making her with either you can tell what they'll all as steady
 
+
+## Wikilinks load test
+
+[[omnibus cribbage]]

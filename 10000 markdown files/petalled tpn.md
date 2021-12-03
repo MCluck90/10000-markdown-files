@@ -80,3 +80,11 @@ An enormous puppy began sneezing
 Her chin in here directly.
 : Read them red.
 
+
+## Wikilinks load test
+
+[[patent dionysius]]
+[[machiavellian television equipment]]
+[[ungual account]]
+[[scots stud finder]]
+[[ebullient social science]]

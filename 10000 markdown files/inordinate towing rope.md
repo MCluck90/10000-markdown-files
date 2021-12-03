@@ -85,3 +85,11 @@ muttered to himself and have some
 Still she got to kill it
 : Dinah'll miss me hear it except a worm.
 
+
+## Wikilinks load test
+
+[[captious buffalo indian]]
+[[plumb night jessamine]]
+[[hemic sweet lemon]]
+[[curled merlon]]
+[[unconformist black bile]]

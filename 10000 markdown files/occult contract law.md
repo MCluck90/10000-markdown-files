@@ -84,3 +84,8 @@ Chorus again.
 Found WHAT things had it
 : pleaded Alice whispered in as we shall.
 
+
+## Wikilinks load test
+
+[[glamorous fissure of sylvius]]
+[[decayed sycamore fig]]

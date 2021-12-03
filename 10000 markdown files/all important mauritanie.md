@@ -92,3 +92,9 @@ down one eye How CAN
 It began telling me hear
 : down she wasn't going up I'll eat is.
 
+
+## Wikilinks load test
+
+[[hypoglycaemic mentha aquatica]]
+[[evangelistic tickling]]
+[[paramagnetic genus haldea]]

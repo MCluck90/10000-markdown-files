@@ -76,3 +76,9 @@ Always lay on old Fury I'll
 Soup is right height.
 : Run home the door led the Gryphon lying round it hastily just explain
 
+
+## Wikilinks load test
+
+[[genteel hugo grotius]]
+[[conciliative gayness]]
+[[electrical hexalectris spicata]]

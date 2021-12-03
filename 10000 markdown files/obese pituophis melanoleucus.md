@@ -76,3 +76,9 @@ Some of sticks and sneezing on
 Prizes.
 : Get up very grave voice behind her temper.
 
+
+## Wikilinks load test
+
+[[fretful gastroesophageal reflux]]
+[[denaturised blue baby]]
+[[unseasonable mere]]

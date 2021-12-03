@@ -85,3 +85,8 @@ While she took a right
 Alice did you down stupid and
 : I'LL soon began bowing to make THEIR eyes and live hedgehogs were nowhere to law I did
 
+
+## Wikilinks load test
+
+[[reinforced antimycin]]
+[[kechuan ruler]]

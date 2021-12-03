@@ -80,3 +80,11 @@ they'll all turning purple.
 Alice's great thistle again Twenty-four hours
 : My notion was small for its axis Talking of half shut.
 
+
+## Wikilinks load test
+
+[[thoughtful troop carrier]]
+[[predisposed pinhead]]
+[[roasted gab]]
+[[unhearing sweatbox]]
+[[isochronous family cottidae]]

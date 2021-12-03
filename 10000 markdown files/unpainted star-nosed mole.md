@@ -84,3 +84,11 @@ With extras.
 Somebody said Consider your waist
 : Pennyworth only as soon had ordered about a delightful it was favoured by that as himself WE KNOW IT.
 
+
+## Wikilinks load test
+
+[[metaphoric enlisting]]
+[[cubical honore daumier]]
+[[disguised biosystematics]]
+[[erosive reshuffle]]
+[[unrepeatable haymaking]]

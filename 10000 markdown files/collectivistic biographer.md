@@ -76,3 +76,8 @@ Reeling and meat While the
 Pray how delightful thing howled
 : Prizes.
 
+
+## Wikilinks load test
+
+[[practised channel catfish]]
+[[hi-tech birth certificate]]

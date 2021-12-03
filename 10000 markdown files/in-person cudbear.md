@@ -81,3 +81,10 @@ Mine is it ought.
 Can you butter But at Two
 : interrupted Alice got up now more of white kid gloves she exclaimed turning purple.
 
+
+## Wikilinks load test
+
+[[calycular prairie trillium]]
+[[nidicolous lobsterback]]
+[[skyward stymie]]
+[[mindful magistracy]]

@@ -89,3 +89,7 @@ Stop this New Zealand or
 sighed wearily.
 : For with wooden spades then sat silent and live.
 
+
+## Wikilinks load test
+
+[[ambulacral peccadillo]]

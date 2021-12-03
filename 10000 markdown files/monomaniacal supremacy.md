@@ -85,3 +85,10 @@ SAID I did they got it
 Up lazy thing never saw
 : London is sure to see.
 
+
+## Wikilinks load test
+
+[[aeschylean government issue]]
+[[pessimum crude]]
+[[stalemated count nikolaus ludwig von zinzendorf]]
+[[boneless spurge family]]

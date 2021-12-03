@@ -86,3 +86,10 @@ What's your Majesty the
 Boots and put my
 : Two lines.
 
+
+## Wikilinks load test
+
+[[minimum one]]
+[[all in umbrella sedge]]
+[[freehanded neomys]]
+[[chisel-like mary godwin wollstonecraft shelley]]

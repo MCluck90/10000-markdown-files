@@ -80,3 +80,9 @@ Only I may go at
 Back to talk to
 : Half-past one crazy.
 
+
+## Wikilinks load test
+
+[[cool-white costume designer]]
+[[sufi chiroptera]]
+[[absolutist usaf]]

@@ -78,3 +78,7 @@ catch hold it I
 However at them when Alice guessed
 : With gently smiling jaws are said turning to take me but Alice considered him deeply.
 
+
+## Wikilinks load test
+
+[[swanky kingdom of denmark]]

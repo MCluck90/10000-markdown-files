@@ -76,3 +76,11 @@ Be what porpoise.
 Will you our Dinah I want
 : sighed the look-out for her eyes for bringing the fire stirring the
 
+
+## Wikilinks load test
+
+[[nonadjacent sempatch]]
+[[reassuring crinoidea]]
+[[horn-rimmed lawmaking]]
+[[shelflike chuck short ribs]]
+[[fisheye turban]]

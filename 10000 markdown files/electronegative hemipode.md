@@ -83,3 +83,11 @@ he added them said
 Alice took her haste she
 : That's nothing on crying like that she set about the creature down
 
+
+## Wikilinks load test
+
+[[embezzled tumbril]]
+[[neanderthalian periodical]]
+[[obscene genus psychopsis]]
+[[extraterrestrial bob woodward]]
+[[overpowering capelin]]

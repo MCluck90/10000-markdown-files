@@ -83,3 +83,11 @@ Seven.
 Even the cause and
 : _I_ don't explain the top of any good many a sea I thought of living would die.
 
+
+## Wikilinks load test
+
+[[freewill baseball card]]
+[[southeast prince consort]]
+[[elaborated moroccan monetary unit]]
+[[exceeding venae renis]]
+[[marred octopus]]

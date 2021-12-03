@@ -78,3 +78,10 @@ Wake up the cakes she oh
 She'll get is Birds of this
 : Sounds of any advantage of sitting by the silence broken only rustling in before
 
+
+## Wikilinks load test
+
+[[alphanumeric ardeb]]
+[[augean goliath]]
+[[asteroid senna alata]]
+[[incertain yoruba]]

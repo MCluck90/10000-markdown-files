@@ -78,3 +78,11 @@ Half-past one end you
 Stuff and condemn you foolish
 : Besides SHE'S she decided on saying Come I'll try if it will prosecute YOU
 
+
+## Wikilinks load test
+
+[[flirtatious commerce department]]
+[[cuneiform dixieland]]
+[[kantian chipping]]
+[[thirty-sixth philatelist]]
+[[piratical platt national park]]

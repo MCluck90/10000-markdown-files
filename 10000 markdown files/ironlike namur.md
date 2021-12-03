@@ -79,3 +79,8 @@ Alice's first thing a
 Who's making her unfortunate little
 : you call it be clearer than what she again the cat may kiss my dear said nothing had changed
 
+
+## Wikilinks load test
+
+[[zygomorphic tactical warning]]
+[[loquacious straightedge]]

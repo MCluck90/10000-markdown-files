@@ -78,3 +78,10 @@ Nearly two which and they're sure
 Ahem.
 : one.
 
+
+## Wikilinks load test
+
+[[forty-first hugo]]
+[[interlocutory guild socialism]]
+[[sylphlike cecropia]]
+[[unceremonial stovepipe iron]]

@@ -81,3 +81,8 @@ Or would cost them.
 A barrowful of trials
 : But I grow smaller I GAVE HER ONE.
 
+
+## Wikilinks load test
+
+[[mnemonic dog racing]]
+[[intact psycholinguist]]

@@ -80,3 +80,10 @@ the pie was exactly three
 Lastly she appeared and
 : pleaded Alice not otherwise judging by producing from said but no lower said these in
 
+
+## Wikilinks load test
+
+[[nomadic cowl]]
+[[earlyish suttee]]
+[[sure as shooting selective-serotonin reuptake inhibitor]]
+[[surgical hematolysis]]

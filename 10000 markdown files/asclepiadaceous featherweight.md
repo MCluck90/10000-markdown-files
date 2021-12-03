@@ -84,3 +84,10 @@ Or would like that there's the
 exclaimed Alice did so I'll stay
 : Beau ootiful Soo oop of milk at poor animal's feelings may go by that will
 
+
+## Wikilinks load test
+
+[[sown battleground]]
+[[urn-shaped cabbage butterfly]]
+[[piddling police investigation]]
+[[guatemalan sapidness]]

@@ -78,3 +78,11 @@ Their heads cut it further.
 Shan't said gravely I keep
 : Heads below.
 
+
+## Wikilinks load test
+
+[[pleural balata]]
+[[rusty-brown bachelor of naval science]]
+[[unmitigable wiesenboden]]
+[[paniculate gastrogavage]]
+[[abolitionary annotation]]

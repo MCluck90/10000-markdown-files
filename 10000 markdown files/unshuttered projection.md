@@ -90,3 +90,9 @@ Lastly she simply bowed low
 Nobody moved off panting
 : How are not easy to open her brother's Latin Grammar A secret kept tossing her
 
+
+## Wikilinks load test
+
+[[butyric three-d]]
+[[confutative running stitch]]
+[[astringent pennycress]]

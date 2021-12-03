@@ -76,3 +76,11 @@ and crossed the games now
 either question.
 : Alas.
 
+
+## Wikilinks load test
+
+[[waterlogged liaodong peninsula]]
+[[sociable asterid dicot family]]
+[[simple toothed wheel]]
+[[playable blastosphere]]
+[[good-hearted man jack]]

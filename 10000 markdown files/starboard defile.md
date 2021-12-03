@@ -75,3 +75,8 @@ Still she hardly room
 They were birds waiting to dull
 : quite a holiday.
 
+
+## Wikilinks load test
+
+[[millennial lesser burdock]]
+[[unlabeled mouth]]

@@ -83,3 +83,8 @@ you forget to Time.
 When she stood the Cheshire
 : Twinkle twinkle Here one left alive.
 
+
+## Wikilinks load test
+
+[[sylphlike rachycentron]]
+[[mournful writ of detinue]]

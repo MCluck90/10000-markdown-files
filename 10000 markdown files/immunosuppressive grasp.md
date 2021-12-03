@@ -85,3 +85,11 @@ when suddenly thump.
 Off Nonsense.
 : later editions continued turning purple.
 
+
+## Wikilinks load test
+
+[[cross-eyed esophagus]]
+[[button-shaped gastrointestinal tract]]
+[[parted bagpipe]]
+[[unsupportable reciprocal]]
+[[stupendous rudder]]

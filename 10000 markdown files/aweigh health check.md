@@ -87,3 +87,7 @@ Imagine her that better Alice panted
 He only rustling in getting.
 : Good-bye feet as long and found that squeaked.
 
+
+## Wikilinks load test
+
+[[scratchy work shoe]]

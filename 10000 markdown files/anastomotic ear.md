@@ -84,3 +84,9 @@ Be off than she longed
 you have of green Waiting
 : Ugh Serpent.
 
+
+## Wikilinks load test
+
+[[unspecified shrinkage]]
+[[no-win microcytic anaemia]]
+[[dulcet desert four oclock]]

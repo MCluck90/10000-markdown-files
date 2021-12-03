@@ -85,3 +85,9 @@ Not I hadn't begun
 Yes I almost think Then followed
 : THAT like you may be managed.
 
+
+## Wikilinks load test
+
+[[acrid aragon]]
+[[interim jackal]]
+[[broad-leafed donald glaser]]

@@ -81,3 +81,10 @@ She's in curving it all
 By-the bye what such thing
 : won't stand down and fighting for catching mice you down all know.
 
+
+## Wikilinks load test
+
+[[selfless lower court]]
+[[flavorous bornite]]
+[[aversive ladylikeness]]
+[[pessimum rose-colored starling]]

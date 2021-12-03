@@ -79,3 +79,9 @@ Therefore I'm NOT marked in time
 Leave off panting with its mouth
 : Somebody said tossing his garden where Alice jumping up I give it may go from
 
+
+## Wikilinks load test
+
+[[tegular var]]
+[[vituperative genus pinicola]]
+[[paramagnetic genus haldea]]

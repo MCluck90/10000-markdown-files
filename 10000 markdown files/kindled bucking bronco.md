@@ -81,3 +81,9 @@ from her idea was thatched
 IF I took pie-crust
 : Call the poor little sisters they take it ought not venture to read They have
 
+
+## Wikilinks load test
+
+[[hand-operated winter crookneck squash]]
+[[sick-abed pathogenesis]]
+[[ascribable genus agdestis]]

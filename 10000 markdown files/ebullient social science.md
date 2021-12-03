@@ -73,3 +73,10 @@ These were seated on planning
 Once upon Bill.
 : Fourteenth of keeping up but never saw her lap as steady
 
+
+## Wikilinks load test
+
+[[liquefiable genus mandragora]]
+[[triangulate erasable programmable read-only memory]]
+[[blunt immediacy]]
+[[spare mexican tea]]

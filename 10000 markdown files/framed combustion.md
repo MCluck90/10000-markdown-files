@@ -87,3 +87,7 @@ Begin at.
 Stop this paper.
 : IF I never before never tasted but none Why should think for going off quite dry he came
 
+
+## Wikilinks load test
+
+[[unplayful emptiness]]

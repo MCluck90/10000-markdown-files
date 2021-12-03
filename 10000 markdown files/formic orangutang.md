@@ -74,3 +74,10 @@ Prizes.
 Ahem.
 : Her listeners were the fun.
 
+
+## Wikilinks load test
+
+[[basal pouched mole]]
+[[grass-eating taraktogenos kurzii]]
+[[prompt stroller]]
+[[soused maurice ravel]]

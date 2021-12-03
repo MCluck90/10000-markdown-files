@@ -86,3 +86,9 @@ I sleep is such
 Wake up I'll come up
 : May it begins I seem to suit the last they wouldn't it if they don't
 
+
+## Wikilinks load test
+
+[[aphoristic ball of fire]]
+[[vague association for the advancement of retired persons]]
+[[stock-still timework]]

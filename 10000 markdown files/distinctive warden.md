@@ -88,3 +88,11 @@ Keep back the smallest
 Tis so Alice an eel
 : but looked back.
 
+
+## Wikilinks load test
+
+[[megascopic bilestone]]
+[[roast playfulness]]
+[[two-humped ornithischian]]
+[[rectangular psephologist]]
+[[electronegative hemipode]]

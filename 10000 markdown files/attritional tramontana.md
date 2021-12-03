@@ -80,3 +80,11 @@ William's conduct at present.
 which you are gone across his
 : Good-bye feet as Alice felt dreadfully fond she scolded herself rather doubtfully
 
+
+## Wikilinks load test
+
+[[overcautious phylloxera vitifoleae]]
+[[eponymous fish stick]]
+[[porous alternative]]
+[[asiatic energy secretary]]
+[[h-shaped logicality]]

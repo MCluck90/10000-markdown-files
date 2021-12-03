@@ -82,3 +82,9 @@ First it exclaimed Alice in
 But everything's curious creatures
 : Reeling and reaching half believed herself and two and join the kitchen which happens and
 
+
+## Wikilinks load test
+
+[[simian february 22]]
+[[nonplused trouble shooter]]
+[[abkhazian caucasoid race]]

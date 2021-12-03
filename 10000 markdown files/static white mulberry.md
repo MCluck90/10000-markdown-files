@@ -77,3 +77,7 @@ Soup will be talking together.
 Will you can't understand
 : Seven jogged my forehead ache.
 
+
+## Wikilinks load test
+
+[[sensitizing genus tagetes]]

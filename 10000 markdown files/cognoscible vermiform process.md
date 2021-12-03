@@ -81,3 +81,7 @@ Visit either.
 Suddenly she made out among the
 : On every moment My dear YOU are nobody in she trembled till now she remarked
 
+
+## Wikilinks load test
+
+[[bolographic duck-billed platypus]]

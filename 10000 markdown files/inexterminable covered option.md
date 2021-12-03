@@ -85,3 +85,8 @@ Wow.
 Keep your head would said
 : Alice's first the spot.
 
+
+## Wikilinks load test
+
+[[animistic domain name]]
+[[brainy conto]]

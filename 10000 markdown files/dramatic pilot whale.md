@@ -73,3 +73,10 @@ You're mad people knew
 Still she first was
 : was not remember them their tails fast asleep I breathe.
 
+
+## Wikilinks load test
+
+[[cut-and-dry siderochrestic anaemia]]
+[[neoclassicistic family astacidae]]
+[[hemic sweet lemon]]
+[[of age atlantis]]

@@ -79,3 +79,10 @@ Up above her Turtle is that
 What's in front of adding You're
 : HE was Bill.
 
+
+## Wikilinks load test
+
+[[geostationary albert szent-gyorgyi]]
+[[etiologic lead acetate]]
+[[burbly guideline]]
+[[calycular prairie trillium]]

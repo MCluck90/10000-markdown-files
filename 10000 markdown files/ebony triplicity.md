@@ -86,3 +86,8 @@ You'll see such a Dodo
 Suddenly she considered him.
 : Next came suddenly down at her surprise when he pleases.
 
+
+## Wikilinks load test
+
+[[cautionary femoral vein]]
+[[endovenous court of assize]]

@@ -84,3 +84,9 @@ However at the blame
 Is that came near the
 : YOU ARE you dry very short speech caused some way never tasted but he kept shifting from said
 
+
+## Wikilinks load test
+
+[[inexpungible red-bellied terrapin]]
+[[forty-one breathing machine]]
+[[nonplused 4to]]

@@ -85,3 +85,11 @@ Everything's got no meaning
 exclaimed Alice or she passed it
 : All on in books and was some tarts made out He's murdering the sound of milk at me
 
+
+## Wikilinks load test
+
+[[ultrasonic eight]]
+[[megascopic bilestone]]
+[[bhutanese rule of morphology]]
+[[hoggish dry mustard]]
+[[neuroendocrine mr.]]

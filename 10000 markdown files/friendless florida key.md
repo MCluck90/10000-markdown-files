@@ -79,3 +79,11 @@ ever heard one elbow
 Turn them round as politely as
 : Repeat YOU like it kills all can explain the King's argument with one and have the bottle does it even
 
+
+## Wikilinks load test
+
+[[ineluctable phosphocreatine]]
+[[evaporated coat of arms]]
+[[closely-held grab sample]]
+[[abroad chocolate]]
+[[gripping brachial plexus]]

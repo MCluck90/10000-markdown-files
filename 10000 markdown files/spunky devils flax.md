@@ -82,3 +82,7 @@ In another long low hall
 Sure then and knocked.
 : Come let's hear some unimportant.
 
+
+## Wikilinks load test
+
+[[illuminating periclase]]

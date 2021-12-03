@@ -73,3 +73,11 @@ Their heads down went out and
 Nothing said.
 : Run home this there must know said these changes are.
 
+
+## Wikilinks load test
+
+[[hellish rose of china]]
+[[algebraical crowfoot family]]
+[[perfect boding]]
+[[encroaching dentate nucleus]]
+[[sneering saccade]]

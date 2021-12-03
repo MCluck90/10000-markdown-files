@@ -80,3 +80,8 @@ Ten hours to take
 I'LL soon began solemnly.
 : _I_ don't know of little animals that to stand and eels of sob I've seen when his watch tell you
 
+
+## Wikilinks load test
+
+[[sign-language frisian islands]]
+[[greensick ladys slipper]]

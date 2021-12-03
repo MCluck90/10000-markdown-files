@@ -88,3 +88,7 @@ Read them into its great
 persisted the sentence first
 : later.
 
+
+## Wikilinks load test
+
+[[monthly genus gentiana]]

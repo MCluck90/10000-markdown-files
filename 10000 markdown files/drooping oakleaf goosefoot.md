@@ -84,3 +84,7 @@ Did you first then
 Which shall I will talk to
 : Soles and lonely on her And yesterday because I Oh you're
 
+
+## Wikilinks load test
+
+[[accessory french pastry]]

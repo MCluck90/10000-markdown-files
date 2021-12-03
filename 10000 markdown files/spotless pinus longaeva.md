@@ -77,3 +77,7 @@ Only I should be quick
 Those whom she picked up
 : wow.
 
+
+## Wikilinks load test
+
+[[contrasty lounge lizard]]

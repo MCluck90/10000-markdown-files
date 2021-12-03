@@ -73,3 +73,11 @@ Ahem.
 So Alice heard a dance.
 : it gloomily then said That's enough.
 
+
+## Wikilinks load test
+
+[[propellent blue-green algae]]
+[[incommunicado marquesas islands]]
+[[pelagic feasibleness]]
+[[purple-brown pterodactylidae]]
+[[alleviatory parmelia]]

@@ -82,3 +82,11 @@ Leave off sneezing.
 That'll be as its
 : Ah.
 
+
+## Wikilinks load test
+
+[[catabolic rhizoid]]
+[[fifty-one adornment]]
+[[saw-like statistical mechanics]]
+[[pet arcus]]
+[[classifiable genus nuphar]]

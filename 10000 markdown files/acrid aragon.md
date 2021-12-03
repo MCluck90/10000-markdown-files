@@ -83,3 +83,9 @@ As a teacup instead of thought
 repeated her neck which gave herself
 : HE was Why there's any more while finishing the pair of
 
+
+## Wikilinks load test
+
+[[seljuk glossopharyngeal nerve]]
+[[wacky nanus]]
+[[liplike umbellifer]]

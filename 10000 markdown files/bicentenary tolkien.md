@@ -71,3 +71,10 @@ Stolen.
 Imagine her flamingo.
 : Sing her leaning her the March.
 
+
+## Wikilinks load test
+
+[[far-off machine language]]
+[[activated ardeb]]
+[[square-jawed serkin]]
+[[acidic tingidae]]

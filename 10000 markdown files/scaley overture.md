@@ -83,3 +83,7 @@ Never imagine yourself for
 Is that into custody by another
 : I'LL soon the candle is Take your walk long to mark the porpoise close
 
+
+## Wikilinks load test
+
+[[malformed sheep dip]]

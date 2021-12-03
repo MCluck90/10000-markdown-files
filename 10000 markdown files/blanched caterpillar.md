@@ -79,3 +79,7 @@ Two began talking about
 wow.
 : Back to bring tears.
 
+
+## Wikilinks load test
+
+[[unsatisfactory animal foot]]

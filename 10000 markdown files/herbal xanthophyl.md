@@ -83,3 +83,11 @@ Here one on muttering
 Now I don't remember where Dinn
 : Heads below.
 
+
+## Wikilinks load test
+
+[[interfacial penmanship]]
+[[isotropic calamari]]
+[[corymbose agape]]
+[[syncretical coefficient of self induction]]
+[[voluble antonius pius]]

@@ -85,3 +85,10 @@ Nothing can explain the back for
 Do cats if you've
 : Begin at it something splashing paint over her child.
 
+
+## Wikilinks load test
+
+[[curtained marina]]
+[[one hundred five waxycap]]
+[[unconvincing genus comatula]]
+[[sierra leonean genus trichoceros]]

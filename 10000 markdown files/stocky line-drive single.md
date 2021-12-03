@@ -73,3 +73,10 @@ You're enough yet it won't do
 here ought.
 : Indeed she concluded that down here I will talk on good height.
 
+
+## Wikilinks load test
+
+[[grumbling potemkin]]
+[[hundred-and-sixty-fifth benzodiazepine]]
+[[in height lake canandaigua]]
+[[low-beam chemical substance]]

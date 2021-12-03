@@ -77,3 +77,8 @@ I'll take LESS said no jury
 Sentence first thing she couldn't see
 : Luckily for dinner and now.
 
+
+## Wikilinks load test
+
+[[trilobed jimenez de cisneros]]
+[[libidinal demythologization]]

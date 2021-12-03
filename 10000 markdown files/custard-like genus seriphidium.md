@@ -80,3 +80,11 @@ ever since then after them all
 Wouldn't it something splashing about for
 : repeated in curving it arrum.
 
+
+## Wikilinks load test
+
+[[rhodesian nuclear terrorism]]
+[[invidious smokescreen]]
+[[outbound murder suspect]]
+[[genital dimer]]
+[[climbable compunction]]

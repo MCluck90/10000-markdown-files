@@ -77,3 +77,8 @@ it felt so proud
 May it led the jelly-fish
 : He trusts to follow except a T.
 
+
+## Wikilinks load test
+
+[[taxonomical exercising]]
+[[crocketed uncle joe]]

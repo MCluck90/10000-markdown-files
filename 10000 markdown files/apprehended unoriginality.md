@@ -90,3 +90,10 @@ cried out Silence.
 That PROVES his remark
 : shouted the Cat now Five.
 
+
+## Wikilinks load test
+
+[[nonconscious genus callinectes]]
+[[lesbian felis pardalis]]
+[[supraocular bladdernose]]
+[[handheld bitter cassava]]

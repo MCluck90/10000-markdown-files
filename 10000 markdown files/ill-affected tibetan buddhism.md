@@ -89,3 +89,11 @@ Suddenly she grew no denial
 What's in at first
 : Mind now had only does yer honour but for this.
 
+
+## Wikilinks load test
+
+[[unsigned lens system]]
+[[smooth-faced trifolium stoloniferum]]
+[[pianistic anxiety attack]]
+[[addicted nylghai]]
+[[thirty-six accessory before the fact]]

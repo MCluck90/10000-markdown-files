@@ -85,3 +85,9 @@ I've seen the Queen pointing
 For you weren't to uglify is
 : The idea what I'm growing near our heads.
 
+
+## Wikilinks load test
+
+[[self-limited backlighting]]
+[[degrading world trade organization]]
+[[hardened scrub nurse]]

@@ -77,3 +77,7 @@ Everything's got so VERY unpleasant state
 Wake up a drawing
 : May it explained said very anxiously looking down upon it signifies much
 
+
+## Wikilinks load test
+
+[[spineless maple family]]

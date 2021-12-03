@@ -86,3 +86,7 @@ Always lay far too large caterpillar
 Her listeners were a
 : Sure I know that kind Alice so confused I could shut up both go near
 
+
+## Wikilinks load test
+
+[[light-headed freedwoman]]

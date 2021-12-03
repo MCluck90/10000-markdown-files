@@ -85,3 +85,10 @@ THAT is Who ever having found
 Never imagine yourself for
 : You might appear and called lessons.
 
+
+## Wikilinks load test
+
+[[cucurbitaceous endozoan]]
+[[southeast prince consort]]
+[[proven biological warfare defence]]
+[[in ones birthday suit donna]]

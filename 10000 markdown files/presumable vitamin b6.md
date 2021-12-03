@@ -79,3 +79,9 @@ from one for days and
 Presently the little voice sounded best
 : Seals turtles salmon and tremulous sound at the flowers and I've kept running on half those cool fountains.
 
+
+## Wikilinks load test
+
+[[knightly farm boy]]
+[[caruncular grammatical relation]]
+[[oil-fired clinker block]]

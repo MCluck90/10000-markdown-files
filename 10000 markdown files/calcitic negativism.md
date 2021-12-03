@@ -84,3 +84,8 @@ Right as much under it
 Herald read as long as
 : Ahem.
 
+
+## Wikilinks load test
+
+[[apivorous sarcoptidae]]
+[[earsplitting stiff]]

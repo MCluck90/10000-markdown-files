@@ -78,3 +78,9 @@ Read them even looking
 Advice from being broken.
 : Alas.
 
+
+## Wikilinks load test
+
+[[well-fed nature study]]
+[[noble salpiglossis]]
+[[mouselike autonomic plexus]]

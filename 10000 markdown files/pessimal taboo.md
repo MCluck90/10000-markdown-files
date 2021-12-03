@@ -77,3 +77,9 @@ Two began nibbling at it
 Alas.
 : Anything you liked.
 
+
+## Wikilinks load test
+
+[[filled aculea]]
+[[some information science]]
+[[far-off machine language]]

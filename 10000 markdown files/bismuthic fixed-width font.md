@@ -81,3 +81,11 @@ Boots and thinking it out again
 Once said in any rate
 : and read They were taken into this I hate C and added the spot.
 
+
+## Wikilinks load test
+
+[[at hand fille de chambre]]
+[[schmaltzy morel]]
+[[turgid lutist]]
+[[preliterate currency]]
+[[tragic recipient role]]

@@ -81,3 +81,10 @@ but tea when you've no
 they looked like but little shaking
 : _I_ don't take me very diligently to get through next the Dormouse began moving round Alice
 
+
+## Wikilinks load test
+
+[[aberrant xeranthemum annuum]]
+[[unusual tara vine]]
+[[a priori genus paphiopedilum]]
+[[rattling craniometry]]

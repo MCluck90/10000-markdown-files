@@ -86,3 +86,8 @@ On this grand words
 Suppress him and his sorrow
 : thump.
 
+
+## Wikilinks load test
+
+[[gi english elm]]
+[[pleurocarpous scottish lowlander]]

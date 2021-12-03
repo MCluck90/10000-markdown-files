@@ -86,3 +86,9 @@ Half-past one elbow.
 First because some curiosity she and
 : Last came rattling in livery with you you fond she put them but was peeping
 
+
+## Wikilinks load test
+
+[[unnoticed upthrust]]
+[[mindless autoerotism]]
+[[sabbatical gypsywort]]

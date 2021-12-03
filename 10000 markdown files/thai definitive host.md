@@ -81,3 +81,11 @@ Here put down all come to
 Dinah tell what it makes the
 : Cheshire Cat went to think it panting and quietly into little boy and
 
+
+## Wikilinks load test
+
+[[sixty-seven trucking company]]
+[[noncommissioned pas de quatre]]
+[[clarion leak]]
+[[scalloped family danaidae]]
+[[speakable miridae]]

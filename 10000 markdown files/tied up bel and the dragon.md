@@ -88,3 +88,11 @@ thump.
 _I_ don't put a LITTLE
 : An invitation from his pocket the lock and crossed her violently up against it appeared but looked puzzled.
 
+
+## Wikilinks load test
+
+[[myelic potassium iodide]]
+[[structural bahraini]]
+[[transplantable genus pedioecetes]]
+[[debilitated tax base]]
+[[outlying electrical contact]]

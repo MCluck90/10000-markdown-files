@@ -86,3 +86,11 @@ Serpent.
 Boots and its head with some
 : Two lines.
 
+
+## Wikilinks load test
+
+[[outlying electrical contact]]
+[[unlipped bricole]]
+[[grasslike old wives tale]]
+[[bald-headed wanted notice]]
+[[antiphonary frat]]

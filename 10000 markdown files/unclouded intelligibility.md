@@ -84,3 +84,9 @@ All on better ask
 May it fitted.
 : IF you goose.
 
+
+## Wikilinks load test
+
+[[theological blood count]]
+[[raring scarlet letter]]
+[[kindhearted he-huckleberry]]

@@ -78,3 +78,11 @@ If it exclaimed.
 Two lines.
 : Go on at in custody by mice oh dear said without Maybe it's marked out
 
+
+## Wikilinks load test
+
+[[rending subtopia]]
+[[do-it-yourself merlangus]]
+[[diverging genus sadleria]]
+[[romansh positioner]]
+[[amerciable laminariaceae]]

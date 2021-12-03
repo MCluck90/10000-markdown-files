@@ -87,3 +87,9 @@ Mary Ann what you butter
 persisted.
 : Indeed she walked two.
 
+
+## Wikilinks load test
+
+[[ampullary herculius]]
+[[round-arm euthenics]]
+[[telltale morletts crocodile]]

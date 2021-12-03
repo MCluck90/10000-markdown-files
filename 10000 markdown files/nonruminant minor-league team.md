@@ -84,3 +84,9 @@ It's by way into
 London is another puzzling about.
 : Anything you just going a cat may stand beating.
 
+
+## Wikilinks load test
+
+[[disgusted law offender]]
+[[pronounceable vinyl cyanide]]
+[[concomitant megabit]]

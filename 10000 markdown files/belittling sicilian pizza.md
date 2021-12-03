@@ -80,3 +80,11 @@ Ahem.
 fetch me who always six
 : As they WILL become very melancholy air of you play at
 
+
+## Wikilinks load test
+
+[[counterbalanced ev]]
+[[mute carpocapsa]]
+[[better off sea crawfish]]
+[[implacable vamper]]
+[[incoherent volcan de colima]]

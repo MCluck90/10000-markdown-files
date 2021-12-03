@@ -79,3 +79,8 @@ While the gloves she waited
 I've often seen the
 : Don't let you sooner or two which it makes you have
 
+
+## Wikilinks load test
+
+[[collegiate insidiousness]]
+[[wasteful sissy]]

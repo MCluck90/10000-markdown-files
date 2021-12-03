@@ -73,3 +73,7 @@ Stop this I learn.
 Stop this must I have
 : Nothing whatever happens.
 
+
+## Wikilinks load test
+
+[[doubled circus]]

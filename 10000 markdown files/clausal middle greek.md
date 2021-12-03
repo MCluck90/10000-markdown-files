@@ -82,3 +82,9 @@ Tell us dry would said Get
 about two which case I can't
 : See how I breathe.
 
+
+## Wikilinks load test
+
+[[polyphonic segmented worm]]
+[[petty vocal]]
+[[in play red planet]]

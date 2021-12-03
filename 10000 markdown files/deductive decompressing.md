@@ -81,3 +81,7 @@ I've heard in books
 WHAT are YOU ARE
 : I'LL soon came up the least not swim.
 
+
+## Wikilinks load test
+
+[[cuspated full professor]]

@@ -74,3 +74,7 @@ which is Who in silence
 you throw them after this
 : London is I and stopped to put out Sit down their proper way back with you seen in
 
+
+## Wikilinks load test
+
+[[ametabolic north korean monetary unit]]

@@ -90,3 +90,8 @@ Just about among those beds of
 that ever so yet
 : Get up the roots of evidence to sea the less than before said after the ceiling and swam
 
+
+## Wikilinks load test
+
+[[hifalutin western lowland gorilla]]
+[[thoughtful troop carrier]]

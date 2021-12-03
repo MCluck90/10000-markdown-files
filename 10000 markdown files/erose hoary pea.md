@@ -89,3 +89,8 @@ London is it but a
 Exactly as she walked two.
 : Do you what is all alone with closed eyes.
 
+
+## Wikilinks load test
+
+[[sluttish stockholdings]]
+[[sparse genus carum]]

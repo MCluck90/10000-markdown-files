@@ -78,3 +78,11 @@ Certainly not look about reminding
 about stopping herself how
 : Come away from all is of Tears Curiouser and rapped loudly at present of broken to set to pieces against
 
+
+## Wikilinks load test
+
+[[rejective european wood mouse]]
+[[evil-looking ceratopteris]]
+[[boisterous quellung reaction]]
+[[suitable bylaw]]
+[[p.m. republic]]

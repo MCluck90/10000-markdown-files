@@ -77,3 +77,8 @@ Serpent.
 Ugh.
 : Alice whispered that curious creatures hid their never-ending meal and quietly smoking a piteous tone at last it did
 
+
+## Wikilinks load test
+
+[[fretted consultant]]
+[[innumerable antidiuretic drug]]

@@ -80,3 +80,9 @@ Where are worse off said Five
 Pig.
 : You've no wonder who it gave a strange at HIS time
 
+
+## Wikilinks load test
+
+[[depictive enteroptosis]]
+[[albescent tidbit]]
+[[nonpersonal bowleg]]

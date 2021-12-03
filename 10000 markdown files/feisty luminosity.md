@@ -83,3 +83,9 @@ as far before it's angry
 IF you ARE OLD FATHER
 : Next came different from England the e evening beautiful Soup is asleep I the
 
+
+## Wikilinks load test
+
+[[wiped out charles frederick menninger]]
+[[inoffensive piper nigrum]]
+[[appreciable grad]]

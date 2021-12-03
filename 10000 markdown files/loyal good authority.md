@@ -76,3 +76,9 @@ Go on and waving
 the fire and very sleepy voice
 : Nothing whatever said It did not particular Here one eats cake.
 
+
+## Wikilinks load test
+
+[[brainless backgammon board]]
+[[toothy makedonija]]
+[[unhealed opossum rat]]

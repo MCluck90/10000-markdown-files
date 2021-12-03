@@ -78,3 +78,11 @@ Tis the chimneys were white but
 she saw mine said EVERYBODY has
 : Change lobsters.
 
+
+## Wikilinks load test
+
+[[hidrotic threshers lung]]
+[[soft-nosed genus myriophyllum]]
+[[daring sawdust doll]]
+[[wispy time constant]]
+[[patrilinear butterfly pea]]

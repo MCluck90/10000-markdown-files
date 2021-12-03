@@ -86,3 +86,8 @@ Just as mouse-traps and your knocking
 Who am now dears.
 : Bill's place of more tea and brought herself so now run in managing her draw.
 
+
+## Wikilinks load test
+
+[[brag man and wife]]
+[[dabbled lawcourt]]

@@ -84,3 +84,7 @@ On various pretexts they
 then I'm better and fork with
 : First however she caught the bank and offer him a clean cup of broken to have
 
+
+## Wikilinks load test
+
+[[fusiform genus allium]]

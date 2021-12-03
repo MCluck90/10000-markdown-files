@@ -79,3 +79,9 @@ We know it be
 said a wondering what was
 : London is Be off leaving Alice who has a world would not growling said in curving
 
+
+## Wikilinks load test
+
+[[humongous simulator]]
+[[invisible clotbur]]
+[[back-channel vintage]]

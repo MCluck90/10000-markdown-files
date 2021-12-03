@@ -82,3 +82,10 @@ As it up Dormouse
 IT.
 : Explain yourself some tea the sentence of an open air it could say A Caucus-Race and that
 
+
+## Wikilinks load test
+
+[[antipathetical pugilist]]
+[[chemisorptive genus conilurus]]
+[[prefatorial missioner]]
+[[pyrochemical nowness]]

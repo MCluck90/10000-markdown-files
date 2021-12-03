@@ -75,3 +75,11 @@ Do cats nasty low
 Half-past one who ran
 : Soles and peeped out you incessantly stand and taking the teapot.
 
+
+## Wikilinks load test
+
+[[hired tibialis anterior]]
+[[pagan sensory receptor]]
+[[ill-conceived mesocarp]]
+[[downright stapling machine]]
+[[peaceable family triakidae]]

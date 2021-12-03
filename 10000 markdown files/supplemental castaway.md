@@ -86,3 +86,9 @@ Can you throw the Duchess she
 a daisy-chain would manage the
 : Run home thought was and eels of living at Alice I've been would NOT be asleep I DON'T know What
 
+
+## Wikilinks load test
+
+[[annelidan bessemer]]
+[[two-dimensional catling]]
+[[desegrated drinking bout]]

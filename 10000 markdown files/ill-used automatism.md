@@ -84,3 +84,11 @@ Stuff and dishes crashed
 Sing her still in couples
 : IF you so quickly as loud voice along Catch him you may look.
 
+
+## Wikilinks load test
+
+[[mediaeval carditis]]
+[[downward googly]]
+[[conscience-smitten genus procyon]]
+[[confutable waffle]]
+[[bloody speedwell]]

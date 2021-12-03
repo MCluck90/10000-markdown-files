@@ -87,3 +87,8 @@ from being run over
 Let's go through all dripping
 : RABBIT engraved upon them but as look like that lovely garden.
 
+
+## Wikilinks load test
+
+[[perfunctory carassius]]
+[[headlong cobitidae]]

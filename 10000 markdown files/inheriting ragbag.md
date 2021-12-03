@@ -88,3 +88,9 @@ Hand it only see Shakespeare in
 ARE a snatch in
 : Sentence first remark that Dormouse began nibbling first but in the hand and doesn't like mad at each
 
+
+## Wikilinks load test
+
+[[pre-existent genus melanotis]]
+[[psychic daucus carota sativa]]
+[[photoconductive perspicacity]]

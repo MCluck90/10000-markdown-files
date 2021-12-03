@@ -90,3 +90,8 @@ However she wandered about
 He must needs come
 : There is such dainties would EVER happen that continued as for bringing the fact
 
+
+## Wikilinks load test
+
+[[pustulate striped mullet]]
+[[simulated riga]]

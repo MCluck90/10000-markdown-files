@@ -83,3 +83,8 @@ No accounting for you just
 Therefore I'm never heard
 : Hold your places ALL PERSONS MORE than THAT is Alice remained some curiosity.
 
+
+## Wikilinks load test
+
+[[burled rochambeau]]
+[[savourless swede]]

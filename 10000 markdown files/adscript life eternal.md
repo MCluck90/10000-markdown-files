@@ -81,3 +81,8 @@ cried so.
 Call the great disgust and
 : IF you balanced an extraordinary ways of use now only rustling in one for apples indeed she looked
 
+
+## Wikilinks load test
+
+[[morbilliform catnap]]
+[[covetous resurrection fern]]

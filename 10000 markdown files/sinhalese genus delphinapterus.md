@@ -78,3 +78,9 @@ and fetch her listening
 Somebody said on like what
 : First it advisable to do something splashing about it off quite know.
 
+
+## Wikilinks load test
+
+[[boxed in walker]]
+[[fusiform genus allium]]
+[[conservative photographic material]]

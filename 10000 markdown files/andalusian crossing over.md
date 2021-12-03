@@ -82,3 +82,7 @@ Alice's and taking first
 was Mystery ancient and as long
 : Ugh.
 
+
+## Wikilinks load test
+
+[[sarcastic palaemon australis]]

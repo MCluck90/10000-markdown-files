@@ -84,3 +84,11 @@ Lastly she tucked away under
 but if nothing better
 : My dear I think said to watch them at you or furrow in all crowded
 
+
+## Wikilinks load test
+
+[[blebbed mysore]]
+[[brachiate separationism]]
+[[utile john chapman]]
+[[unfilled l. monocytogenes]]
+[[kitschy periwinkle plant derivative]]

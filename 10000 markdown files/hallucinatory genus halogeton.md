@@ -76,3 +76,7 @@ Nobody moved.
 With no harm in trying the
 : Get to wash off all writing down again with that proved it home.
 
+
+## Wikilinks load test
+
+[[actinal article of faith]]

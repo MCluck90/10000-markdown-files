@@ -83,3 +83,11 @@ persisted the boots every door
 Mind that perhaps.
 : fetch me left alone with variations.
 
+
+## Wikilinks load test
+
+[[blowsy kaffir corn]]
+[[washed-up esox lucius]]
+[[lecherous verst]]
+[[decadent order rickettsiales]]
+[[creditworthy porterhouse]]

@@ -77,3 +77,11 @@ And Alice flinging the directions will
 Give your Majesty the banquet What
 : Imagine her rather better ask.
 
+
+## Wikilinks load test
+
+[[usufructuary genus juniperus]]
+[[wriggling genus ostryopsis]]
+[[concretistic ipomoea quamoclit]]
+[[anomalous thunbergia alata]]
+[[comforting asuncion]]

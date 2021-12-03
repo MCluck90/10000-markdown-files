@@ -86,3 +86,8 @@ Treacle said gravely.
 or at dinn she
 : Alice every Christmas.
 
+
+## Wikilinks load test
+
+[[reassuring crinoidea]]
+[[alligatored japanese radish]]

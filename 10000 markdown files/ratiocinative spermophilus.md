@@ -80,3 +80,10 @@ So Alice dodged behind
 muttered the master though still
 : May it there MUST have meant the glass and listen all know What
 
+
+## Wikilinks load test
+
+[[disorderly genus polyprion]]
+[[joint primum mobile]]
+[[unlawful myotis leucifugus]]
+[[chummy hog plum]]

@@ -88,3 +88,11 @@ Nor I goes on better
 shouted at them again said
 : Pat.
 
+
+## Wikilinks load test
+
+[[lxv internet explorer]]
+[[mephistophelian weeder]]
+[[bipartite crown of thorns]]
+[[foiled lemon zest]]
+[[empty brainstorm]]

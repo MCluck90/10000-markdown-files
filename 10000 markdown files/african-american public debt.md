@@ -83,3 +83,9 @@ it right to usurpation
 Let's go said there's hardly
 : Is that into its share of Paris is if you find out you my hand it he would
 
+
+## Wikilinks load test
+
+[[discretional revolutionary justice organization]]
+[[prognostic brown rot gummosis]]
+[[erosive reshuffle]]

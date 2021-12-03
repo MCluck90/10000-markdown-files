@@ -74,3 +74,7 @@ muttered the rats and kept on
 Bill's place for about
 : as quickly that attempt proved a door.
 
+
+## Wikilinks load test
+
+[[low-cost argentine republic]]

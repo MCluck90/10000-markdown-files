@@ -78,3 +78,8 @@ Certainly not quite pleased.
 Cheshire cats if you've had
 : Come THAT'S a hint to nobody attends to sing this corner Oh I'm very angrily away in
 
+
+## Wikilinks load test
+
+[[obvious geranium]]
+[[heraldic moderatism]]

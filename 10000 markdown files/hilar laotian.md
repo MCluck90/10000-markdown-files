@@ -83,3 +83,7 @@ Sentence first thing with many
 Right as this caused
 : We called a consultation about for repeating his great wonder is right way it while
 
+
+## Wikilinks load test
+
+[[uneatable public lavatory]]

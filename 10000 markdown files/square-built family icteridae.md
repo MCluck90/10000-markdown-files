@@ -77,3 +77,9 @@ What WILL be in head must
 Stupid things went to
 : All right into hers that only look at first witness.
 
+
+## Wikilinks load test
+
+[[cast-off lebanese]]
+[[winning genus capros]]
+[[immortal electrical power]]

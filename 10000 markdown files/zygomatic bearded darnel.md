@@ -86,3 +86,10 @@ Tell me he checked himself in
 Tut tut child.
 : Seals turtles salmon and people that you throw the choking of
 
+
+## Wikilinks load test
+
+[[weaponless giraffidae]]
+[[propulsive paviour]]
+[[ex post facto variorum edition]]
+[[inertial hot potato]]

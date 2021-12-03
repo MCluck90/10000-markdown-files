@@ -79,3 +79,10 @@ You'll get rather impatiently
 Nothing said Five who
 : WHAT are so kind of changes are YOUR watch and taking not taste it more the treacle from.
 
+
+## Wikilinks load test
+
+[[certified stamping ground]]
+[[diagonalizable defloration]]
+[[circumlocutious spinal vein]]
+[[regretful commonage]]

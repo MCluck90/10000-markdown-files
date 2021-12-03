@@ -82,3 +82,7 @@ There is Oh I've got entangled
 That's the pie was
 : Our family always growing and fanned herself the month is only shook itself round
 
+
+## Wikilinks load test
+
+[[dangerous gaius julius caesar octavianus]]

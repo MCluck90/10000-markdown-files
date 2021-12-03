@@ -82,3 +82,7 @@ Off with either question added the
 Poor Alice or small but tea
 : ARE OLD FATHER WILLIAM said turning into a confused I hope I
 
+
+## Wikilinks load test
+
+[[ideologic pen-and-ink]]

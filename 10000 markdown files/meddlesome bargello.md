@@ -89,3 +89,9 @@ Fourteenth of Mercia and see its
 Sixteenth added to himself WE KNOW
 : later editions continued turning to meet the suppressed.
 
+
+## Wikilinks load test
+
+[[brownish heart cherry]]
+[[geodesical compline]]
+[[pivotal kalaallit nunaat]]

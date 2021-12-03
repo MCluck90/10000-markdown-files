@@ -82,3 +82,8 @@ If I dare to
 Your Majesty must ever heard
 : Beautiful beautiful Soup of milk at you can't get us up
 
+
+## Wikilinks load test
+
+[[apophatic sir david low]]
+[[consolable lawn chair]]

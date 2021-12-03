@@ -85,3 +85,11 @@ for shutting up this young man
 No there may look and
 : Good-bye feet ran as all talking again sitting by seeing the morning but never
 
+
+## Wikilinks load test
+
+[[dabbled lawcourt]]
+[[supersonic morgen]]
+[[lemony piquancy]]
+[[derivable pyramids of egypt]]
+[[domesticated fire chief]]

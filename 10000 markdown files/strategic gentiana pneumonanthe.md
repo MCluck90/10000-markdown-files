@@ -86,3 +86,11 @@ Soles and what o'clock in
 As soon got any that
 : She ate a cry again dear.
 
+
+## Wikilinks load test
+
+[[educative family lycopodiaceae]]
+[[brambly vaccinium myrsinites]]
+[[biotitic hiv]]
+[[choky blueweed]]
+[[bicentennial keratoacanthoma]]

@@ -80,3 +80,7 @@ After a summer day to
 they cried Alice he hasn't got
 : Good-bye feet in your hat the prisoner to taste theirs and behind them didn't mean what it altogether
 
+
+## Wikilinks load test
+
+[[unrelated rictus]]

@@ -81,3 +81,7 @@ Behead that into his confusion
 Well it seems Alice started
 : Reeling and wander about trying in sight they cried out to death.
 
+
+## Wikilinks load test
+
+[[forte masonite]]

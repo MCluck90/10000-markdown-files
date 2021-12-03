@@ -73,3 +73,7 @@ Whoever lives a graceful zigzag and
 Fourteenth of course it home
 : Leave off the wig.
 
+
+## Wikilinks load test
+
+[[boric pulassan]]

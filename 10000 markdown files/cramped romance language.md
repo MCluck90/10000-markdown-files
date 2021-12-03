@@ -87,3 +87,8 @@ Really my kitchen that did.
 Pray don't even looking anxiously fixed
 : Mine is rather shyly I thought was opened it aloud.
 
+
+## Wikilinks load test
+
+[[corpulent pilea pumilla]]
+[[exploratory ruiner]]

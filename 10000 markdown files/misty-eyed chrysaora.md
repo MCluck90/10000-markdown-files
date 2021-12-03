@@ -87,3 +87,10 @@ then saying anything tougher than
 Let us Drawling Stretching and thinking
 : Hush.
 
+
+## Wikilinks load test
+
+[[conciliatory mutchkin]]
+[[shabby blind person]]
+[[crestfallen billie the kid]]
+[[bouncing 17 november]]

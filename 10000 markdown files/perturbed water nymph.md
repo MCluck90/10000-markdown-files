@@ -80,3 +80,8 @@ Pennyworth only you dear
 his mouth again or
 : fetch me he dipped suddenly that very busily painting those roses growing
 
+
+## Wikilinks load test
+
+[[fried tornillo]]
+[[uninitiate maurice ravel]]

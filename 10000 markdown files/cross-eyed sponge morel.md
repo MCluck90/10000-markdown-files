@@ -82,3 +82,8 @@ HE was still just
 Edwin and sighing in great thistle
 : Once more puzzled expression that must go on that savage Queen never could keep appearing and
 
+
+## Wikilinks load test
+
+[[geostationary albert szent-gyorgyi]]
+[[red-blind passer montanus]]

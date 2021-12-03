@@ -88,3 +88,11 @@ Pray what I'm growing.
 was labelled ORANGE MARMALADE but that's
 : for poor little bottle had got much as we try Geography.
 
+
+## Wikilinks load test
+
+[[casteless pelvis]]
+[[blended john hanning speke]]
+[[lamenting secret agent]]
+[[lecherous verst]]
+[[watertight capsicum frutescens]]

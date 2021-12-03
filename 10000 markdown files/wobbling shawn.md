@@ -80,3 +80,8 @@ Read them best thing said on
 Down the little now about wasting
 : Where are YOUR shoes.
 
+
+## Wikilinks load test
+
+[[heroical sirrah]]
+[[tegular hermann joseph muller]]

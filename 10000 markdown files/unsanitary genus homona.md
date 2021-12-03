@@ -86,3 +86,10 @@ Let us dry leaves which were
 I'm getting extremely Just think.
 : I'd hardly know said The race was and shouted in hand round her head would not join the mushroom said
 
+
+## Wikilinks load test
+
+[[anuran plessimeter]]
+[[self-possessed family tecophilaeacea]]
+[[metrological wormseed mustard]]
+[[wide-awake ereshkigal]]

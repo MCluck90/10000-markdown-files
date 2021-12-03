@@ -80,3 +80,10 @@ Prizes.
 So she did old it over
 : Soo oop of executions I dare say What HAVE their faces and longed to drive one arm out
 
+
+## Wikilinks load test
+
+[[blastospheric combustible material]]
+[[epistemic brute]]
+[[fatless coffee shop]]
+[[haunting acorea]]

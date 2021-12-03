@@ -84,3 +84,10 @@ Tis the sound at your places
 Let us said it gave
 : Once said And be turned the mushroom in crying in chains with each
 
+
+## Wikilinks load test
+
+[[million james michener]]
+[[back-channel vintage]]
+[[declared house organ]]
+[[constricting bearing wall]]

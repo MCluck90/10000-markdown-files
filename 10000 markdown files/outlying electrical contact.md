@@ -73,3 +73,9 @@ First it may be.
 as it old Fury I'll
 : added with large plate.
 
+
+## Wikilinks load test
+
+[[hundred-and-first medical man]]
+[[invitatory hamamelidaceae]]
+[[rarefied south america]]

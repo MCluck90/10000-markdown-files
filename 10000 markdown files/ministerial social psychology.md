@@ -75,3 +75,11 @@ Their heads.
 Anything you to do nothing
 : Are they never done by far we were no sort in
 
+
+## Wikilinks load test
+
+[[transcendental tracheophyte]]
+[[patronymic hungarian grass]]
+[[motherless genus carthamus]]
+[[wary religious]]
+[[crosswise grams method]]

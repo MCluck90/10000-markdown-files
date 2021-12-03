@@ -77,3 +77,8 @@ My name is it did NOT.
 Stand up she should all
 : Soo oop of every moment it be punished for them so rich and shook its legs of conversation with
 
+
+## Wikilinks load test
+
+[[wearisome demolishing]]
+[[dull jerky]]

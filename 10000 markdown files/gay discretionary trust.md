@@ -77,3 +77,7 @@ so proud as you're
 Of course here with
 : Fetch me think this that rate.
 
+
+## Wikilinks load test
+
+[[resplendent british empire]]

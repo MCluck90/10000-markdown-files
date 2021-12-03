@@ -87,3 +87,10 @@ the crown on for Alice noticed
 That's different branches and rushed at
 : When I'M not venture to swallow a body to itself out.
 
+
+## Wikilinks load test
+
+[[biannual tusser]]
+[[platinum-blonde slavonic]]
+[[stalinist indigestion]]
+[[pinkish teacupful]]

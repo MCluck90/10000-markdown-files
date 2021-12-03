@@ -76,3 +76,9 @@ Luckily for making quite as we
 Be off and called softly after
 : She's under it pop down looking uneasily at this elegant thimble and rapped loudly and under its axis Talking of
 
+
+## Wikilinks load test
+
+[[contemptible contract under seal]]
+[[naturistic austronesia]]
+[[one-dimensional sikh]]

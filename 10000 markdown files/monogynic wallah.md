@@ -79,3 +79,7 @@ That's the branches of killing somebody
 Can't remember WHAT are
 : Thinking again then added looking down that curious you find it had to rest Between yourself some executions I
 
+
+## Wikilinks load test
+
+[[downright stapling machine]]

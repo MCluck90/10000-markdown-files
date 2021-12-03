@@ -78,3 +78,11 @@ It's enough I Oh how
 In that it even
 : There was.
 
+
+## Wikilinks load test
+
+[[hidrotic threshers lung]]
+[[overindulgent diagnostic technique]]
+[[thirtieth sir alfred hitchcock]]
+[[unstrung presidential term]]
+[[bohemian venerator]]

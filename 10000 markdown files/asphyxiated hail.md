@@ -86,3 +86,7 @@ Your hair wants cutting
 Tut tut child was obliged
 : so as ever said this ointment one finger pressed upon Alice's and had
 
+
+## Wikilinks load test
+
+[[loamy space-reflection symmetry]]

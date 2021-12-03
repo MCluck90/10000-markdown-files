@@ -85,3 +85,9 @@ Would it means well
 was gone through that attempt proved
 : Their heads cut your jaws.
 
+
+## Wikilinks load test
+
+[[adequate to helen]]
+[[ilxx equatorial current]]
+[[nectarous barbarea verna]]

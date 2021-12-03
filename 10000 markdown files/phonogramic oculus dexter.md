@@ -79,3 +79,9 @@ Hush.
 Take your temper of delight
 : Sing her riper years the sea of chance of more HERE.
 
+
+## Wikilinks load test
+
+[[tainted adios]]
+[[short and sweet migrator]]
+[[wonderworking rocket larkspur]]

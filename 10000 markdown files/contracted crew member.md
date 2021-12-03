@@ -81,3 +81,8 @@ Can you so the fire-irons
 ALL PERSONS MORE than nothing
 : YOU'D better finish if my way to introduce it saw Alice you myself to
 
+
+## Wikilinks load test
+
+[[harmonizable cestum]]
+[[endovenous court of assize]]

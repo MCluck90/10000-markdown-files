@@ -79,3 +79,10 @@ Either the salt water
 Herald read as quickly as to
 : Ahem.
 
+
+## Wikilinks load test
+
+[[well-balanced tune]]
+[[certain muscle system]]
+[[fisheye prima donna]]
+[[pantheist baby-boom generation]]

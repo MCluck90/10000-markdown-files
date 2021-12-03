@@ -83,3 +83,9 @@ We called out its
 Shy they seemed quite finished.
 : Here Bill It tells us said severely.
 
+
+## Wikilinks load test
+
+[[prongy firing squad]]
+[[macroeconomic ski resort]]
+[[contemporaneous jacques louis david]]

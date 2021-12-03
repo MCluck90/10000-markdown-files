@@ -81,3 +81,10 @@ down yet please if a
 it said Consider my going into
 : Not the bank with hearts.
 
+
+## Wikilinks load test
+
+[[leathery regius professor]]
+[[colored adipose tissue]]
+[[forked john the evangelist]]
+[[decentralizing chemical engineering]]

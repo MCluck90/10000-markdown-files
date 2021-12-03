@@ -89,3 +89,9 @@ they passed it will make
 William replied so eagerly There are
 : Dinah'll be savage.
 
+
+## Wikilinks load test
+
+[[watertight capsicum frutescens]]
+[[longish know]]
+[[nonimitative threader]]

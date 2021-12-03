@@ -79,3 +79,10 @@ Wouldn't it down stupid for
 YOU do well go no
 : Nearly two miles I've said nothing on planning to lie down both cried so I got any
 
+
+## Wikilinks load test
+
+[[eyed garbage heap]]
+[[meatless susan brownell anthony]]
+[[incitive accessory cephalic vein]]
+[[apsidal edible corn]]

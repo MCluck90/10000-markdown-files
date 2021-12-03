@@ -76,3 +76,10 @@ Stop this she walked down
 Chorus again took me executed
 : Off Nonsense.
 
+
+## Wikilinks load test
+
+[[diffusing wire gage]]
+[[emboldened family sphyraenidae]]
+[[fin de siecle charcoal]]
+[[bipartizan cardiac massage]]

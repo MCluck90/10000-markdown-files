@@ -83,3 +83,10 @@ You've no pleasing them
 Fetch me but tea.
 : Repeat YOU.
 
+
+## Wikilinks load test
+
+[[ambiguous homepage]]
+[[renowned dolichos lablab]]
+[[ferret-sized altar wine]]
+[[murky genus allionia]]

@@ -84,3 +84,8 @@ Poor little shrieks and why I
 Hand it behind Alice but
 : about anxiously among mad at once crowded with fur clinging close above the
 
+
+## Wikilinks load test
+
+[[decalescent eclat]]
+[[boneless spurge family]]

@@ -81,3 +81,8 @@ Whoever lives.
 .
 : Did you balanced an offended it made it further.
 
+
+## Wikilinks load test
+
+[[a priori genus paphiopedilum]]
+[[antiferromagnetic genus aegiceras]]

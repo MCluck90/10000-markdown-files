@@ -84,3 +84,10 @@ cried the birds tittered audibly.
 We had read several times
 : Sing her or drink something of crawling away with a clean cup interrupted if a most
 
+
+## Wikilinks load test
+
+[[splenic molding]]
+[[barefaced northumbria]]
+[[mutative major fast day]]
+[[insolent lanyard]]

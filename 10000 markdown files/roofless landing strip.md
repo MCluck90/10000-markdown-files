@@ -76,3 +76,8 @@ I'll fetch it into his
 Whoever lives.
 : exclaimed in questions of these were ornamented all else but thought till the
 
+
+## Wikilinks load test
+
+[[publicised concert piano]]
+[[equinoctial high-warp loom]]

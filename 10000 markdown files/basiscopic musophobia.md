@@ -75,3 +75,7 @@ Thinking again took them off
 ALL RETURNED FROM HIM
 : it woke up into alarm.
 
+
+## Wikilinks load test
+
+[[visible firedamp]]

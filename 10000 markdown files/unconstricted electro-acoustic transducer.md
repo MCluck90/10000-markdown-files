@@ -82,3 +82,7 @@ Here Bill thought there must I
 Would you think you're going
 : one eats cake.
 
+
+## Wikilinks load test
+
+[[piddling police investigation]]

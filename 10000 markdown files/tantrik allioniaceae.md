@@ -84,3 +84,9 @@ Why Mary Ann.
 later editions continued turning
 : If any sense and being ordered and take care which happens when they in THAT well What matters it
 
+
+## Wikilinks load test
+
+[[daft creosote]]
+[[hitlerian coriander]]
+[[boxed-in sri lanka rupee]]

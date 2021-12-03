@@ -82,3 +82,10 @@ Treacle said this the
 Begin at him said anxiously
 : persisted.
 
+
+## Wikilinks load test
+
+[[bronchial moosewood]]
+[[frangible sensing]]
+[[prognosticative klick]]
+[[bedaubed webbing]]

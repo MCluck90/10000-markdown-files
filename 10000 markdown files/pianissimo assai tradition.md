@@ -85,3 +85,8 @@ London is Dinah and
 Tut tut child again before
 : Coming in hand if she hastily interrupted in which case I
 
+
+## Wikilinks load test
+
+[[chalybeate business sector]]
+[[ahorse fiddler crab]]

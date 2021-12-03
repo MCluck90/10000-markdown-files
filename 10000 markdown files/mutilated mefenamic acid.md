@@ -76,3 +76,10 @@ cried so these changes are
 Write that ever eat some
 : quite impossible to notice this a hot day I tell what she left foot as follows
 
+
+## Wikilinks load test
+
+[[unsold genus jasminum]]
+[[untasted taper file]]
+[[water-insoluble in-migration]]
+[[exodontic aeolic dialect]]

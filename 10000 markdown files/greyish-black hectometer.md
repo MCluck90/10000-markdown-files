@@ -80,3 +80,9 @@ then quietly and then thought at
 To begin.
 : Soon her question it lasted.
 
+
+## Wikilinks load test
+
+[[cloven-hoofed chop shop]]
+[[nationalist domain of a function]]
+[[dissatisfied phoneme]]

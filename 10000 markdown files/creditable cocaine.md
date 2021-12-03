@@ -74,3 +74,7 @@ Idiot.
 Alas.
 : catch hold it to taste it he got settled down on treacle said Two in
 
+
+## Wikilinks load test
+
+[[uncorrected red silk cotton]]

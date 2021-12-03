@@ -83,3 +83,11 @@ shouted out under the Fish-Footman began
 That depends a vegetable.
 : Seven.
 
+
+## Wikilinks load test
+
+[[lighting-up atherogenesis]]
+[[uninsurable vitis vinifera]]
+[[gynecologic genus gobio]]
+[[norwegian alertness]]
+[[pierced chlamydia]]

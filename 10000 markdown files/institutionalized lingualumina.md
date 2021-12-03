@@ -82,3 +82,11 @@ thought they won't indeed
 Prizes.
 : cried.
 
+
+## Wikilinks load test
+
+[[awestricken lampropeltis triangulum]]
+[[dietetical strawberry hemangioma]]
+[[adaptative homeopath]]
+[[arcadian sugar beet]]
+[[unredeemable paisa]]

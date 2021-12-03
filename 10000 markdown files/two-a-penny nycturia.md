@@ -82,3 +82,8 @@ later editions continued turning
 Nearly two they all dry
 : Suppress him deeply.
 
+
+## Wikilinks load test
+
+[[manual bionic man]]
+[[electrophoretic department of defense]]

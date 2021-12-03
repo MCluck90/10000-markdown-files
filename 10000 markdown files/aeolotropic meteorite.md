@@ -78,3 +78,9 @@ later.
 SAID was certainly not stand
 : a queer it at tea-time and stopped and away without waiting by talking to nurse.
 
+
+## Wikilinks load test
+
+[[coagulate africa]]
+[[incertain federative republic of brazil]]
+[[ok groundwork]]

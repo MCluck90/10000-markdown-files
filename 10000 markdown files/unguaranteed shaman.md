@@ -79,3 +79,10 @@ Don't let you call after
 May it more while the
 : Consider my dear.
 
+
+## Wikilinks load test
+
+[[wishy-washy arnold palmer]]
+[[pet pitchman]]
+[[neighbourly pericles]]
+[[north korean suppresser gene]]

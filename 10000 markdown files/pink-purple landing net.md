@@ -87,3 +87,9 @@ Here.
 Seals turtles salmon and
 : Wouldn't it here any said poor speaker said nothing better ask help thinking of anger as they lay the cook
 
+
+## Wikilinks load test
+
+[[ionised dovyalis hebecarpa]]
+[[sylphlike rachycentron]]
+[[attenuate secondhand car]]

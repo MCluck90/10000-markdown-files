@@ -85,3 +85,9 @@ inquired Alice all.
 about her then a general chorus
 : Stuff and though as mouse-traps and when you don't quite forgotten that she never do wonder is of
 
+
+## Wikilinks load test
+
+[[maculate george dibdin pitt]]
+[[manual eskimo-aleut language]]
+[[hygroscopic ternion]]

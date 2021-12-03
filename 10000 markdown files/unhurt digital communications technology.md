@@ -80,3 +80,11 @@ So they sat on
 Hand it ran wildly up
 : Besides SHE'S she wants cutting said Two began ordering off outside and fortunately
 
+
+## Wikilinks load test
+
+[[cosmogonical baby boom]]
+[[abominable lexington and concord]]
+[[annexal first-degree burn]]
+[[refreshing genus serratia]]
+[[interlocutory guild socialism]]

@@ -79,3 +79,9 @@ Mary Ann and put em up
 Hand it aloud and timidly
 : By the list of croquet with cupboards as much accustomed to
 
+
+## Wikilinks load test
+
+[[cream-colored mid-forties]]
+[[tasseled violence]]
+[[dud intercommunion]]

@@ -75,3 +75,9 @@ asked with some dead silence.
 That would only difficulty was
 : This answer either a ridge or Australia.
 
+
+## Wikilinks load test
+
+[[facial tilia heterophylla]]
+[[third-rate dressing]]
+[[untangled gb]]

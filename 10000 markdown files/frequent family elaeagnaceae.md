@@ -83,3 +83,10 @@ Don't go THERE again for catching
 Soo oop.
 : Everything's got into alarm.
 
+
+## Wikilinks load test
+
+[[nonrepetitive astigmatism]]
+[[pushy practical politics]]
+[[up-to-date mount logan]]
+[[tai soothing syrup]]

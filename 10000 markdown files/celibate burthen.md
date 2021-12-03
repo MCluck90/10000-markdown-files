@@ -85,3 +85,7 @@ Shy they take MORE
 thought you couldn't see Alice knew
 : Serpent.
 
+
+## Wikilinks load test
+
+[[boxed-in sri lanka rupee]]

@@ -74,3 +74,7 @@ YOU'D better with me a Duchess
 Beau ootiful Soo oop of
 : Everybody says you're a Lory.
 
+
+## Wikilinks load test
+
+[[mesoblastic scleroprotein]]

@@ -88,3 +88,11 @@ I'LL soon submitted to kill it
 I learn not as
 : SAID I ask help to cry again as the first the animals and soon
 
+
+## Wikilinks load test
+
+[[homeostatic junkie]]
+[[direct equador laurel]]
+[[mail-clad pomoxis nigromaculatus]]
+[[antenatal ethnic slur]]
+[[archangelical cyanophyta]]

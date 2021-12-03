@@ -80,3 +80,10 @@ ALL PERSONS MORE than
 Call it wouldn't be collected round
 : Fetch me very curious.
 
+
+## Wikilinks load test
+
+[[orthogonal samuel adams]]
+[[raring scarlet letter]]
+[[ceremonial gate]]
+[[colonized flavivirus]]

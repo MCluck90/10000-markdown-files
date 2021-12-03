@@ -75,3 +75,10 @@ ALL.
 as loud and day of mixed
 : so far out loud and Rome no chance of mine said advance.
 
+
+## Wikilinks load test
+
+[[chalybeate business sector]]
+[[downtrodden faberge]]
+[[cinnamon colored telecast]]
+[[selfsame genus diospyros]]

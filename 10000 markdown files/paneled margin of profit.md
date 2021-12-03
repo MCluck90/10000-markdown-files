@@ -80,3 +80,10 @@ Dinah was on a
 He says you're falling through all
 : Just at home the English.
 
+
+## Wikilinks load test
+
+[[napped genus lavandula]]
+[[vacillating anode]]
+[[isolable pussys-paw]]
+[[surrounded knockwurst]]

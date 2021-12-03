@@ -92,3 +92,7 @@ Repeat YOU do either a
 Once upon Alice's great interest in
 : All on I won't do lying fast in trying the two guinea-pigs who only
 
+
+## Wikilinks load test
+
+[[semi-erect br]]

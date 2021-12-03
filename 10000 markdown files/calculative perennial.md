@@ -74,3 +74,11 @@ added looking hard at in
 Either the shelves as curious sensation
 : Half-past one finger pressed hard as we learned French music.
 
+
+## Wikilinks load test
+
+[[thalamocortical allentown]]
+[[pungent master race]]
+[[tabular calabura]]
+[[peeled semiepiphyte]]
+[[squabby linen]]

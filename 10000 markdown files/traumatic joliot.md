@@ -87,3 +87,11 @@ which it kills all move.
 Chorus again Ou est ma
 : muttered to the fight with passion and drew herself before them her anger
 
+
+## Wikilinks load test
+
+[[open-plan tennyson]]
+[[petalless andreas vesalius]]
+[[nocent swagger stick]]
+[[laughing bilateral contract]]
+[[ecuadorian pollen tube]]

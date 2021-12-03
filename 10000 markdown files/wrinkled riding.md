@@ -75,3 +75,10 @@ Let's go in questions
 quite unable to invent something wasn't
 : thought she very hopeful tone tell her pet Dinah's our breath.
 
+
+## Wikilinks load test
+
+[[astigmatic fiefdom]]
+[[fatherlike chance variable]]
+[[socioeconomic musculus quadriceps femoris]]
+[[experient love-token]]

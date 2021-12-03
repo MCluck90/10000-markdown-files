@@ -79,3 +79,11 @@ quite away from her question.
 Back to nurse.
 : Mary Ann.
 
+
+## Wikilinks load test
+
+[[ectodermic snakeroot]]
+[[keeled ageratina altissima]]
+[[vulcanized lukasiewicz notation]]
+[[diachronic caenolestes]]
+[[polychromic defeat]]

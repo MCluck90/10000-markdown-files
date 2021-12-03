@@ -85,3 +85,9 @@ Let's go said poor
 here till his eye How
 : Prizes.
 
+
+## Wikilinks load test
+
+[[treble cupressus arizonica]]
+[[insanitary xenotime]]
+[[sweltering velvet bent]]

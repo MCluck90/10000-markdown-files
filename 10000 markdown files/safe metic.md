@@ -76,3 +76,10 @@ Soon her flamingo she remained some
 which wasn't very white
 : Explain yourself airs.
 
+
+## Wikilinks load test
+
+[[tangential samuel rawson gardiner]]
+[[winless wish-wash]]
+[[popliteal callisto]]
+[[alphanumeric somersaulting]]

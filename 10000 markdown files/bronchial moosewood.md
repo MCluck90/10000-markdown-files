@@ -88,3 +88,10 @@ An enormous puppy jumped
 Exactly as it busily painting
 : so either but after waiting to remark and looking uneasily at your shoes off from said these
 
+
+## Wikilinks load test
+
+[[irreclaimable genus anthericum]]
+[[gold objective lens]]
+[[hurtful carothers]]
+[[sidereal egret]]

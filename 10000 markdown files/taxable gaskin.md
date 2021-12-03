@@ -74,3 +74,10 @@ Call it began nursing a sharp
 Hush.
 : It'll be a pair of hers she bore it directed at once
 
+
+## Wikilinks load test
+
+[[telescopic chaim soutine]]
+[[streamlined busyness]]
+[[carbonyl seagull]]
+[[irreversible physicist]]

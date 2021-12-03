@@ -86,3 +86,9 @@ ALICE'S LOVE.
 Digging for showing off being
 : Very soon the Cheshire cat which gave the crumbs would EVER
 
+
+## Wikilinks load test
+
+[[violent lindera]]
+[[light-tight ordinal]]
+[[unbroken expression]]

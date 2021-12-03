@@ -83,3 +83,10 @@ Ten hours I haven't
 _I_ shan't grow smaller I I
 : Change lobsters.
 
+
+## Wikilinks load test
+
+[[bauxitic order coraciiformes]]
+[[wheaten bermuda maidenhair]]
+[[sterling power cable]]
+[[hobnailed sextuplet]]

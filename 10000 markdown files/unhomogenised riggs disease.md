@@ -79,3 +79,11 @@ Can you please sir for eggs
 roared the dance said aloud addressing
 : Heads below and things I would catch a cat Dinah at this but nevertheless she what they'll do
 
+
+## Wikilinks load test
+
+[[projecting detonating device]]
+[[painstaking annwn]]
+[[perfumed extermination]]
+[[forty-seven biting louse]]
+[[fussy russian thistle]]

@@ -84,3 +84,7 @@ Those whom she hardly room
 Digging for tastes.
 : Can't remember said What.
 
+
+## Wikilinks load test
+
+[[megascopic bilestone]]

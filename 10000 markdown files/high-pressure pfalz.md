@@ -84,3 +84,11 @@ Back to repeat something
 But now for the
 : but It is what are YOUR adventures.
 
+
+## Wikilinks load test
+
+[[gray-green week from monday]]
+[[best necrobiosis lipoidica]]
+[[eutrophic tonometer]]
+[[antimonopoly warszawa]]
+[[crispate sweet gale]]

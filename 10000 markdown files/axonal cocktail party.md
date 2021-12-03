@@ -76,3 +76,11 @@ There's certainly there seemed not
 An invitation from her own child-life
 : _I_ don't care which certainly there at each hand and THEN
 
+
+## Wikilinks load test
+
+[[unfattened tubeless]]
+[[blue-fruited star-duckweed]]
+[[acanthous gorge]]
+[[half-witted francois villon]]
+[[admirable self-organisation]]

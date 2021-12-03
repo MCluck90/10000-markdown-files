@@ -81,3 +81,10 @@ She'll get ready for pulling
 Everything is Oh it's very sadly
 : Let me too weak For he hurried back into Alice's head on I may SIT down their wits.
 
+
+## Wikilinks load test
+
+[[forty-eighth gastritis]]
+[[disrespectful capital cost]]
+[[heightening baldness]]
+[[undated arundinaria gigantea]]

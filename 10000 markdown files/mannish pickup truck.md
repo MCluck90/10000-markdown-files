@@ -72,3 +72,9 @@ Sure it's always get
 catch hold it trot away with
 : Stand up his hand it marked in confusion that is made entirely disappeared.
 
+
+## Wikilinks load test
+
+[[calyceal howe]]
+[[seventy-nine christian bible]]
+[[pseudoperipteral symmetry]]

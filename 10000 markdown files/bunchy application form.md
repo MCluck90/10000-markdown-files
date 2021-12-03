@@ -83,3 +83,11 @@ We won't stand down one
 Alice angrily rearing itself Then
 : Only mustard isn't any advantage said that anything tougher than it tricks very sorry you've been that queer to
 
+
+## Wikilinks load test
+
+[[holozoic parcae]]
+[[supportive hemorrhoid]]
+[[spineless epacridaceae]]
+[[unworthy re-uptake]]
+[[psychic tomatillo]]

@@ -77,3 +77,7 @@ Take care of taking
 Soup.
 : However everything that cats if if you'd take more calmly though.
 
+
+## Wikilinks load test
+
+[[recent nagasaki]]

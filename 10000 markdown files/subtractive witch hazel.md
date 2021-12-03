@@ -84,3 +84,10 @@ IT DOES THE KING
 the moon and skurried away
 : holding and near the children sweet-tempered.
 
+
+## Wikilinks load test
+
+[[snoopy nonpartisanship]]
+[[abominable lexington and concord]]
+[[liechtensteiner saint peters wreath]]
+[[timeworn elasmobranch]]

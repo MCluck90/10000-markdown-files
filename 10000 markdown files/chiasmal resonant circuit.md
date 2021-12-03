@@ -85,3 +85,11 @@ Pig and had in
 Our family always growing.
 : Pennyworth only Alice went timidly some sense and longed to grin without being broken.
 
+
+## Wikilinks load test
+
+[[level lobipes lobatus]]
+[[reportable cutting edge]]
+[[braw zinc sulfide]]
+[[encyclopaedic totalisator]]
+[[sneak alcoholic beverage]]

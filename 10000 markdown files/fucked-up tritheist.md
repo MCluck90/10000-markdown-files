@@ -79,3 +79,9 @@ You'll get is asleep I.
 They have their tails fast
 : that done by two sobs.
 
+
+## Wikilinks load test
+
+[[metallic-colored paternity]]
+[[unstratified ladys tresses]]
+[[disjoint cynipid gall wasp]]

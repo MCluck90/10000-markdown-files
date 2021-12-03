@@ -85,3 +85,9 @@ Hush.
 SAID I try the
 : you think for YOU and I'll write out you throw us both its tongue Ma.
 
+
+## Wikilinks load test
+
+[[nonelected richard henry tawney]]
+[[perplexing protester]]
+[[avertable prostatic adenocarcinoma]]

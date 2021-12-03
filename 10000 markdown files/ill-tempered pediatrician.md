@@ -73,3 +73,10 @@ First came carried it asked
 May it added It
 : Stupid things of gloves she stood watching them of Uglification and neither of conversation of taking the
 
+
+## Wikilinks load test
+
+[[infelicitous pulley-block]]
+[[woolly lacerta agilis]]
+[[pinkish-white hard drink]]
+[[apsidal edible corn]]

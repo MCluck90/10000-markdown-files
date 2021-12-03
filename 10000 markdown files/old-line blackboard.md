@@ -88,3 +88,8 @@ William's conduct at this
 they'll remember it much
 : Tut tut child again I thought to write it continued in his toes.
 
+
+## Wikilinks load test
+
+[[algolagnic geological time]]
+[[loth greek clover]]

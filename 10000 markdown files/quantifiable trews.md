@@ -73,3 +73,7 @@ Thinking again so close by
 I've forgotten to break.
 : Back to it once again Ou est ma chatte.
 
+
+## Wikilinks load test
+
+[[annunciatory contraindication]]

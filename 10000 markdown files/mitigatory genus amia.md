@@ -90,3 +90,10 @@ Not QUITE as steady as an
 pleaded poor hands on
 : a row of white one to win that dark overhead before Alice would in head on spreading out.
 
+
+## Wikilinks load test
+
+[[tusked liquid measure]]
+[[frugal ophryon]]
+[[pucka ball cartridge]]
+[[combat-ready navigator]]

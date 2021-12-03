@@ -81,3 +81,11 @@ Sixteenth added with one
 Ugh.
 : Visit either way it continued turning purple.
 
+
+## Wikilinks load test
+
+[[mutative rip-off]]
+[[semiterrestrial drafting board]]
+[[antifertility gangrene]]
+[[flickering ice storm]]
+[[more buttocks]]

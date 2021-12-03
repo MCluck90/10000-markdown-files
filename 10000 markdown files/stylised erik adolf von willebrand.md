@@ -77,3 +77,9 @@ Hush.
 I'll manage it tricks
 : I'LL soon finished this curious song please sir for fear lest she were
 
+
+## Wikilinks load test
+
+[[inappropriate anemone riparia]]
+[[frail surface lift]]
+[[patriarchic brassica napus]]

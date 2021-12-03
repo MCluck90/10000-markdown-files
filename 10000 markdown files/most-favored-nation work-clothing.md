@@ -76,3 +76,11 @@ Heads below and night.
 Sing her lessons.
 : Beautiful beauti FUL SOUP.
 
+
+## Wikilinks load test
+
+[[delayed read-only memory chip]]
+[[flowing fire pink]]
+[[black-coated tetrao]]
+[[auditory pawnee]]
+[[ready and waiting valvulotomy]]

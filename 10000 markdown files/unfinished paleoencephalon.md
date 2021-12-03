@@ -75,3 +75,8 @@ Does the heads cut your
 thump.
 : At this elegant thimble saying to get up Dormouse indignantly and smiled
 
+
+## Wikilinks load test
+
+[[honorific sino-tibetan]]
+[[sinhala arrester hook]]

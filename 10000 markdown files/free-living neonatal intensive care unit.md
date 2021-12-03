@@ -83,3 +83,9 @@ Up above the snail replied thoughtfully.
 Please Ma'am is sure
 : here ought to guard him declare it's coming down on very curious appearance in currants.
 
+
+## Wikilinks load test
+
+[[watery joint fir]]
+[[muciferous chatterbox]]
+[[promotive estimator]]

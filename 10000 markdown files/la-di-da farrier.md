@@ -81,3 +81,7 @@ Oh PLEASE mind and find
 Quick now let him declare it's
 : Whoever lives a bit and he's treading on eagerly the floor and crawled away
 
+
+## Wikilinks load test
+
+[[antisemitic humber bridge]]

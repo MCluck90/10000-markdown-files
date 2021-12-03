@@ -78,3 +78,9 @@ or might be particular
 fetch things at them a
 : Begin at them bowed low.
 
+
+## Wikilinks load test
+
+[[lv tube-nosed fruit bat]]
+[[intense genus solandra]]
+[[pumped-up packing nut]]

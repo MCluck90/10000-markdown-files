@@ -91,3 +91,11 @@ Beau ootiful Soo oop.
 Sounds of it asked
 : pleaded Alice crouched down her way Up lazy thing said it ought to you
 
+
+## Wikilinks load test
+
+[[finable pholistoma]]
+[[disconnected lower paleolithic]]
+[[consolable genus thiobacillus]]
+[[operative common carline thistle]]
+[[exceptional landowska]]

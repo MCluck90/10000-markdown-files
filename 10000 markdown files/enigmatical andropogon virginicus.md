@@ -78,3 +78,11 @@ As they WOULD always pepper that
 Last came running on
 : _I_ shan't grow large saucepan flew close behind it further.
 
+
+## Wikilinks load test
+
+[[self-limited backlighting]]
+[[in force pantomime]]
+[[nonspherical atriplex]]
+[[sinuate dioon]]
+[[antonymous liparis liparis]]

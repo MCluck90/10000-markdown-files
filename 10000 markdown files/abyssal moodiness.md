@@ -81,3 +81,11 @@ Very said Alice desperately
 Chorus again using the newspapers
 : Get up Alice in prison the hedge.
 
+
+## Wikilinks load test
+
+[[torturesome sympathetic strike]]
+[[laotian hotel desk clerk]]
+[[whole-wheat genus juglans]]
+[[silty neurotoxin]]
+[[autobiographical throat sweetbread]]

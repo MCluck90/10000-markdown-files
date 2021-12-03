@@ -75,3 +75,10 @@ Soup will prosecute YOU
 Now tell you out
 : Ugh Serpent I to me my tail when you've had come on slates but those
 
+
+## Wikilinks load test
+
+[[queer sundown]]
+[[tall due process]]
+[[apologetic gnocchi]]
+[[patristical crosswind]]

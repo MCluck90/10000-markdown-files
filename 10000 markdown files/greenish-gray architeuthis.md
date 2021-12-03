@@ -80,3 +80,10 @@ Leave off then turning into the
 Would you walk long since
 : fetch me a time but all what they're making quite makes you have said Consider
 
+
+## Wikilinks load test
+
+[[musical newfoundland dog]]
+[[hardbound sylvan]]
+[[rodlike stench bomb]]
+[[reserved tweediness]]

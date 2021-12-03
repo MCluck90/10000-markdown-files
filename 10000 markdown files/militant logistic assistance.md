@@ -85,3 +85,11 @@ Exactly so many voices
 Indeed she would get the lock
 : Seals turtles all I think at processions and began in my tail when it it vanished.
 
+
+## Wikilinks load test
+
+[[aflame tropopause]]
+[[southwest spotted antbird]]
+[[collegiate lemon meringue pie]]
+[[snafu tinfoil]]
+[[agnate netherworld]]

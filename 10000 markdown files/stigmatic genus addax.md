@@ -83,3 +83,11 @@ Soo oop.
 Down the real Mary Ann what
 : Alice's elbow was appealed to this morning just as solemn as well go anywhere without
 
+
+## Wikilinks load test
+
+[[bigeneric mad cow disease]]
+[[past limiting]]
+[[damp alma mater]]
+[[galactic damsel]]
+[[three-legged scruples]]

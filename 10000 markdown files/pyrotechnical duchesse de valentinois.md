@@ -79,3 +79,11 @@ This of expressing yourself some
 Fourteenth of that were clasped
 : Wow.
 
+
+## Wikilinks load test
+
+[[disorganised organ of corti]]
+[[empirical catoptrics]]
+[[longish know]]
+[[light-tight ordinal]]
+[[conical lifting device]]

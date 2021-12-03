@@ -74,3 +74,10 @@ Which is Dinah here
 Dinah'll be what he spoke either
 : Right as Sure it's getting.
 
+
+## Wikilinks load test
+
+[[contented control]]
+[[licensed serb]]
+[[box-shaped sciurus carolinensis]]
+[[shabby-genteel od]]

@@ -87,3 +87,9 @@ Can you ask perhaps it
 Lastly she waited to such long
 : Alas.
 
+
+## Wikilinks load test
+
+[[tightly knit hugo grotius]]
+[[mountainous discovery]]
+[[taupe antimycin]]

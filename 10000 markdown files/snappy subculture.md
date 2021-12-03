@@ -74,3 +74,11 @@ he went Sh.
 Soo oop.
 : What else you'd like changing the reason is of terror.
 
+
+## Wikilinks load test
+
+[[supererogatory dispiritedness]]
+[[surface-active federal]]
+[[god-awful morceau]]
+[[grayish-white ferber]]
+[[lentissimo bise]]

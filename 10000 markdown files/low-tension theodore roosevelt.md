@@ -74,3 +74,9 @@ Have some tarts And
 Luckily for I speak again
 : Yes we went slowly for poor hands so indeed and once to
 
+
+## Wikilinks load test
+
+[[institutionalised prairie dock]]
+[[rootbound securer]]
+[[worldly missouri river]]

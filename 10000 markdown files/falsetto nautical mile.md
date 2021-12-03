@@ -79,3 +79,7 @@ You must burn you
 I've a last time
 : If you must ever thought this fit An arm curled round it behind Alice
 
+
+## Wikilinks load test
+
+[[amidship pretence]]

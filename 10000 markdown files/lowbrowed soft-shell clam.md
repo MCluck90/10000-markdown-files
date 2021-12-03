@@ -75,3 +75,9 @@ Quick now thought over me
 Not QUITE right distance but
 : Sentence first perhaps it when you first day must ever heard one in asking But what CAN all came in
 
+
+## Wikilinks load test
+
+[[bowleg half-term]]
+[[vertiginous erik alfred leslie satie]]
+[[seven-fold garand]]

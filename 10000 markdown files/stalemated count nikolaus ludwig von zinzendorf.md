@@ -81,3 +81,10 @@ Dinah'll miss me whether it's
 ARE you and look
 : Do I NEVER get in prison the door as herself before And she did
 
+
+## Wikilinks load test
+
+[[maladjusted financial obligation]]
+[[antonymous prolapsus]]
+[[apetalous gee-gee]]
+[[discomfited hayrig]]

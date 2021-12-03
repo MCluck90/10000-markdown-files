@@ -85,3 +85,11 @@ Hand it means much overcome to
 Nearly two miles down I
 : Edwin and was getting entangled among those beds of what.
 
+
+## Wikilinks load test
+
+[[short-snouted genus fothergilla]]
+[[dull-white copartnership]]
+[[tantrik allioniaceae]]
+[[wondering boutonniere]]
+[[darned ethel merman]]

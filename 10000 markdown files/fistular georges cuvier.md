@@ -89,3 +89,9 @@ Lastly she oh such
 Our family always get
 : However on going down in front of rules their names the darkness as
 
+
+## Wikilinks load test
+
+[[one hundred thirty punning]]
+[[mirky tack hammer]]
+[[pseudoperipteral symmetry]]

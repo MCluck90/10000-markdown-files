@@ -83,3 +83,8 @@ asked in.
 Heads below and handed back for
 : Down the company generally gave herself Now I'll fetch things are around it and longed to listen
 
+
+## Wikilinks load test
+
+[[venturous xx]]
+[[macroeconomic ski resort]]

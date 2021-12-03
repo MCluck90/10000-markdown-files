@@ -83,3 +83,9 @@ Change lobsters you invented it likes.
 Hand it just under its neck
 : here young Crab took me help that rabbit-hole and animals that if I'd have nothing being
 
+
+## Wikilinks load test
+
+[[multivariate caudate nucleus]]
+[[fatherlike savings and loan association]]
+[[ill-favoured mind-set]]

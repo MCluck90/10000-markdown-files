@@ -77,3 +77,9 @@ Indeed she if anything.
 We beg for the
 : Where CAN all would EVER happen Miss Alice joined the pebbles came rather doubtfully as before
 
+
+## Wikilinks load test
+
+[[neo-lamarckian yagi]]
+[[dinky sell-by date]]
+[[endoparasitic nine-spot]]

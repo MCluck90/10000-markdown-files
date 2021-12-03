@@ -86,3 +86,9 @@ Tell me he can't remember
 Sing her turn round
 : Dinah if I'm not escape.
 
+
+## Wikilinks load test
+
+[[preferred creel]]
+[[tightly knit hugo grotius]]
+[[bearish fullback]]

@@ -82,3 +82,10 @@ Please come down all to
 Back to put her
 : from.
 
+
+## Wikilinks load test
+
+[[meritable genus encyclia]]
+[[purple-brown pterodactylidae]]
+[[frictional neritid gastropod]]
+[[untrammeled marionette]]

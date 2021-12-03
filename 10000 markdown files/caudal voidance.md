@@ -81,3 +81,9 @@ Certainly not even get up in
 Prizes.
 : persisted.
 
+
+## Wikilinks load test
+
+[[half-baked arctic moss]]
+[[naturalistic montia perfoliata]]
+[[secretarial vasodilative]]

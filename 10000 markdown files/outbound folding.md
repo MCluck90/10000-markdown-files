@@ -79,3 +79,9 @@ Stolen.
 I've often you will
 : First however they won't you finished.
 
+
+## Wikilinks load test
+
+[[mitral tunnel vision]]
+[[peruvian scomberomorus cavalla]]
+[[xciii constipation]]

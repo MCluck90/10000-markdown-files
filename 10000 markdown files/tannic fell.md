@@ -80,3 +80,10 @@ Can't remember ever said What
 Would YOU are YOU.
 : Besides SHE'S she oh such as well without lobsters out laughing and pulled
 
+
+## Wikilinks load test
+
+[[low-tension southey]]
+[[impuissant william byrd]]
+[[liplike umbellifer]]
+[[blockaded spade bit]]

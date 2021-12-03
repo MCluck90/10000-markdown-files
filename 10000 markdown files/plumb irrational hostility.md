@@ -89,3 +89,11 @@ Let's go in March Hare
 Ahem.
 : Please come out laughing and anxious.
 
+
+## Wikilinks load test
+
+[[measly binomial distribution]]
+[[hypothermic territorial army]]
+[[agnostic nightgown]]
+[[mortuary dwarf cornel]]
+[[apologetic scene painter]]

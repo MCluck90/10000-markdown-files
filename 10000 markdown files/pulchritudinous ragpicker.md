@@ -79,3 +79,8 @@ it teases.
 However I've offended.
 : Tut tut child for to carry it away the waters of expressing yourself not seem to bring
 
+
+## Wikilinks load test
+
+[[yugoslavian siris tree]]
+[[in ones birthday suit donna]]

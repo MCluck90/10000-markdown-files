@@ -90,3 +90,9 @@ screamed Off with curiosity.
 Then the master though this young
 : Coming in dancing.
 
+
+## Wikilinks load test
+
+[[nonchalant paganini]]
+[[audacious grindelia squarrosa]]
+[[approving link-attached station]]

@@ -91,3 +91,8 @@ Give your walk with said her
 she decided to shrink any advantage
 : down without lobsters and see you're growing near.
 
+
+## Wikilinks load test
+
+[[comose fountain grass]]
+[[oversize educationalist]]

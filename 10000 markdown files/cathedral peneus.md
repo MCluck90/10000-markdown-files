@@ -77,3 +77,7 @@ was high said right
 As soon found the
 : Never mind about like.
 
+
+## Wikilinks load test
+
+[[ruinous microradian]]

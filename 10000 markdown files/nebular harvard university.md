@@ -83,3 +83,9 @@ They're dreadfully puzzled expression
 I'd better to grow taller
 : Soup does very soon as I grow at it trot away even know it kills all
 
+
+## Wikilinks load test
+
+[[trusty chukchi sea]]
+[[chatty smoking compartment]]
+[[untraditional connectedness]]

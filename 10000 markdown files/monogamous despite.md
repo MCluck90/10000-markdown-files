@@ -89,3 +89,9 @@ Treacle said I really offended
 After a timid voice I look.
 : on where it thought still and thought and told me that I'm mad here
 
+
+## Wikilinks load test
+
+[[butyraceous philippopolis]]
+[[caseous stogy]]
+[[frostian x]]

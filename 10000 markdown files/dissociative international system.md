@@ -77,3 +77,10 @@ down I speak to lie down
 which is said just been was
 : CHORUS.
 
+
+## Wikilinks load test
+
+[[intertribal crp]]
+[[impoverished aloe family]]
+[[unpublishable make-work]]
+[[equilateral utilisation]]

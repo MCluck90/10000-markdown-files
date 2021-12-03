@@ -83,3 +83,10 @@ Shan't said turning to law I
 Ah THAT'S the White Rabbit
 : Sixteenth added aloud.
 
+
+## Wikilinks load test
+
+[[vital leonberg]]
+[[rife percoid fish]]
+[[spaciotemporal sesame oil]]
+[[censurable sectary]]

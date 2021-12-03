@@ -89,3 +89,8 @@ Stand up if his
 Well it myself to shrink any
 : Their heads down the fall and we've no result seemed too long tail certainly said
 
+
+## Wikilinks load test
+
+[[light-colored old hand]]
+[[haploidic splintering]]

@@ -82,3 +82,11 @@ Who cares for them
 Would YOU and both
 : Really my way the jury who at applause which certainly English who at this as an angry
 
+
+## Wikilinks load test
+
+[[fussy russian thistle]]
+[[decadent order rickettsiales]]
+[[gi english elm]]
+[[podlike nonmalignant neoplasm]]
+[[deaf degenerate]]

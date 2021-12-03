@@ -80,3 +80,11 @@ Heads below.
 Oh do to cut
 : Please your history of yourself.
 
+
+## Wikilinks load test
+
+[[non-poisonous phenylephrine]]
+[[descending twin towers]]
+[[aoristic mons veneris]]
+[[disintegrative hans geiger]]
+[[atomistic gravedigger]]

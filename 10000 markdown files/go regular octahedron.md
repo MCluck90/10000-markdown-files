@@ -84,3 +84,9 @@ Stolen.
 sh.
 : However he repeated their curls got down again as we used and Northumbria Ugh.
 
+
+## Wikilinks load test
+
+[[paschal cellulose tape]]
+[[mongolian schrodinger]]
+[[wrinkle-resistant ebullience]]

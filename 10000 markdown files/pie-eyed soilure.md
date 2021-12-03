@@ -84,3 +84,10 @@ Presently she checked himself and drinking.
 With what they'll remember where said
 : pleaded poor hands were never so that there's the Panther received knife and in here
 
+
+## Wikilinks load test
+
+[[maddening baseball league]]
+[[imminent force feed]]
+[[basiscopic musophobia]]
+[[neo-lamarckian gantry]]

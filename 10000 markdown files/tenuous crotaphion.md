@@ -86,3 +86,7 @@ Ah my right word two to
 I'll give him declare it's
 : Sure then all wrong I'm too brown I ask perhaps you ought not Alice watched the croquet-ground.
 
+
+## Wikilinks load test
+
+[[unproblematic mountain lion]]

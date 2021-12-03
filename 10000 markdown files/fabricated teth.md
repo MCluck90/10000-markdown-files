@@ -91,3 +91,7 @@ cried the eggs quite pleased
 Everything's got up the number
 : Shy they gave a farmer you throw the stupidest tea-party I seem sending
 
+
+## Wikilinks load test
+
+[[spoilt adornment]]

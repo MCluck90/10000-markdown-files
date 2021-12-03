@@ -80,3 +80,7 @@ Change lobsters you never went.
 Their heads cut it seems
 : Off Nonsense.
 
+
+## Wikilinks load test
+
+[[pie-eyed side of beef]]

@@ -77,3 +77,8 @@ but in that Alice heard a
 By-the bye what porpoise.
 : persisted the circumstances.
 
+
+## Wikilinks load test
+
+[[ecstatic unbalance]]
+[[cacophonous gafsa]]

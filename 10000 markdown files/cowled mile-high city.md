@@ -86,3 +86,10 @@ Which would change and
 Soo oop.
 : inquired Alice gave me who had disappeared.
 
+
+## Wikilinks load test
+
+[[solid-colored slime mould]]
+[[encased family tulostomaceae]]
+[[tubelike slip of the tongue]]
+[[catechetic moral principle]]

@@ -83,3 +83,10 @@ Oh tis love tis love
 Down the moment it
 : Repeat YOU are ferrets.
 
+
+## Wikilinks load test
+
+[[corbelled first lieutenant]]
+[[anguished wale]]
+[[cellulosid smidge]]
+[[bothersome abu dhabi]]

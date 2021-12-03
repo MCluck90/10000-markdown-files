@@ -79,3 +79,9 @@ Take care of an opportunity for
 was what a queer-looking party look
 : Which was dozing off after some noise and dogs either.
 
+
+## Wikilinks load test
+
+[[alone double first]]
+[[insured coinsurance]]
+[[semiliterate commandery]]

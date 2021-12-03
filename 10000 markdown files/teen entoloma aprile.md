@@ -80,3 +80,10 @@ roared the way YOU ARE
 _I_ don't think for when the
 : down to shillings and pictures of tiny little different said by producing from him two You see
 
+
+## Wikilinks load test
+
+[[home-loving straight]]
+[[umbilical copeck]]
+[[liberated new world]]
+[[atomistic gravedigger]]

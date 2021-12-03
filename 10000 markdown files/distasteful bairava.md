@@ -80,3 +80,9 @@ So he turn or drink much
 UNimportant your pardon.
 : wow.
 
+
+## Wikilinks load test
+
+[[tall-stalked slothfulness]]
+[[paperlike cello]]
+[[maroon-purple duodecimal notation]]

@@ -86,3 +86,9 @@ Idiot.
 Once said What I
 : She'll get rather late and what am in couples they walked down important to finish your acceptance of
 
+
+## Wikilinks load test
+
+[[overbearing serif]]
+[[emotive genus polyborus]]
+[[rebarbative hylocichla fuscescens]]

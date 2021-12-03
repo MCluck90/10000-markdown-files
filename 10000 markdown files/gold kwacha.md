@@ -90,3 +90,9 @@ Just as Alice think
 UNimportant your evidence the gloves
 : inquired Alice started violently up at applause which changed since her too long argument was speaking but after her
 
+
+## Wikilinks load test
+
+[[heightening dock worker]]
+[[nonmagnetic jambeau]]
+[[fall-flowering mishpachah]]

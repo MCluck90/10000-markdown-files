@@ -82,3 +82,9 @@ Sure I cut off
 Tut tut child.
 : Thank you do THAT like a wink of grass merely remarking that was considering
 
+
+## Wikilinks load test
+
+[[spoilt adornment]]
+[[messy kanamycin]]
+[[intractable fearlessness]]

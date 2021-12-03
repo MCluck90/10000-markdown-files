@@ -82,3 +82,7 @@ A WATCH OUT OF THE
 It WAS when the muscular
 : A MILE HIGH TO YOU.
 
+
+## Wikilinks load test
+
+[[less-traveled igd]]

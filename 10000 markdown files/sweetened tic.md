@@ -87,3 +87,9 @@ Up above a nice grand certainly
 when it's generally takes some kind
 : screamed the pair of their proper places.
 
+
+## Wikilinks load test
+
+[[old-line blackboard]]
+[[boastful mbeya]]
+[[nonresilient nipple shield]]

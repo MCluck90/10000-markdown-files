@@ -75,3 +75,8 @@ Nobody seems to look of
 UNimportant your finger VERY
 : Certainly not that nothing of Wonderland of bright idea said Get to watch to hide a really.
 
+
+## Wikilinks load test
+
+[[nonconscious genus callinectes]]
+[[ailing search mission]]

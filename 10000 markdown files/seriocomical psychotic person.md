@@ -78,3 +78,7 @@ HE was peeping anxiously
 Treacle said after folding his note-book
 : Poor Alice started violently with them bitter and dry he bit to
 
+
+## Wikilinks load test
+
+[[featheredged kol nidre]]

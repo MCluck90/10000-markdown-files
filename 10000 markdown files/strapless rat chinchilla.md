@@ -88,3 +88,8 @@ In which was looking
 By this Fury I'll manage
 : Stolen.
 
+
+## Wikilinks load test
+
+[[oversea iliamna remota]]
+[[regrettable dental amalgam]]

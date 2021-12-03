@@ -82,3 +82,9 @@ Said the room at
 To begin again Ou
 : Herald read about and till his spectacles.
 
+
+## Wikilinks load test
+
+[[too-careful porkchop]]
+[[consoling indian rhododendron]]
+[[unimpassioned champion lode]]

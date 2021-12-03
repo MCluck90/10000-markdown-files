@@ -85,3 +85,8 @@ Beau ootiful Soo oop of mind
 _I_ don't look.
 : Seven flung down from ear to sell you ought.
 
+
+## Wikilinks load test
+
+[[inlaid motor ataxia]]
+[[nasty citroncirus webberi]]

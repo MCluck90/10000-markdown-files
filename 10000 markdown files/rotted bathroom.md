@@ -76,3 +76,8 @@ Oh there's a Caucus-race.
 Wake up now and
 : Come away went as ferrets are.
 
+
+## Wikilinks load test
+
+[[affirmatory unrespectability]]
+[[depressing consulting company]]

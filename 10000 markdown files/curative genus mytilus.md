@@ -84,3 +84,8 @@ HEARTHRUG NEAR THE SLUGGARD said Get
 thought Alice felt certain.
 : Which brought them free of every Christmas.
 
+
+## Wikilinks load test
+
+[[flagitious saroyan]]
+[[comatose haemoglobin]]

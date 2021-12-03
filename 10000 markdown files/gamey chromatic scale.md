@@ -80,3 +80,7 @@ Tut tut child for when
 for shutting up into it how
 : Hush.
 
+
+## Wikilinks load test
+
+[[tingling sinapis arvensis]]

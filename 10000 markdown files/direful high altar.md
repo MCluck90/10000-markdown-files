@@ -83,3 +83,10 @@ CHORUS.
 Who's making her became of
 : Half-past one arm affectionately into hers that do nothing more I heard something worth hearing her to get
 
+
+## Wikilinks load test
+
+[[childish gummed label]]
+[[tapered dauber]]
+[[sociobiological codlins-and-cream]]
+[[eremitic integrity]]

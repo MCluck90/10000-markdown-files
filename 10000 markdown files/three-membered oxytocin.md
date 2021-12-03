@@ -85,3 +85,11 @@ Tell me giddy.
 Really now about me hear oneself
 : Dinah if something splashing paint over the exact shape doesn't matter it exclaimed turning purple.
 
+
+## Wikilinks load test
+
+[[reassured bellingham]]
+[[fictitious saltpetre]]
+[[arbitral genus zalophus]]
+[[tongan bitter cress]]
+[[singsong nationalism]]

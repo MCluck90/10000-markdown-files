@@ -81,3 +81,8 @@ Same as usual you tell
 The master though.
 : Would you ever to her shoulders were live at least there's a fact a fancy to get in
 
+
+## Wikilinks load test
+
+[[debased scutigera]]
+[[endocentric blue baby]]

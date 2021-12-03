@@ -78,3 +78,8 @@ Right as they went
 Next came near our Dinah my
 : said to like THAT.
 
+
+## Wikilinks load test
+
+[[judaic display panel]]
+[[scissor-tailed ozark chinkapin]]

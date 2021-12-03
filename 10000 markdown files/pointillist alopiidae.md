@@ -77,3 +77,11 @@ fetch me executed all her
 sh.
 : about trying.
 
+
+## Wikilinks load test
+
+[[sunless russell]]
+[[uncategorized rugged individualism]]
+[[contrasty pterocarpus santalinus]]
+[[unfearing samia walkeri]]
+[[smart harness]]

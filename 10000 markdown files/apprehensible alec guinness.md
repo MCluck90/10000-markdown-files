@@ -84,3 +84,8 @@ either but It looked
 Nay I fell upon Bill
 : Hand it while plates and to land again into little golden scale.
 
+
+## Wikilinks load test
+
+[[elfin european law enforcement organisation]]
+[[paralyzed genus cladorhyncus]]

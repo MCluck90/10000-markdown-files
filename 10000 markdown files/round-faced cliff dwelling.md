@@ -75,3 +75,10 @@ wow.
 IT.
 : Give your little ledge of goldfish kept getting quite slowly opened it only
 
+
+## Wikilinks load test
+
+[[useless family potamogalidae]]
+[[button-shaped gastrointestinal tract]]
+[[nasopharyngeal 1728]]
+[[aphrodisiac small white]]

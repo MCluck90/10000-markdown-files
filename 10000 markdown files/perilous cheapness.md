@@ -75,3 +75,8 @@ Their heads of Hearts
 No more till she picked
 : Hush.
 
+
+## Wikilinks load test
+
+[[valent saturday night special]]
+[[comradely inflation therapy]]

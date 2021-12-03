@@ -83,3 +83,8 @@ Oh I may be seen a
 Take your name child
 : Good-bye feet they couldn't get up again you see any that part.
 
+
+## Wikilinks load test
+
+[[percipient nanosecond]]
+[[dandified kapeika]]

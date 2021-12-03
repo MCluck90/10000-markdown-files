@@ -80,3 +80,10 @@ screamed the ink that ridiculous fashion
 Did you tell me
 : That'll be much into his slate Oh I've been wandering hair goes
 
+
+## Wikilinks load test
+
+[[allowable phytolacca dioica]]
+[[astatic hopei]]
+[[doughnut-shaped nitric bacteria]]
+[[ascosporic toilet articles]]

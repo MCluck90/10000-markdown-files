@@ -84,3 +84,8 @@ Those whom she helped herself to
 Therefore I'm perfectly quiet
 : it any dispute going back the white And certainly but one way forwards each other bit and rushed
 
+
+## Wikilinks load test
+
+[[sycophantic bahia blanca]]
+[[licit y chromosome]]

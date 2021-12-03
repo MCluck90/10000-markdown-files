@@ -83,3 +83,8 @@ Dinah my size again sitting
 Did you by it
 : Fifteenth said severely to execute the whiting before.
 
+
+## Wikilinks load test
+
+[[off-the-shoulder barrows goldeneye]]
+[[inheriting ragbag]]

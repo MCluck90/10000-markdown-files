@@ -90,3 +90,9 @@ Back to.
 Pat.
 : a snout than you.
 
+
+## Wikilinks load test
+
+[[embossed teetotum]]
+[[nonplused 4to]]
+[[covetous blue sky]]

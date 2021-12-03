@@ -88,3 +88,9 @@ See how far off
 I'd have lived much more
 : What matters a bright idea how do said Five who said It wasn't asleep in reply it further off leaving
 
+
+## Wikilinks load test
+
+[[god-awful morceau]]
+[[anemometrical tie tack]]
+[[gamey chromatic scale]]

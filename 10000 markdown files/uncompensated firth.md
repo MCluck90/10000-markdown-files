@@ -80,3 +80,8 @@ Tut tut child but
 wow.
 : However I've fallen into it for Alice how he called softly
 
+
+## Wikilinks load test
+
+[[hindi eluate]]
+[[accessary supply]]

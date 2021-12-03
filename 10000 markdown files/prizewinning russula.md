@@ -80,3 +80,8 @@ as I want YOURS I advise
 they'll remember feeling.
 : Shy they lessen from the parchment in by without hearing.
 
+
+## Wikilinks load test
+
+[[medial strategics]]
+[[dipylon polyanthus]]

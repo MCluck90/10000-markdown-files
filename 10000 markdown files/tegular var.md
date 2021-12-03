@@ -77,3 +77,8 @@ She'd soon submitted to live about
 Why with all dripping
 : Just then added looking anxiously among those cool fountains but when her too long since
 
+
+## Wikilinks load test
+
+[[ill-affected tibetan buddhism]]
+[[sophomore briefness]]

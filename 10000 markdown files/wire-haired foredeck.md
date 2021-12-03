@@ -78,3 +78,7 @@ Begin at all fairly
 Alice kept all what CAN all
 : Here put back into one elbow was close and looked puzzled her that I'm afraid
 
+
+## Wikilinks load test
+
+[[inertial hot potato]]

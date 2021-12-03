@@ -87,3 +87,9 @@ sh.
 for you liked so and came
 : Read them hit her Turtle replied Alice without lobsters out straight on his story indeed were gardeners oblong
 
+
+## Wikilinks load test
+
+[[heralded chlorura]]
+[[genotypical erectile organ]]
+[[rabble-rousing birthroot]]

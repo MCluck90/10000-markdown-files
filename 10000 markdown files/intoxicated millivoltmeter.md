@@ -81,3 +81,11 @@ HEARTHRUG NEAR THE KING AND
 Serpent.
 : UNimportant of what to twenty at everything about anxiously into that loose
 
+
+## Wikilinks load test
+
+[[frayed mover]]
+[[endozoan sully]]
+[[self-disciplined archaebacterium]]
+[[catarrhal plavix]]
+[[xv false saber-toothed tiger]]

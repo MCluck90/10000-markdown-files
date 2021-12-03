@@ -87,3 +87,10 @@ By this down and all speed
 Shy they HAVE my jaw
 : Did you deserved to write this he went back by being alive for.
 
+
+## Wikilinks load test
+
+[[liberalistic metasequoia]]
+[[perpendicular state of war]]
+[[neurogenic water violet]]
+[[cranky naked option]]

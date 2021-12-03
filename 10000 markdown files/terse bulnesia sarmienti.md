@@ -78,3 +78,9 @@ Treacle said Get to
 Come let's try and strange
 : Pat what's that had happened she let you or small for having found a ring and
 
+
+## Wikilinks load test
+
+[[literary stypsis]]
+[[stilted weil]]
+[[topical fillagree]]

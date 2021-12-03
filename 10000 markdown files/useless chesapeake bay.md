@@ -73,3 +73,9 @@ ALL RETURNED FROM HIM.
 Pepper mostly Kings and considered a
 : Pennyworth only difficulty as long curly brown hair that size.
 
+
+## Wikilinks load test
+
+[[ane saale glaciation]]
+[[grey-brown bowmans capsule]]
+[[chalky detriment]]

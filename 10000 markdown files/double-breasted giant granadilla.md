@@ -75,3 +75,9 @@ Sentence first was gone far the
 Stand up this way
 : Take care where.
 
+
+## Wikilinks load test
+
+[[blebby thamnophilus]]
+[[whipping humanities]]
+[[odoriferous riverbed]]

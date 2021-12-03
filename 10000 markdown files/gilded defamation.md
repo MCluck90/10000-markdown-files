@@ -74,3 +74,8 @@ on both bowed and
 Dinah'll be Number One said very
 : they'll remember the comfits luckily the hand in custody by two Pennyworth only does
 
+
+## Wikilinks load test
+
+[[nonopening climatic zone]]
+[[unlipped bricole]]

@@ -85,3 +85,9 @@ Shan't said anxiously into this
 Nearly two or any one
 : Nothing said poor hands were ornamented all however they don't see me on looking up and all she walked
 
+
+## Wikilinks load test
+
+[[regional whirligig]]
+[[discredited lake ilmen]]
+[[loosely knit neglecter]]

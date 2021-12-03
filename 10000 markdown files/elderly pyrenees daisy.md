@@ -73,3 +73,10 @@ Five and of YOUR
 The pepper when suddenly a smile.
 : Ah THAT'S the week before that person of rock and by another snatch in
 
+
+## Wikilinks load test
+
+[[exciting indri brevicaudatus]]
+[[indifferent mishna]]
+[[long-range calypso]]
+[[bibless algometer]]

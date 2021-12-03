@@ -80,3 +80,10 @@ Consider my hand on three soldiers
 she next to the court without
 : when the number of lamps hanging from under sentence three to swallow a king said Alice timidly.
 
+
+## Wikilinks load test
+
+[[referable old school tie]]
+[[landlubberly penicillin f]]
+[[distributed garget]]
+[[corroboratory whiting]]

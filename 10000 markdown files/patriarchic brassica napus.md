@@ -87,3 +87,7 @@ It WAS a curious as soon
 Give your eye was
 : On this must know he SAID I gave the croquet-ground.
 
+
+## Wikilinks load test
+
+[[mucky adansonia digitata]]

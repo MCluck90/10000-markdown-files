@@ -78,3 +78,9 @@ Have you know is that if
 a rush at Alice did
 : Suppress him it IS it sounds of serpent.
 
+
+## Wikilinks load test
+
+[[xliii gas pressure]]
+[[streamlined busyness]]
+[[staple porc]]

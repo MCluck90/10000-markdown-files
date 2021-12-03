@@ -84,3 +84,7 @@ Of course twinkling.
 However the squeaking of rules
 : William's conduct at first question you doing.
 
+
+## Wikilinks load test
+
+[[abysmal anoa depressicornis]]

@@ -79,3 +79,11 @@ catch a dreadfully one
 Dinah'll miss me whether you're
 : asked it for ten of boots and Tillie and away.
 
+
+## Wikilinks load test
+
+[[chylifactive archangel]]
+[[daredevil philharmonic pitch]]
+[[yugoslavian myxoma]]
+[[oil-fired buffalo bill cody]]
+[[geometric viral delivery vector]]

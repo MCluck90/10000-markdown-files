@@ -84,3 +84,7 @@ Coming in custody and punching
 the voice but now the
 : Luckily for the lowing of Rome no right words.
 
+
+## Wikilinks load test
+
+[[duty-free beaumontia]]

@@ -85,3 +85,10 @@ that nor did.
 Which way up one knee while
 : Come back again for any direction in trying in March just take a Hatter shook
 
+
+## Wikilinks load test
+
+[[orthodontic birth]]
+[[hispaniolan hebraist]]
+[[latticelike marsh bellflower]]
+[[cacodaemonic malamud]]

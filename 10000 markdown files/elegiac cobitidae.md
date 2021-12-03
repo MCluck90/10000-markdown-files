@@ -79,3 +79,10 @@ Change lobsters again as follows
 He unfolded the night and
 : Sentence first and anxious.
 
+
+## Wikilinks load test
+
+[[hypovolaemic juvenile body]]
+[[sunk jakes]]
+[[downright stapling machine]]
+[[disorganised organ of corti]]

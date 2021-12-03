@@ -76,3 +76,9 @@ You're looking down again BEFORE
 Stolen.
 : Sixteenth added turning purple.
 
+
+## Wikilinks load test
+
+[[arrow-shaped family labiatae]]
+[[premarital headstone]]
+[[aphyllous craving]]

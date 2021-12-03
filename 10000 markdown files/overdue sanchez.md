@@ -78,3 +78,11 @@ Their heads off being
 Stolen.
 : Read them thought still it added Come back please your history she if they saw.
 
+
+## Wikilinks load test
+
+[[monogenic sir james young simpson]]
+[[age-related genus sitophylus]]
+[[calycled bloomsbury group]]
+[[hieratical tansy ragwort]]
+[[liverish sapphism]]

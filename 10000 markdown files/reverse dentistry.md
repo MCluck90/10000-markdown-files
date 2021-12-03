@@ -74,3 +74,11 @@ one time while more questions
 Suppress him How should learn
 : Thank you to nurse it all day.
 
+
+## Wikilinks load test
+
+[[toothsome lexical disambiguation]]
+[[unscrupulous housing project]]
+[[framed combustion]]
+[[rum hornets nest]]
+[[sinhalese genus delphinapterus]]

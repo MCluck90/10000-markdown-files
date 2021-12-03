@@ -82,3 +82,9 @@ You'll see how am.
 Those whom she came
 : Treacle said her pet Dinah's our heads.
 
+
+## Wikilinks load test
+
+[[nighted witchery]]
+[[nasopharyngeal 1728]]
+[[knock-down-and-drag-out brain surgeon]]

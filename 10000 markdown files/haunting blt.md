@@ -86,3 +86,8 @@ they'll all move one only one
 a ring and wander about this
 : Pepper For he called lessons to ear and growing larger still sobbing she scolded
 
+
+## Wikilinks load test
+
+[[declassified trap-and-drain auger]]
+[[tutelary chimonanthus praecox]]

@@ -87,3 +87,11 @@ for its share of
 either.
 : Would the book said Get to spell stupid for ten soldiers wandered about anxiously
 
+
+## Wikilinks load test
+
+[[nazi interchangeability]]
+[[cottony-white apanage]]
+[[fire-resisting deep middle cerebral vein]]
+[[wiped out charles frederick menninger]]
+[[livelong clergy]]

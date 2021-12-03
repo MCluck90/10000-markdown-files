@@ -81,3 +81,10 @@ If I do cats if
 CHORUS.
 : Leave off the fifth bend I won't stand and such stuff
 
+
+## Wikilinks load test
+
+[[tenderised naval research laboratory]]
+[[insolent lanyard]]
+[[irate major premise]]
+[[flukey feudatory]]

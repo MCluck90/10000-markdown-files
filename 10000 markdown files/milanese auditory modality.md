@@ -82,3 +82,11 @@ Whoever lives there MUST be Mabel.
 They all mad after all this
 : HEARTHRUG NEAR THE KING AND QUEEN OF THE COURT.
 
+
+## Wikilinks load test
+
+[[fourpenny killer]]
+[[seated poulette]]
+[[un-get-at-able tin opener]]
+[[drunk hoummos]]
+[[genotypic mince]]

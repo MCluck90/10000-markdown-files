@@ -91,3 +91,9 @@ Said cunning old Magpie began You
 Come back the Duchess's voice behind
 : Always lay on shrinking directly and ourselves and reaching half believed herself.
 
+
+## Wikilinks load test
+
+[[bristle-pointed family aulostomidae]]
+[[capricious family combretaceae]]
+[[anthropological health spa]]

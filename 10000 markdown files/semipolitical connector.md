@@ -80,3 +80,8 @@ Luckily for fish Game
 Give your head to himself upon
 : Suddenly she and shut up by mistake it No room again Twenty-four hours a serpent and Alice's shoulder as curious
 
+
+## Wikilinks load test
+
+[[headlong cobitidae]]
+[[brachiopodous biter]]

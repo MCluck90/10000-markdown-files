@@ -85,3 +85,10 @@ THAT is such a Lobster Quadrille
 If I'd been of
 : Idiot.
 
+
+## Wikilinks load test
+
+[[ambidextrous authority]]
+[[beaten-up nonsteroid]]
+[[dextral earphone]]
+[[fucked-up tritheist]]

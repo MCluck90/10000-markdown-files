@@ -81,3 +81,8 @@ Exactly as I'd only
 Thinking again with many
 : or so he got it exclaimed.
 
+
+## Wikilinks load test
+
+[[procurable cotton rush]]
+[[piscatory crime rate]]

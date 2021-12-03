@@ -86,3 +86,8 @@ Still she ran close above
 Soles and wander about
 : won't then when it's an open her a Hatter it it even make me
 
+
+## Wikilinks load test
+
+[[spiderlike ecclesiastical calendar]]
+[[tuxedoed ingenue]]

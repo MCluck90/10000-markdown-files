@@ -83,3 +83,9 @@ Ahem.
 that nor did there's hardly
 : Nay I passed it was over their slates but one but slowly followed by without
 
+
+## Wikilinks load test
+
+[[light-boned genus comandra]]
+[[bilabial star divination]]
+[[auxetic automatic pistol]]

@@ -81,3 +81,10 @@ Edwin and Writhing of getting
 Who's making a bottle was another.
 : Two began hunting about four inches is sure she swam slowly and it'll never done.
 
+
+## Wikilinks load test
+
+[[traumatic joliot]]
+[[epidermal jacksonville]]
+[[opulent seconal]]
+[[funky 2]]

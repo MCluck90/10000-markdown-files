@@ -76,3 +76,10 @@ Hold up very wide
 I'd only ten minutes to set
 : Do you dry leaves and large birds complained that poky little
 
+
+## Wikilinks load test
+
+[[falsetto nautical mile]]
+[[aflare closing curtain]]
+[[fawn-coloured east wind]]
+[[hundred-and-twentieth milk sickness]]

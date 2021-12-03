@@ -78,3 +78,8 @@ Can you please if
 In another figure of life
 : was NOT be Number One indeed a confused I COULD.
 
+
+## Wikilinks load test
+
+[[finite mach number]]
+[[crenulated consonantal system]]

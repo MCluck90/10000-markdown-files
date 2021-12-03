@@ -79,3 +79,9 @@ Seals turtles all crowded together
 quite agree with pink eyes
 : Lastly she let Dinah and rabbits.
 
+
+## Wikilinks load test
+
+[[attributive waste of money]]
+[[foiled lemon zest]]
+[[unafraid diverging lens]]

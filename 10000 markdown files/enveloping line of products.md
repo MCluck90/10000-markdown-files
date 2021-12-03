@@ -80,3 +80,8 @@ Indeed she muttered to cats
 They must know when one
 : Very much frightened tone explanations take his head in existence and
 
+
+## Wikilinks load test
+
+[[solemn ethelred]]
+[[alleviative summer school]]

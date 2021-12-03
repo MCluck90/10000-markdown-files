@@ -79,3 +79,10 @@ sighed deeply with another.
 London is it marked poison
 : Ugh.
 
+
+## Wikilinks load test
+
+[[forty-one course of study]]
+[[streptococcic central powers]]
+[[smallish sovereign immunity]]
+[[comforting asuncion]]

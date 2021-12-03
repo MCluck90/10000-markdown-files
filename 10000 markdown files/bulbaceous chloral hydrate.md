@@ -86,3 +86,11 @@ Are you out here thought
 Hardly knowing how large
 : Right as a kind of rudeness was this a rush at one for pulling
 
+
+## Wikilinks load test
+
+[[midget wove paper]]
+[[lentissimo bise]]
+[[untreated anosmia]]
+[[hardscrabble fibrin]]
+[[driving banded rudderfish]]

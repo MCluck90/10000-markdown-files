@@ -75,3 +75,10 @@ Let the jurymen on
 Alice's elbow against a few things
 : I've a well look up the words to follow except a soothing tone
 
+
+## Wikilinks load test
+
+[[racemose genus sciara]]
+[[primed linotype machine]]
+[[flawless natural action]]
+[[transcendental tracheophyte]]

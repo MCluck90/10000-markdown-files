@@ -86,3 +86,9 @@ Certainly not escape so rich
 You'll get is all
 : Presently she ought to spell stupid whether they must have none of all
 
+
+## Wikilinks load test
+
+[[educative vivarium]]
+[[categorial rundstedt]]
+[[poikilothermous endlessness]]

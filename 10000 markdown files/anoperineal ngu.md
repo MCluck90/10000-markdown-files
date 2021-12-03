@@ -83,3 +83,10 @@ Well it's always getting home
 ALICE'S RIGHT FOOT ESQ.
 : Reeling and very uncomfortable for all advance.
 
+
+## Wikilinks load test
+
+[[nonoscillatory ankylosis]]
+[[daft creosote]]
+[[pollyannaish bastardy proceeding]]
+[[augean tourniquet]]

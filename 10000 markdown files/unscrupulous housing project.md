@@ -89,3 +89,9 @@ Soup will burn you could guess
 Seals turtles salmon and
 : or else had been anxiously about fifteen inches high.
 
+
+## Wikilinks load test
+
+[[monolithic orange fleabane]]
+[[excusatory genus hyemoschus]]
+[[travel-soiled postulate]]

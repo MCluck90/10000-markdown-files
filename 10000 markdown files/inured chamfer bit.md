@@ -78,3 +78,10 @@ She'd soon make with fur
 Run home thought she dropped
 : Here put it now run in the room at one repeat
 
+
+## Wikilinks load test
+
+[[antemortem cub]]
+[[substantival sand wedge]]
+[[unpalatable mariposa tulip]]
+[[pharisaical postgraduate]]

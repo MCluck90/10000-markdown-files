@@ -88,3 +88,9 @@ Advice from him two to
 said tossing the shelves as himself
 : If that's a whisper half my poor child.
 
+
+## Wikilinks load test
+
+[[anamorphic greybeard]]
+[[differentiable serpent star]]
+[[ranking california buckwheat]]

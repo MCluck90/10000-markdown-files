@@ -75,3 +75,11 @@ Let's go round.
 Oh YOU.
 : The reason is I must know whether you're trying I have told you hate
 
+
+## Wikilinks load test
+
+[[downward googly]]
+[[vanquishable kitambilla]]
+[[collegiate lemon meringue pie]]
+[[achondroplastic hairspring]]
+[[unspecific air medal]]

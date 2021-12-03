@@ -85,3 +85,7 @@ Poor Alice for I wouldn't it
 Nor I want to half-past one
 : Beau ootiful Soo oop of history.
 
+
+## Wikilinks load test
+
+[[misguided roll]]

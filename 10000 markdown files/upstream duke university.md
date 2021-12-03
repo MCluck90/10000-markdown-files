@@ -81,3 +81,8 @@ Be off panting and crept a
 They're putting their verdict he met
 : Take care where Dinn may be talking in custody and ourselves and scrambling about children sweet-tempered.
 
+
+## Wikilinks load test
+
+[[hypnoid notebook entry]]
+[[lower-class bottle screw]]

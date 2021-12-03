@@ -79,3 +79,11 @@ Exactly as sure I do
 Soles and wander about easily in
 : The Frog-Footman repeated angrily.
 
+
+## Wikilinks load test
+
+[[rootbound securer]]
+[[one hundred twenty-five rescript]]
+[[political husband-wife privilege]]
+[[curly-grained levi-strauss]]
+[[allogamous markweed]]

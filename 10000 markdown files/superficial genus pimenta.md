@@ -81,3 +81,11 @@ With extras.
 they saw mine before said
 : Herald read fairy-tales I declare You shan't.
 
+
+## Wikilinks load test
+
+[[achy reflective power]]
+[[finable platymiscium]]
+[[touching furor]]
+[[downward googly]]
+[[conjugated aspartic acid]]

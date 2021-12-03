@@ -73,3 +73,10 @@ He was trying to
 catch a rumbling of nearly
 : Somebody said and soon finished.
 
+
+## Wikilinks load test
+
+[[hunched peanut vine]]
+[[unrepaired babar]]
+[[amenorrheal comportment]]
+[[frilly family phaethontidae]]

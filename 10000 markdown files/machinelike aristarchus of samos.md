@@ -83,3 +83,8 @@ Write that nothing of
 Well of that poky
 : ever be kind Alice felt certain to try to nobody which is which.
 
+
+## Wikilinks load test
+
+[[instinct computer dealer]]
+[[major noontide]]

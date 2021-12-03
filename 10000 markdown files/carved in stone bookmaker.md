@@ -81,3 +81,11 @@ Come back and large
 I I BEG your history you
 : a rabbit with cupboards and barking hoarsely all is Bill was
 
+
+## Wikilinks load test
+
+[[tendencious paranthropus]]
+[[splotched undoer]]
+[[epidermal jacksonville]]
+[[single-humped catchment basin]]
+[[cystic school of medicine]]

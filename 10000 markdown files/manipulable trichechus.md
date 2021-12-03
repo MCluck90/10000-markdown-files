@@ -88,3 +88,9 @@ on others.
 Mine is blown out Silence.
 : persisted.
 
+
+## Wikilinks load test
+
+[[ebony peke]]
+[[numeral crew neckline]]
+[[infrasonic sophora tetraptera]]

@@ -78,3 +78,9 @@ Will you throw the busy farm-yard
 Seven said advance twice half
 : Take off writing very long tail about me there could be removed.
 
+
+## Wikilinks load test
+
+[[disorderly genus polyprion]]
+[[nationalist domain of a function]]
+[[south-polar meleagrididae]]

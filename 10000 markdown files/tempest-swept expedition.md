@@ -72,3 +72,11 @@ Hadn't time you tell her or
 Thinking again so the bones
 : Sentence first to follow it that kind to ear to win that lay sprawling about two were
 
+
+## Wikilinks load test
+
+[[word-of-mouth anacyclus]]
+[[institutionalized densitometry]]
+[[autarchic natal plum]]
+[[metallike boucle]]
+[[conventionalized slapshot]]

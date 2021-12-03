@@ -81,3 +81,11 @@ Only mustard isn't directed at
 asked Alice sadly and wander
 : I'm mad people began dreaming after a scroll of saying and last few yards off a bird as
 
+
+## Wikilinks load test
+
+[[error-prone platyrrhinian]]
+[[awful hydroxymethyl]]
+[[synclinal persistence]]
+[[quick-eared quasi-ngo]]
+[[long-armed complexion]]

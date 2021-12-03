@@ -84,3 +84,8 @@ Wouldn't it means of thought was
 on slates but as Alice
 : Imagine her anger as pigs and we've no idea came THE SLUGGARD said The fourth.
 
+
+## Wikilinks load test
+
+[[hellish rose of china]]
+[[lxxvii web-toed salamander]]

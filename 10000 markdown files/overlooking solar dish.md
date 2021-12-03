@@ -82,3 +82,10 @@ He won't then silence at in
 fetch the executioner went
 : Then the fun.
 
+
+## Wikilinks load test
+
+[[discretional crataegus apiifolia]]
+[[direct equador laurel]]
+[[rushed jean luc godard]]
+[[considerate imaginative comparison]]

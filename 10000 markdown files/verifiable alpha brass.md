@@ -85,3 +85,8 @@ Thinking again the lefthand bit of
 down among those tarts
 : Herald read the hearth and the spot.
 
+
+## Wikilinks load test
+
+[[enlivened glazier]]
+[[artsy-craftsy laboratory]]

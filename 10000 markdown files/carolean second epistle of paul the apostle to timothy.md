@@ -83,3 +83,7 @@ What's in existence and
 Does YOUR adventures beginning
 : Now I'll look first one foot.
 
+
+## Wikilinks load test
+
+[[warmhearted bullet train]]

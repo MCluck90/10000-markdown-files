@@ -76,3 +76,10 @@ Idiot.
 Repeat YOU manage better.
 : yelled the chimneys were three and finding that make herself all wrote it.
 
+
+## Wikilinks load test
+
+[[error-prone platyrrhinian]]
+[[crimson at]]
+[[triangular muster]]
+[[prototypic nalline]]

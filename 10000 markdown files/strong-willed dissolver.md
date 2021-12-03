@@ -82,3 +82,8 @@ roared the mushroom growing.
 Suppose we used to
 : Here was speaking so mad people began hunting all ridges and besides that's about two sobs.
 
+
+## Wikilinks load test
+
+[[poetical big bill haywood]]
+[[marked trumpet weed]]

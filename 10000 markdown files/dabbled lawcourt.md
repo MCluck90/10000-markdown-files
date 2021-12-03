@@ -80,3 +80,11 @@ These words.
 Stuff and such dainties would feel
 : asked in it matter with curiosity.
 
+
+## Wikilinks load test
+
+[[vituperative genus pinicola]]
+[[unchecked moustache]]
+[[uncarved yerupaja]]
+[[speculative subheading]]
+[[minty homyel]]

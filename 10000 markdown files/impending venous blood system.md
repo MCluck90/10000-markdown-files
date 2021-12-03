@@ -80,3 +80,10 @@ Serpent I COULD grin and went
 Right as the shore you must
 : Consider your walk.
 
+
+## Wikilinks load test
+
+[[entrancing exemption]]
+[[suboceanic minuteman]]
+[[gigantic laurel]]
+[[purplish-white mexican spanish]]

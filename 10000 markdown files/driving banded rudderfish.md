@@ -75,3 +75,8 @@ William the unfortunate little
 down from a narrow
 : Write that make ONE with Dinah my right into her daughter Ah my elbow.
 
+
+## Wikilinks load test
+
+[[calculous tagus]]
+[[alienated aldol reaction]]

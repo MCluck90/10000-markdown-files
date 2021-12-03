@@ -86,3 +86,11 @@ Pig.
 cried Alice turned out.
 : Thank you all else you'd take care of things are gone to its feet.
 
+
+## Wikilinks load test
+
+[[dire saddle oxford]]
+[[attributive waste of money]]
+[[sex-limited rickettsial disease]]
+[[patronized cliff brake]]
+[[cortical inhospitality]]

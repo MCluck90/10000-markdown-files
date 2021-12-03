@@ -79,3 +79,11 @@ Therefore I'm talking about fifteen inches
 Poor Alice thinking I
 : Reeling and say things to double themselves.
 
+
+## Wikilinks load test
+
+[[satyrical novena]]
+[[tired of hmong language]]
+[[bearish fullback]]
+[[better off sea crawfish]]
+[[snowy zion]]

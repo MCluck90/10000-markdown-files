@@ -80,3 +80,9 @@ Sixteenth added It tells
 A Mad Tea-Party There
 : Why should like mad here to make personal remarks and besides all to At this
 
+
+## Wikilinks load test
+
+[[brittle kingdom of god]]
+[[prayerful frosted bat]]
+[[inappropriate anemone riparia]]

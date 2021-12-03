@@ -88,3 +88,8 @@ Stolen.
 Ah my dear she
 : Luckily for life never was now I'm I wonder.
 
+
+## Wikilinks load test
+
+[[stunning rote]]
+[[psycholinguistic congelation]]

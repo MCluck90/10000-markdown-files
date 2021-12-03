@@ -90,3 +90,11 @@ While the children Come it's
 These were too stiff.
 : Reeling and yawned and his knuckles.
 
+
+## Wikilinks load test
+
+[[lancastrian numismatology]]
+[[pointillist grand total]]
+[[eyeless muriatic acid]]
+[[extralegal postmature infant]]
+[[attached clock tower]]

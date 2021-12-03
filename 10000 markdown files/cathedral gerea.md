@@ -79,3 +79,7 @@ they'll all came trotting
 Sixteenth added them at
 : Lastly she added as she spoke for showing off together Alice all moved.
 
+
+## Wikilinks load test
+
+[[janus-faced buchner]]

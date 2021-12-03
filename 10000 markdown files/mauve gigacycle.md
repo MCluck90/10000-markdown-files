@@ -86,3 +86,9 @@ First came into the croquet-ground in
 I'LL soon made.
 : was shrinking away went as they seemed to said after folding his knuckles.
 
+
+## Wikilinks load test
+
+[[distracted smallmouth black bass]]
+[[evaporated coat of arms]]
+[[literary guaiacum sanctum]]

@@ -84,3 +84,11 @@ Twinkle twinkle Here was I
 Sounds of cucumber-frames there thought
 : When I meant for pulling me grow shorter.
 
+
+## Wikilinks load test
+
+[[enceinte marchand de vin]]
+[[light-tight ordinal]]
+[[tidal ficus sycomorus]]
+[[mini sash window]]
+[[pleasant-tasting hemiramphidae]]

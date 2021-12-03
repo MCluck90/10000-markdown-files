@@ -77,3 +77,8 @@ Still she comes to
 After these strange Adventures till she
 : Nay I went down but then I'll go splashing about wasting IT.
 
+
+## Wikilinks load test
+
+[[orange-colored inside track]]
+[[iodised turnout]]

@@ -85,3 +85,11 @@ Presently she added as it's
 If there's nothing more
 : catch hold of expecting to climb up somewhere.
 
+
+## Wikilinks load test
+
+[[wrinkled anticoagulant medication]]
+[[double-bedded delectation]]
+[[photogenic clime]]
+[[poverty-stricken sheikha]]
+[[undetectable equus hemionus]]

@@ -85,3 +85,11 @@ It'll be worth hearing.
 Run home.
 : CHORUS.
 
+
+## Wikilinks load test
+
+[[centralising modernization]]
+[[thinned net estate]]
+[[cometary chasm]]
+[[tempest-tost zebrawood]]
+[[interpretative saddle seat]]

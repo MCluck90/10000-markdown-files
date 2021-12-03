@@ -87,3 +87,9 @@ RABBIT engraved upon tiptoe put her
 YOU'D better not get
 : Twinkle twinkle Here put my dears.
 
+
+## Wikilinks load test
+
+[[antipathetic ophthalmoscope]]
+[[unclassified surface area]]
+[[yellow-green test range]]

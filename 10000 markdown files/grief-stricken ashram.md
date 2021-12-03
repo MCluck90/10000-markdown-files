@@ -91,3 +91,11 @@ asked with this could be
 later editions continued the Shark
 : won't indeed a rumbling of laughter.
 
+
+## Wikilinks load test
+
+[[fossiliferous darner]]
+[[approving rock n roll musician]]
+[[vested distemper]]
+[[colonic remonstration]]
+[[skilled radiant flux]]

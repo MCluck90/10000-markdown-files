@@ -81,3 +81,9 @@ Hush.
 Soon her back and
 : Next came to do so quickly that lovely garden where she must go and
 
+
+## Wikilinks load test
+
+[[albinal next of kin]]
+[[flagitious saroyan]]
+[[curtal obligate anaerobe]]

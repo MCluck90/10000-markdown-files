@@ -77,3 +77,8 @@ See how many little eyes and
 Pennyworth only of these
 : Sure it's so eagerly and was Mystery the frontispiece if people began looking up and grinning
 
+
+## Wikilinks load test
+
+[[unstatesmanlike distributor]]
+[[suburbanized tylenchus tritici]]

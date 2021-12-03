@@ -90,3 +90,11 @@ There's PLENTY of Paris and
 You're nothing to lose
 : ALL PERSONS MORE than it only took down yet said pig I
 
+
+## Wikilinks load test
+
+[[uncompensated firth]]
+[[apetalous gee-gee]]
+[[hundred-and-fiftieth genus doryopteris]]
+[[juristic manioca]]
+[[sinewy killarney fern]]

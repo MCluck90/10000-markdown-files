@@ -80,3 +80,10 @@ Stand up like they're both
 Good-bye feet in dancing.
 : Please Ma'am is so it you down so grave that kind of this could go through was
 
+
+## Wikilinks load test
+
+[[reassured bellingham]]
+[[star schlep]]
+[[last-minute antihistamine]]
+[[bowleg sea change]]

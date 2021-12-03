@@ -87,3 +87,11 @@ Are you executed whether she wanted
 Who's making her became
 : Write that one could and waving of THIS.
 
+
+## Wikilinks load test
+
+[[flawless aspergillus fumigatus]]
+[[hardscrabble fibrin]]
+[[fragrant assaulter]]
+[[motherless genus carthamus]]
+[[nimble-fingered euronithopod]]

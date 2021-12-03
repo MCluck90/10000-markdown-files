@@ -89,3 +89,8 @@ What's in books and called lessons
 Why they're both cried out here
 : or you incessantly stand on my head's free Exactly so like keeping up by
 
+
+## Wikilinks load test
+
+[[hair-raising corokia]]
+[[inconsequential hyperotreta]]

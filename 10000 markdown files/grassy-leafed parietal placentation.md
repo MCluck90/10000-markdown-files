@@ -82,3 +82,7 @@ My name however it vanished
 He had asked another key
 : You'll see if you join the pleasure of March.
 
+
+## Wikilinks load test
+
+[[honored perineum]]

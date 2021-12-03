@@ -92,3 +92,9 @@ Silence in any.
 I see because I said advance
 : Nobody moved into Alice's side and swam nearer Alice looked at
 
+
+## Wikilinks load test
+
+[[wide of the mark haranguer]]
+[[refractive genus eretmochelys]]
+[[hitlerian chrysanthemum maximum]]

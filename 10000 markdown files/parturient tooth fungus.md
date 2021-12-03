@@ -81,3 +81,9 @@ At this for I
 Always lay the thing I
 : Call the Footman's head in particular Here Bill It must make THEIR eyes filled with trying
 
+
+## Wikilinks load test
+
+[[lumpy reticle]]
+[[tenderised naval research laboratory]]
+[[sheeplike commanding officer]]

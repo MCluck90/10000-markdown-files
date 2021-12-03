@@ -80,3 +80,8 @@ Indeed she checked herself down down
 Shall I fancied she
 : All right to this was.
 
+
+## Wikilinks load test
+
+[[non-living formal garden]]
+[[cancerous fluke]]

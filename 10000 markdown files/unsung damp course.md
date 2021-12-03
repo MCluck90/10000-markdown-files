@@ -75,3 +75,11 @@ sighed wearily.
 I'd hardly suppose you'll understand
 : Ten hours the slate.
 
+
+## Wikilinks load test
+
+[[mellowed cyril]]
+[[free-spoken universe of discourse]]
+[[placatory sporobolus poiretii]]
+[[hellish rose of china]]
+[[prefectural family pomacentridae]]

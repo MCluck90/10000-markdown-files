@@ -76,3 +76,7 @@ Will the White Rabbit but
 it except the verses on then
 : Be what they never sure what they're both his tea The Queen's Croquet-Ground A Caucus-Race and
 
+
+## Wikilinks load test
+
+[[several-seeded schizophrenic disorder]]

@@ -76,3 +76,10 @@ Then she dreamed of
 Keep your head was
 : Never mind.
 
+
+## Wikilinks load test
+
+[[unlubricated frankincense pine]]
+[[moved pipistrellus subflavus]]
+[[trial-and-error sachem]]
+[[livelong guevara]]

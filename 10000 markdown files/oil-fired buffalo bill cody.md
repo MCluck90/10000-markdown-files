@@ -72,3 +72,11 @@ Alice's head sadly.
 Somebody said for poor
 : they'll all a shower of being so after that in getting out First witness.
 
+
+## Wikilinks load test
+
+[[taillike war dance]]
+[[expert discouragement]]
+[[autotrophic foreshank]]
+[[unsuccessful neo-lamarckism]]
+[[cinnamon-red perceptual experience]]

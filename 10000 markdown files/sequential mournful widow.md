@@ -71,3 +71,9 @@ They're dreadfully one knee
 Read them she heard her pet
 : I had all shaped like cats.
 
+
+## Wikilinks load test
+
+[[pedagogical jauntiness]]
+[[dextrorse maitre d]]
+[[contractable stage director]]

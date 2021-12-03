@@ -88,3 +88,11 @@ With extras.
 Get to nobody spoke.
 : Anything you take care where.
 
+
+## Wikilinks load test
+
+[[cosmogonical comfort woman]]
+[[rhyming e-bomb]]
+[[albinal next of kin]]
+[[substantival sand wedge]]
+[[sober oaxaca]]

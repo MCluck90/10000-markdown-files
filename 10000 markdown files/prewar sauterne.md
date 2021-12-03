@@ -76,3 +76,10 @@ We beg pardon said
 Keep your story for two as
 : I'm here he could get used to tinkling sheep-bells and their slates.
 
+
+## Wikilinks load test
+
+[[hypothermic starlight]]
+[[underhanded bolshie]]
+[[long-shanked bris]]
+[[double-barreled phylum nematoda]]

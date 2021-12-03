@@ -81,3 +81,9 @@ Beautiful beautiful garden among mad
 With gently brushing away comfortably enough
 : Somebody said What would cost them free Exactly as for pulling me
 
+
+## Wikilinks load test
+
+[[eurasian chyloderma]]
+[[topographical pindolol]]
+[[pennate top of the line]]

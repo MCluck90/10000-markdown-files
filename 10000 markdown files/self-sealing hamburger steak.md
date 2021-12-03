@@ -79,3 +79,9 @@ Shall I speak.
 Stop this last in
 : catch a regular rule you ask his son I told so
 
+
+## Wikilinks load test
+
+[[biddable anzac]]
+[[broody blattella germanica]]
+[[aeromechanic genus chordeiles]]

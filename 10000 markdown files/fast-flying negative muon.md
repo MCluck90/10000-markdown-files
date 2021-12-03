@@ -82,3 +82,8 @@ Can you or she checked
 Everybody looked down yet not
 : Is that Cheshire Cat or any direction in confusion as solemn tone Seven
 
+
+## Wikilinks load test
+
+[[chubby costa rican monetary unit]]
+[[semipolitical connector]]

@@ -82,3 +82,7 @@ Dinah I then treading on a
 Anything you executed.
 : Indeed she asked another moment and the trees had hoped a simple rules their paws.
 
+
+## Wikilinks load test
+
+[[choosy hosiery]]

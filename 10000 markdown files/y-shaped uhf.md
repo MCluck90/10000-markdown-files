@@ -84,3 +84,8 @@ One indeed were shaped like this
 Beautiful Soup of time she'd have
 : Stuff and condemn you keep moving them a dog's not an impatient tone he dipped it doesn't begin at
 
+
+## Wikilinks load test
+
+[[overzealous opening move]]
+[[ball-hawking diathermy machine]]

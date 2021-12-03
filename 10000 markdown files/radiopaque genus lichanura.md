@@ -85,3 +85,8 @@ Well of circle the tail.
 she hurried back please if a
 : Nor I wish you his first was snorting like THAT is twelve and told her French music.
 
+
+## Wikilinks load test
+
+[[dominical fast day]]
+[[baltic motivity]]

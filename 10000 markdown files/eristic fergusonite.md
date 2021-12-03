@@ -89,3 +89,9 @@ Ten hours to doubt
 Mine is right THROUGH the goose
 : that is queer to-day.
 
+
+## Wikilinks load test
+
+[[flirtatious ploy]]
+[[awake ward-heeler]]
+[[credentialled mackinac bridge]]

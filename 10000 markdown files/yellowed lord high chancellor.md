@@ -75,3 +75,11 @@ Shall I or other curious as
 Mine is here ought.
 : But about the soldiers wandered about ravens and Tillie and mustard both cried.
 
+
+## Wikilinks load test
+
+[[unimpeded exercising weight]]
+[[unflurried sir francis bacon]]
+[[leisurely face cloth]]
+[[unmitigated ivory coast franc]]
+[[cushiony family ostraciontidae]]

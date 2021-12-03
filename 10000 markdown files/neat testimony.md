@@ -76,3 +76,7 @@ sh.
 that loose slate.
 : He won't.
 
+
+## Wikilinks load test
+
+[[runcinate khat]]

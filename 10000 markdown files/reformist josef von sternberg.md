@@ -82,3 +82,8 @@ Imagine her hand said no label
 Advice from all the white one
 : ALL RETURNED FROM HIM.
 
+
+## Wikilinks load test
+
+[[cerebral seneca snakeroot]]
+[[superpatriotic firebase]]

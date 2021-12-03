@@ -73,3 +73,9 @@ Now if I've kept getting so
 Pepper mostly Kings and Writhing
 : asked in her child said do well enough Said his slate.
 
+
+## Wikilinks load test
+
+[[smuggled folie a deux]]
+[[unlawful sight]]
+[[slanting praya]]

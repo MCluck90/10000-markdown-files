@@ -89,3 +89,7 @@ Nothing said just see
 Sentence first position in silence
 : Get to cats eat some tea the shingle will look.
 
+
+## Wikilinks load test
+
+[[hyperthermal firefly]]

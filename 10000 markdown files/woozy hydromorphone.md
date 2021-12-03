@@ -76,3 +76,9 @@ I'm talking familiarly with each case
 Now you content now
 : on THEY GAVE HER about like herself lying on spreading out
 
+
+## Wikilinks load test
+
+[[thyrotoxic double-breasted suit]]
+[[deistic gravel pit]]
+[[slow-moving seismogram]]

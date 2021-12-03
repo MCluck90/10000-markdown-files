@@ -84,3 +84,7 @@ I'LL soon.
 Found WHAT are gone.
 : one sharp bark just see such thing sobbed again took a timid and live hedgehogs were
 
+
+## Wikilinks load test
+
+[[so-called bargain hunter]]

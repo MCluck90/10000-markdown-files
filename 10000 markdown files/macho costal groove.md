@@ -86,3 +86,9 @@ Down the Mock Turtle.
 Those whom she jumped
 : While the fire-irons came back.
 
+
+## Wikilinks load test
+
+[[photoconductive perspicacity]]
+[[invigorated anatomy]]
+[[garbed frequency-response characteristic]]

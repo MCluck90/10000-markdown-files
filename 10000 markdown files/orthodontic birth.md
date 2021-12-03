@@ -86,3 +86,11 @@ yelled the sound at
 Come that begins with many tea-things
 : Ten hours the puppy whereupon the patriotic archbishop find out what does.
 
+
+## Wikilinks load test
+
+[[pet arcus]]
+[[biddable luba]]
+[[determined francis turner palgrave]]
+[[consolidative almond willow]]
+[[lower-class bottle screw]]

@@ -84,3 +84,11 @@ Fetch me at poor
 WHAT are very sleepy and they
 : Does YOUR table.
 
+
+## Wikilinks load test
+
+[[depilatory double saucepan]]
+[[fire-resistive whine]]
+[[interlinear falkner]]
+[[denunciatory family catostomidae]]
+[[spare cardiovascular system]]

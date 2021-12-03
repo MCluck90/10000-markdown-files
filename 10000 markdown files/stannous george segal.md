@@ -83,3 +83,10 @@ Boots and other the
 Stolen.
 : Down the witness.
 
+
+## Wikilinks load test
+
+[[confederate cheetah]]
+[[pectic adducer]]
+[[ambiversive fringed orchid]]
+[[noncommercial jampot]]

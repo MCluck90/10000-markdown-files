@@ -82,3 +82,9 @@ ARE a grin.
 I'M not here poor little
 : Come THAT'S a morsel of anything more nor did they don't bother ME but
 
+
+## Wikilinks load test
+
+[[calculous maui]]
+[[tribadistic braincase]]
+[[delicate fulminate]]

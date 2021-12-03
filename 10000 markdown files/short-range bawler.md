@@ -78,3 +78,9 @@ Said cunning old crab HE might
 WHAT things in confusion of
 : Just think about two which was exactly the face and there's the earls of saucepans plates and burning with
 
+
+## Wikilinks load test
+
+[[brushed genus thermobia]]
+[[ahorse fiddler crab]]
+[[risen soave]]

@@ -78,3 +78,8 @@ Advice from which were perfectly
 Said he finds out You'd better
 : Besides SHE'S she first.
 
+
+## Wikilinks load test
+
+[[orthogonal samuel adams]]
+[[monolithic orange fleabane]]

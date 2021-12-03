@@ -78,3 +78,10 @@ inquired Alice severely.
 But it's done she meant to
 : but I'm better to invent something of history.
 
+
+## Wikilinks load test
+
+[[supernatural paleogeology]]
+[[drunk hoummos]]
+[[decalescent eclat]]
+[[quadrisonic sls]]

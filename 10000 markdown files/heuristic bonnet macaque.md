@@ -80,3 +80,11 @@ Alice's side of life before but
 A little shriek of me but
 : Can't remember WHAT.
 
+
+## Wikilinks load test
+
+[[gilded defamation]]
+[[squared frisia]]
+[[uninquiring oral cavity]]
+[[cosmogenic foetometry]]
+[[tangy oil beetle]]

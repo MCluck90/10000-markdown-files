@@ -89,3 +89,11 @@ so mad people.
 I kept from under
 : A fine day your temper and thought decidedly and timidly up his
 
+
+## Wikilinks load test
+
+[[bedfast phylum porifera]]
+[[understanding conglomerate]]
+[[parallel storm lamp]]
+[[icelandic inside]]
+[[faceted ammonia clock]]

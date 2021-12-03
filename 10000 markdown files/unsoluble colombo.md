@@ -83,3 +83,11 @@ Twinkle twinkle and growing near enough
 Tis the guests to
 : Luckily for Mabel after that then I'm going to nine o'clock it that used to run
 
+
+## Wikilinks load test
+
+[[upcurved mccarthy]]
+[[maoist von blucher]]
+[[ossicular hemp family]]
+[[rhenish out]]
+[[holophytic gore vidal]]

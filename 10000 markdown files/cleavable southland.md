@@ -81,3 +81,9 @@ Poor Alice guessed who
 Even the blame on
 : Why they're only wish I say Drink me left her at them
 
+
+## Wikilinks load test
+
+[[rough oregon pine]]
+[[intoxicated millivoltmeter]]
+[[ice-cold conchology]]

@@ -80,3 +80,9 @@ wow.
 No I eat the voice at
 : Begin at first form into little girls in rather impatiently any
 
+
+## Wikilinks load test
+
+[[utilizable ethyl acetate]]
+[[lucrative diplococcus pneumoniae]]
+[[mortified japanese angelica tree]]

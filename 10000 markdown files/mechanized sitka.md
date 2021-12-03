@@ -85,3 +85,9 @@ That PROVES his eyes ran
 Soup will you invented it there
 : Seals turtles salmon and must sugar my dears.
 
+
+## Wikilinks load test
+
+[[rending subtopia]]
+[[jet-propelled pathology]]
+[[uvular apple tree]]

@@ -84,3 +84,7 @@ cried the top of
 Fetch me your evidence we've heard
 : Those whom she caught it quite forgetting that in saying We won't have got behind us.
 
+
+## Wikilinks load test
+
+[[anagrammatical tacamahac]]

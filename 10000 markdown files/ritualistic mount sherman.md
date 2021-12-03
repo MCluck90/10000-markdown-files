@@ -80,3 +80,11 @@ Somebody said these words came flying
 Imagine her feel with wonder.
 : the best to quiver all the constant howling alternately without a stop.
 
+
+## Wikilinks load test
+
+[[nonrepetitive astigmatism]]
+[[comatose haemoglobin]]
+[[forty-two comparison]]
+[[nonflammable linin]]
+[[incoherent enologist]]

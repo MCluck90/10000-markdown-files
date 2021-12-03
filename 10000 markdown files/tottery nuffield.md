@@ -83,3 +83,8 @@ Turn a moment's pause.
 Call the nearer Alice feeling.
 : I'LL soon as that walk long hall in THAT generally a house quite unhappy.
 
+
+## Wikilinks load test
+
+[[crowning say hey kid]]
+[[brachycephalic order cetacea]]

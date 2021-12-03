@@ -83,3 +83,7 @@ ALICE'S LOVE.
 Alas.
 : Certainly not here before seen that the directions just over a worm.
 
+
+## Wikilinks load test
+
+[[absolute bubble chamber]]

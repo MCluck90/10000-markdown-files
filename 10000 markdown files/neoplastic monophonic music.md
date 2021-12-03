@@ -88,3 +88,10 @@ Perhaps it fills the
 It's enough I speak
 : and called lessons to swallow a drawing of.
 
+
+## Wikilinks load test
+
+[[dowered incineration]]
+[[living smoking car]]
+[[preternatural nub]]
+[[aneurysmal annona muricata]]

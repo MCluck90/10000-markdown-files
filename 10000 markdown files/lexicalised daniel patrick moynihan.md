@@ -83,3 +83,7 @@ You make the porpoise.
 for such stuff.
 : Hush.
 
+
+## Wikilinks load test
+
+[[bronze strongylodon]]

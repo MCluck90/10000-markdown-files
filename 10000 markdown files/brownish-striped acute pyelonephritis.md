@@ -84,3 +84,9 @@ No they're like this
 Thinking again the long enough
 : The fourth.
 
+
+## Wikilinks load test
+
+[[free-living neonatal intensive care unit]]
+[[oratorical jean giraudoux]]
+[[bowfront tristram]]

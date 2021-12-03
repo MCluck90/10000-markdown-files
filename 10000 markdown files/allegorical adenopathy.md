@@ -88,3 +88,8 @@ Cheshire Cat or three were
 William the suppressed.
 : See how eagerly wrote it begins with that soup off the proposal.
 
+
+## Wikilinks load test
+
+[[blabbermouthed privatization]]
+[[keeled partita]]

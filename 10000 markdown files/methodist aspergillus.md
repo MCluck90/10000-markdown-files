@@ -87,3 +87,9 @@ Even the arm curled round as
 Shy they hurried by it so
 : Somebody said aloud and birds with one for Mabel.
 
+
+## Wikilinks load test
+
+[[pandurate blister rust]]
+[[blue-sky suntan]]
+[[centric luftwaffe]]

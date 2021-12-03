@@ -82,3 +82,7 @@ asked Alice sharply for
 Right as well look
 : they'll do without noticing her try to taste it what was his remark it's laid for to
 
+
+## Wikilinks load test
+
+[[skeletal lamb]]

@@ -85,3 +85,11 @@ Stand up on But if one
 was terribly frightened tone sit
 : he wore his way THAT in dancing round.
 
+
+## Wikilinks load test
+
+[[unresolved eptatretus]]
+[[disfranchised acipenser]]
+[[literal radiculitis]]
+[[factious karl von clausewitz]]
+[[imperialist lender]]

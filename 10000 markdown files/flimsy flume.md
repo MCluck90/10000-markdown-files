@@ -86,3 +86,11 @@ catch a grin which
 Pat.
 : about her fancy that there's no wonder how far as this pool she drew
 
+
+## Wikilinks load test
+
+[[victorious erigeron philadelphicus]]
+[[dissatisfied phoneme]]
+[[gaunt subphylum tunicata]]
+[[severed juvenile body]]
+[[debasing preoccupancy]]

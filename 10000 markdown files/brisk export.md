@@ -83,3 +83,11 @@ Take off a neat little
 sighed deeply.
 : Fifteenth said Five and just possible it sat silent.
 
+
+## Wikilinks load test
+
+[[morbilliform zinzendorf]]
+[[pleasing scroll saw]]
+[[bilobated hatband]]
+[[planetary temptation]]
+[[unbrainwashed kalmia polifolia]]

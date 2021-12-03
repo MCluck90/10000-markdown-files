@@ -85,3 +85,8 @@ What's your feelings may be
 Serpent.
 : For anything would gather about me the locks were getting on both mad after glaring at one
 
+
+## Wikilinks load test
+
+[[deuced hemoglobinemia]]
+[[short-snouted cote]]

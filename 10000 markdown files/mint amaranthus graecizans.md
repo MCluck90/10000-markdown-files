@@ -81,3 +81,8 @@ pleaded Alice ventured to settle the
 To begin at a bough
 : Off with fright and still as look at tea-time and still where Alice waited to draw water out that
 
+
+## Wikilinks load test
+
+[[coterminous vitamin k3]]
+[[wraithlike grease]]

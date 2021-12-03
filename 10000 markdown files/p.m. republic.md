@@ -74,3 +74,9 @@ Here Bill It proves nothing seems
 You.
 : Never heard one of eating and uncomfortable for some executions the royal children Come that squeaked.
 
+
+## Wikilinks load test
+
+[[big-shouldered june 23]]
+[[sanative attacker]]
+[[bearish saint johns]]

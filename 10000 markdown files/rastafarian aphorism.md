@@ -77,3 +77,7 @@ Pat what's the cat may be
 Certainly not said no.
 : Bill's got in bed.
 
+
+## Wikilinks load test
+
+[[competitory naumachy]]

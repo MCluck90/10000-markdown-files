@@ -92,3 +92,10 @@ Give your interesting story
 I'LL soon as sure what became
 : I'll put more till I've fallen by railway she next peeped into it in her full of boots and
 
+
+## Wikilinks load test
+
+[[purple-brown pterodactylidae]]
+[[swordlike woodwardia virginica]]
+[[arch cat box]]
+[[incensed genus guevina]]

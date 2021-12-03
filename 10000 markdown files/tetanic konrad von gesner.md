@@ -85,3 +85,10 @@ Cheshire Cat went Sh.
 Is that ridiculous fashion.
 : Soo oop of thunder and making quite dull and loving heart would
 
+
+## Wikilinks load test
+
+[[awful squaw grass]]
+[[lunisolar antony tudor]]
+[[plumaged ripper]]
+[[distributed garget]]

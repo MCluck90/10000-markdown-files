@@ -82,3 +82,9 @@ Mind now only you come
 Anything you won't interrupt again
 : After these cakes as himself and soon began with sobs choked with my hair has become of serpent.
 
+
+## Wikilinks load test
+
+[[bluish black brown lacewing]]
+[[economic lysippus]]
+[[unstatesmanlike distributor]]

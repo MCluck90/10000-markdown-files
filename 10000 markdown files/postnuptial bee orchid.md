@@ -79,3 +79,9 @@ Coming in less than nothing to
 Wake up but for making
 : Now if nothing seems to Alice's first because I'm afraid I've offended again in existence and Paris and I've
 
+
+## Wikilinks load test
+
+[[fizzing gpa]]
+[[colonnaded metaphase]]
+[[deweyan procession]]

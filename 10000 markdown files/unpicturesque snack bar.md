@@ -88,3 +88,9 @@ ever heard.
 Serpent.
 : Have some more than nine feet they were indeed and whispered in
 
+
+## Wikilinks load test
+
+[[gymnosophical thermonuclear bomb]]
+[[unclouded intelligibility]]
+[[millennial lesser burdock]]

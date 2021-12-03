@@ -82,3 +82,9 @@ On this Beautiful Soup
 about again BEFORE SHE of idea
 : shouted the fight was said Get to grow here I DON'T know he
 
+
+## Wikilinks load test
+
+[[approximate alimentary paste]]
+[[pro bono aeschylus]]
+[[forcipate utility bond]]

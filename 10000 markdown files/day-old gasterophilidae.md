@@ -75,3 +75,7 @@ cried.
 Very soon found it.
 : Up above the distant sobs.
 
+
+## Wikilinks load test
+
+[[directionless convictfish]]

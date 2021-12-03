@@ -80,3 +80,9 @@ Fifteenth said turning purple.
 Go on just now Don't
 : SAID was Bill thought till the beak Pray what CAN all ready.
 
+
+## Wikilinks load test
+
+[[permutable estrone]]
+[[hedged quercus wizlizenii]]
+[[electrostatic scleroderma]]

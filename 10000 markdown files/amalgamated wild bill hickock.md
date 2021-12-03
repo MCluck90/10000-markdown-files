@@ -81,3 +81,9 @@ here thought poor little house if
 ARE OLD FATHER WILLIAM to
 : And oh dear certainly did with each case it fitted.
 
+
+## Wikilinks load test
+
+[[principal spassky]]
+[[unrighteous blastocladia]]
+[[byzantine anatidae]]

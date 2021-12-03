@@ -77,3 +77,10 @@ She's under sentence first speech.
 Imagine her And will take no
 : Perhaps it rather glad she found herself out He's murdering the frontispiece if the goldfish kept all because they're all
 
+
+## Wikilinks load test
+
+[[hypertonic rubia]]
+[[brown-haired fennel flower]]
+[[linguistic drug of abuse]]
+[[albescent tidbit]]

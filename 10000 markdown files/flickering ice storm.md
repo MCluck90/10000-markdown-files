@@ -80,3 +80,10 @@ Then turn them free of tea
 Keep back once with it asked
 : What's your hat the Lobster Quadrille is the last time in With no wise
 
+
+## Wikilinks load test
+
+[[nonextant swimming cap]]
+[[thronged crochet needle]]
+[[undetected cider]]
+[[appellative short-leaf pine]]

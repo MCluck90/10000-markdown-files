@@ -78,3 +78,10 @@ Keep back.
 With no result seemed
 : Ahem.
 
+
+## Wikilinks load test
+
+[[intertidal dog breeding]]
+[[concomitant megabit]]
+[[willowy gerfalcon]]
+[[arciform cardium]]

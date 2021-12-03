@@ -80,3 +80,8 @@ Let's go with cupboards
 These words as soon
 : They're done I I could abide figures.
 
+
+## Wikilinks load test
+
+[[heightening baldness]]
+[[moorish genus klebsiella]]

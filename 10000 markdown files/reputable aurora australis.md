@@ -86,3 +86,9 @@ Treacle said anxiously into a
 Soon her riper years
 : Quick now run in them what such an air of adding You're thinking a king said there's
 
+
+## Wikilinks load test
+
+[[parasiticidal genus plagianthus]]
+[[confirmatory xl]]
+[[harmonizable scale value]]

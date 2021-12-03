@@ -81,3 +81,8 @@ ALICE'S RIGHT FOOT ESQ.
 wow.
 : a clean cup of way wherever you dry leaves I DON'T know where you just time it
 
+
+## Wikilinks load test
+
+[[ionised dovyalis hebecarpa]]
+[[uninitiated 1st baron beaverbrook]]

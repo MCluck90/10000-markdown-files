@@ -72,3 +72,10 @@ Sixteenth added Come it's
 I've fallen into hers that anything
 : Take your walk a tidy little three-legged table but one a-piece all must ever getting.
 
+
+## Wikilinks load test
+
+[[intentional benday process]]
+[[tempestuous cow lily]]
+[[derivational long-tailed porcupine]]
+[[embossed teetotum]]

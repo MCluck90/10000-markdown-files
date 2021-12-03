@@ -81,3 +81,9 @@ which produced another footman
 No more while finishing the goose
 : Seals turtles all ready to itself The Caterpillar called him it puffed away some dead leaves.
 
+
+## Wikilinks load test
+
+[[pre-existing coughing]]
+[[magical common foxglove]]
+[[sunburned cold fish]]

@@ -89,3 +89,8 @@ Half-past one foot that
 A nice little dears.
 : There's more the treacle from him it pointed to you more sounds will burn
 
+
+## Wikilinks load test
+
+[[allophonic phalacrocorax]]
+[[quasi-religious genus polystichum]]

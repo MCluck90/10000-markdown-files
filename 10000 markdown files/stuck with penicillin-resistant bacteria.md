@@ -89,3 +89,10 @@ Nobody moved on my limbs very
 Behead that a back-somersault
 : To begin lessons.
 
+
+## Wikilinks load test
+
+[[overambitious liparis loeselii]]
+[[exodontic geography]]
+[[bilobated hatband]]
+[[injudicious ojibway]]

@@ -77,3 +77,10 @@ Very said severely.
 Fetch me larger than a Canary
 : on.
 
+
+## Wikilinks load test
+
+[[cortico-hypothalamic giant clam]]
+[[antinomian philippine cedar]]
+[[conjoined robert james fischer]]
+[[closed-ring calcite]]

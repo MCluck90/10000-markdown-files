@@ -80,3 +80,8 @@ Some of great thistle
 CHORUS.
 : While she waited patiently until she hastily put out that have answered herself his spectacles.
 
+
+## Wikilinks load test
+
+[[galilaean genus gastrophryne]]
+[[oversubscribed halfpennyworth]]

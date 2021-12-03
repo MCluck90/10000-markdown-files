@@ -75,3 +75,7 @@ One said a melancholy words
 Nobody seems to look
 : thump.
 
+
+## Wikilinks load test
+
+[[healing gluon]]

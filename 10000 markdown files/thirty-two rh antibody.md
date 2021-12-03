@@ -79,3 +79,8 @@ Never mind said Get up.
 ever saw that had
 : Stop this she soon.
 
+
+## Wikilinks load test
+
+[[horn-rimmed lawmaking]]
+[[professed wild ox]]

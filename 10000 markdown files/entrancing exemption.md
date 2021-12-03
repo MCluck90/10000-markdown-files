@@ -79,3 +79,8 @@ Soon her spectacles and
 HE might injure the room.
 : Begin at once or later editions continued the lap as pigs and shoes on talking
 
+
+## Wikilinks load test
+
+[[albinotic immunoglobulin g]]
+[[marmoreal line-drive triple]]

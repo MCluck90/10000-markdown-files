@@ -77,3 +77,8 @@ Wow.
 Where shall.
 : Turn that green stuff.
 
+
+## Wikilinks load test
+
+[[pelagic sweet elder]]
+[[catabolic rhizoid]]

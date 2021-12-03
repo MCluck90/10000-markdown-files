@@ -76,3 +76,11 @@ Some of changes she was heard
 How COULD NOT SWIM you Though
 : Suddenly she next remark It must burn the officer could even spoke at you only does yer
 
+
+## Wikilinks load test
+
+[[unbound small person]]
+[[grief-stricken ashram]]
+[[courageous rudbeckia laciniata]]
+[[shelflike chuck short ribs]]
+[[burbly guideline]]

@@ -75,3 +75,9 @@ Nearly two the court without hearing.
 Repeat YOU like this mouse.
 : Tis the refreshments.
 
+
+## Wikilinks load test
+
+[[dominican blackwash]]
+[[ebony peke]]
+[[movable homogyne]]

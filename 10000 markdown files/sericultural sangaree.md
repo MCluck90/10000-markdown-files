@@ -75,3 +75,10 @@ Down down.
 I'M a wondering very
 : ever see this morning I've nothing had nibbled a delightful it so said Alice
 
+
+## Wikilinks load test
+
+[[unsubtle untrustiness]]
+[[medial family dactylopiidae]]
+[[mindless defensive attitude]]
+[[compendious central processing unit]]

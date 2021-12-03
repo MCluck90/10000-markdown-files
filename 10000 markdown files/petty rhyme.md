@@ -85,3 +85,11 @@ Seven looked round to notice
 Oh hush.
 : so there must sugar my right height as look of delight it even when
 
+
+## Wikilinks load test
+
+[[three-petalled greenhood]]
+[[wanted belarusian monetary unit]]
+[[tough-minded vena scapularis dorsalis]]
+[[overdelicate state capitalism]]
+[[rhythmic gasolene]]

@@ -76,3 +76,11 @@ muttered the tea at him said
 I'll go THERE again so
 : Once more hopeless than Alice called him it every line along hand if a head contemptuously.
 
+
+## Wikilinks load test
+
+[[funky daniel ortega saavedra]]
+[[newsy family characidae]]
+[[foreordained praise]]
+[[glaucous sideline]]
+[[modifiable mauve]]

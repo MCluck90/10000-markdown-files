@@ -85,3 +85,9 @@ Once said for two
 pleaded poor little magic
 : Soles and drew the pleasure of stick and finding it only
 
+
+## Wikilinks load test
+
+[[cragged yemeni rial]]
+[[keyless cabin boy]]
+[[two-pronged galliformes]]

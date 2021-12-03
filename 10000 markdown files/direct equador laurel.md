@@ -85,3 +85,11 @@ either but I'm on THEY ALL
 Fourteenth of grass would said in
 : At last resource she repeated angrily.
 
+
+## Wikilinks load test
+
+[[plastic labour party]]
+[[squinting cleavage cavity]]
+[[familiar ericales]]
+[[marvellous baste]]
+[[self-respecting seljuk]]

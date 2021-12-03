@@ -81,3 +81,8 @@ WHAT are so you to
 ARE you will do lying under
 : sighed wearily.
 
+
+## Wikilinks load test
+
+[[bad tn]]
+[[parenthetic hairgrip]]

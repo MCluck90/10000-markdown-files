@@ -82,3 +82,9 @@ There's no sort in
 Nay I feared it may
 : IT the other paw lives.
 
+
+## Wikilinks load test
+
+[[egg-producing clucking]]
+[[topical fillagree]]
+[[overbusy transduction]]

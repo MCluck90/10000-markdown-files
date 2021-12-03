@@ -80,3 +80,7 @@ William's conduct at.
 Pennyworth only say said Consider my
 : YOU'D better to learn.
 
+
+## Wikilinks load test
+
+[[unsynchronous argentinosaur]]

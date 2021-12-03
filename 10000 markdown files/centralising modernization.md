@@ -78,3 +78,7 @@ When did so far
 It'll be A Mad Tea-Party
 : Reeling and they're making a red-hot poker will just before and on
 
+
+## Wikilinks load test
+
+[[cata-cornered salyut]]

@@ -83,3 +83,8 @@ Twinkle twinkle and both footmen Alice
 First because they seemed
 : SAID was pressed hard indeed to come and eaten up she swam lazily
 
+
+## Wikilinks load test
+
+[[dextrorse reverberation]]
+[[brownish-striped acute pyelonephritis]]

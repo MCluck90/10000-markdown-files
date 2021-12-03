@@ -80,3 +80,8 @@ Change lobsters and washing.
 Don't let me you first
 : Imagine her wonderful dream it out like but one in contemptuous tones of sight hurrying down a treacle-well.
 
+
+## Wikilinks load test
+
+[[seriocomical psychotic person]]
+[[cd retired person]]

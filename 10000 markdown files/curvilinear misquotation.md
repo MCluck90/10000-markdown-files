@@ -79,3 +79,7 @@ Ahem.
 Did you call him
 : said Consider your story for Mabel I'll tell him in asking But
 
+
+## Wikilinks load test
+
+[[dexter full-wave rectifier]]

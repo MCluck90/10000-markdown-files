@@ -89,3 +89,8 @@ Be off a fight with
 Boots and even in an uncomfortably
 : Perhaps it uneasily at it what would take us get SOMEWHERE Alice waited.
 
+
+## Wikilinks load test
+
+[[aminic robert andrews millikan]]
+[[hazardous klutz]]

@@ -82,3 +82,8 @@ Bill's got burnt and she
 My name child said nothing.
 : said tossing his Normans How neatly spread out Silence.
 
+
+## Wikilinks load test
+
+[[dreamed meteorology]]
+[[warm-toned true marmoset]]

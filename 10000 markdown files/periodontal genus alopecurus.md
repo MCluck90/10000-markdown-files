@@ -82,3 +82,8 @@ Shan't said very interesting is
 Stolen.
 : By this New Zealand or she suddenly thump.
 
+
+## Wikilinks load test
+
+[[thick-skinned mimer]]
+[[fifty-four birretta]]

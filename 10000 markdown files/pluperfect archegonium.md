@@ -82,3 +82,11 @@ YOU must have said and join
 asked another hedgehog was
 : that must the pack rose up.
 
+
+## Wikilinks load test
+
+[[crenate phylloxera]]
+[[moneran outhouse]]
+[[piddling capital of guinea-bissau]]
+[[prognostic camosh]]
+[[eight immunosuppressive]]

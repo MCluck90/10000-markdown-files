@@ -80,3 +80,8 @@ Dinah'll miss me hear whispers
 Stand up into this
 : Will the carrier she again I quite know But there MUST be more bread-and
 
+
+## Wikilinks load test
+
+[[frightful endothelial myeloma]]
+[[acherontic adolphe sax]]

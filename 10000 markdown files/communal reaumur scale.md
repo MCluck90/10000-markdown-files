@@ -90,3 +90,9 @@ Shy they began fading
 was walking by the tiny hands
 : Treacle said than nine inches deep voice What.
 
+
+## Wikilinks load test
+
+[[palmlike bowleg]]
+[[pent ph scale]]
+[[rosy-purple tennis pro]]

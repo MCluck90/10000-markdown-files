@@ -90,3 +90,10 @@ Your hair has won.
 Can't remember said advance.
 : they'll do this so shiny.
 
+
+## Wikilinks load test
+
+[[full-bosomed ormosia monosperma]]
+[[challenging insurance agent]]
+[[bimestrial ranunculus flammula]]
+[[ratiocinative spermophilus]]

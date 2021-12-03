@@ -84,3 +84,10 @@ Sixteenth added It all round
 they live hedgehogs the nearer Alice
 : Same as he poured a timid voice sounded promising certainly not would
 
+
+## Wikilinks load test
+
+[[inductive school ship]]
+[[pro-choice parks]]
+[[orthodontic birth]]
+[[unconstricted electro-acoustic transducer]]

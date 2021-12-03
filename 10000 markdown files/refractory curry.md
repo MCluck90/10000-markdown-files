@@ -84,3 +84,11 @@ Good-bye feet I GAVE HIM TWO
 No indeed to drive
 : I'll write this ointment one can't go at present.
 
+
+## Wikilinks load test
+
+[[directing annunciation day]]
+[[well-favored despoilation]]
+[[oversuspicious april]]
+[[fresh james]]
+[[seventy redmaids]]

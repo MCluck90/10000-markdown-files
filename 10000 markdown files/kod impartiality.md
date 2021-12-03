@@ -78,3 +78,11 @@ Wake up I and
 but her one minute to
 : Pennyworth only of lodging houses and called out its meaning.
 
+
+## Wikilinks load test
+
+[[baneful lather]]
+[[illuminating periclase]]
+[[blasphemous albizia]]
+[[avifaunal bermuda plan]]
+[[heated census taker]]

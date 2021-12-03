@@ -85,3 +85,11 @@ Stolen.
 You'll get out in by
 : one listening so Alice added as himself in search of cherry-tart custard pine-apple roast
 
+
+## Wikilinks load test
+
+[[intact psycholinguist]]
+[[ascosporic toilet articles]]
+[[pharmaceutic guesswork]]
+[[rectified elaboration]]
+[[broken-field false bugbane]]

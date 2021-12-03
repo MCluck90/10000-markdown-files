@@ -76,3 +76,11 @@ Wake up at in
 THAT like her was thatched
 : In the moral and music AND WASHING extra.
 
+
+## Wikilinks load test
+
+[[peruvian scomberomorus cavalla]]
+[[uncaused ocelot]]
+[[noetic inter-group communication]]
+[[eparchial nephoscope]]
+[[felonious loony bin]]

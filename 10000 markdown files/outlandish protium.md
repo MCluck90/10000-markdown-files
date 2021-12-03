@@ -83,3 +83,9 @@ Hush.
 CHORUS.
 : Beautiful beauti FUL SOUP.
 
+
+## Wikilinks load test
+
+[[ornithological pine mouse]]
+[[astigmatic fiefdom]]
+[[bottom-up honor system]]

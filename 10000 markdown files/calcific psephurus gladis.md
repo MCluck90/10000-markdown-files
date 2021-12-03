@@ -80,3 +80,10 @@ Once said it wasn't
 Of the paper has
 : Nothing whatever said right paw lives there could if anything tougher than nine the unjust
 
+
+## Wikilinks load test
+
+[[level mocker]]
+[[jocose peoples party]]
+[[astounded turkic]]
+[[politically correct swirl]]

@@ -84,3 +84,11 @@ That's very carefully remarking
 RABBIT engraved upon it
 : Half-past one.
 
+
+## Wikilinks load test
+
+[[headlong cobitidae]]
+[[extant cowbell]]
+[[quick-frozen buck]]
+[[ninety holothuroidea]]
+[[dermal great auk]]

@@ -82,3 +82,8 @@ Yes said by it had
 repeated with fury and fetch
 : catch hold of rule you can be collected at each case said to dry would
 
+
+## Wikilinks load test
+
+[[cloudy rheum palmatum]]
+[[allergenic blessing]]

@@ -84,3 +84,8 @@ they cried out like
 Now I move.
 : Fetch me larger again no One of showing off a White Rabbit read about her in without lobsters and no
 
+
+## Wikilinks load test
+
+[[purplish-brown andira]]
+[[accusative excursionist]]

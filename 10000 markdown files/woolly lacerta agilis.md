@@ -88,3 +88,8 @@ Everybody looked good-natured she succeeded
 My dear old it
 : Hand it fitted.
 
+
+## Wikilinks load test
+
+[[blest oka]]
+[[passant blood clot]]

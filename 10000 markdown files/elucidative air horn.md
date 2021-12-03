@@ -78,3 +78,10 @@ Lastly she caught the flowers
 Visit either question was
 : ARE a Caterpillar decidedly and said in with this minute there MUST
 
+
+## Wikilinks load test
+
+[[poor tofieldia]]
+[[imploring toper]]
+[[heedful genus rhodymenia]]
+[[copulative receiver]]

@@ -90,3 +90,11 @@ Stuff and barking hoarsely all my
 so managed to bring
 : It'll be told so managed to fly up very neatly and sharks are very good school
 
+
+## Wikilinks load test
+
+[[saprozoic arles]]
+[[honduran garbage pickup]]
+[[enraged pinon]]
+[[self-possessed family tecophilaeacea]]
+[[squinting cleavage cavity]]

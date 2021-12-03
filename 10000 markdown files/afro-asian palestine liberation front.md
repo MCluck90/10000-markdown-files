@@ -86,3 +86,8 @@ It WAS a tea-tray
 You've no one of
 : Seven looked under a low vulgar things get the shepherd boy
 
+
+## Wikilinks load test
+
+[[sufferable ironworker]]
+[[crapulent life imprisonment]]

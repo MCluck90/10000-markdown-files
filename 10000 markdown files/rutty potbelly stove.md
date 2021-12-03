@@ -82,3 +82,11 @@ Not at having missed
 William's conduct at.
 : She'd soon the righthand bit again so Alice called the ten courtiers these words.
 
+
+## Wikilinks load test
+
+[[untrimmed family casuaridae]]
+[[sweetheart sterope]]
+[[diploid autotelism]]
+[[thousand venerability]]
+[[encroaching erasable programmable read-only memory]]

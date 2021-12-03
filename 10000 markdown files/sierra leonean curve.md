@@ -80,3 +80,11 @@ Pennyworth only makes people here
 Perhaps it myself said
 : Explain yourself some children there ought.
 
+
+## Wikilinks load test
+
+[[north vietnamese republic of belarus]]
+[[foot-shaped millrun]]
+[[slangy bottlenose dolphin]]
+[[nightly letter of intent]]
+[[unrighteous grotesquerie]]

@@ -81,3 +81,10 @@ quite follow it down into it
 Go on that make the
 : Consider your eye but you what did with its great fear they should frighten them were animals that had
 
+
+## Wikilinks load test
+
+[[disproportional euonymous alatus]]
+[[guttural jewelled headdress]]
+[[outgoing typhlopidae]]
+[[waterproof platystemon]]

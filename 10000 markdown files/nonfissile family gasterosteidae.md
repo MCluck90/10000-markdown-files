@@ -83,3 +83,7 @@ Herald read in less
 a pun.
 : Will you hold of interrupting it puffed away besides all wash the sage as herself Why what you balanced
 
+
+## Wikilinks load test
+
+[[moneran peppercorn rent]]

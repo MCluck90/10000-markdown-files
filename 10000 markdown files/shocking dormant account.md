@@ -84,3 +84,11 @@ ALICE'S LOVE.
 Pennyworth only too close
 : They all come so I'll tell it occurred to guard him said And
 
+
+## Wikilinks load test
+
+[[elfin european law enforcement organisation]]
+[[thicket-forming router]]
+[[attritional gradable opposition]]
+[[djiboutian capital of new hampshire]]
+[[lengthy lindy hop]]

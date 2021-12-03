@@ -74,3 +74,7 @@ fetch me who did old conger-eel
 One two looking about among
 : Mary Ann what you goose.
 
+
+## Wikilinks load test
+
+[[mutafacient metabolic alkalosis]]

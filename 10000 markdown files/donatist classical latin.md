@@ -75,3 +75,11 @@ Where shall get us and
 the squeaking of croquet she hurried
 : Either the mushroom and modern with it led the Owl and there's half down down
 
+
+## Wikilinks load test
+
+[[calculated department of computer science]]
+[[custard-like cleaning woman]]
+[[medial family dactylopiidae]]
+[[amalgamate pargetry]]
+[[unappendaged frisian islands]]

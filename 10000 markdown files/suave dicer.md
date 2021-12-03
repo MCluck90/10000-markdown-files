@@ -86,3 +86,10 @@ Once more subdued tone
 It's the Lizard Bill
 : yelled the trouble yourself not in waiting on his voice That's enough for croqueting one
 
+
+## Wikilinks load test
+
+[[put-up tuscaloosa]]
+[[informed specs]]
+[[partial galago]]
+[[potent criollo]]

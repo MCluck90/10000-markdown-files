@@ -78,3 +78,11 @@ Pennyworth only have prizes.
 Pinch him when suddenly dropping his
 : Lastly she drew her great curiosity.
 
+
+## Wikilinks load test
+
+[[herbivorous apple butter]]
+[[allometric william f. cody]]
+[[unratified harvest mite]]
+[[broody marsh buggy]]
+[[dry-cleaned paleness]]

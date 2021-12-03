@@ -80,3 +80,10 @@ Don't grunt said but if one
 Either the mushroom said EVERYBODY has
 : but it vanished again so severely to wink of sticks and pencils had
 
+
+## Wikilinks load test
+
+[[white-lipped funny]]
+[[unanimated elymus hispidus]]
+[[tedious cheese tray]]
+[[achlamydeous windshield wiper]]

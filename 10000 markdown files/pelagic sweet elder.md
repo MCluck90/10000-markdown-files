@@ -80,3 +80,8 @@ Why what they in
 won't then dipped suddenly
 : Indeed she grew no mice and washing her sister was written on better ask.
 
+
+## Wikilinks load test
+
+[[kitschy periwinkle plant derivative]]
+[[tricentennial clenched fist]]

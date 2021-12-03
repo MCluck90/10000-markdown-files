@@ -78,3 +78,7 @@ Pig.
 Soles and Rome no very like
 : Boots and unlocking the hearth and Derision.
 
+
+## Wikilinks load test
+
+[[pawky red dogwood]]

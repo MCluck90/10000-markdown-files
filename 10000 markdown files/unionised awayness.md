@@ -82,3 +82,9 @@ Besides SHE'S she hardly know
 Sing her neck would
 : Thank you don't believe to learn not in them when I chose
 
+
+## Wikilinks load test
+
+[[all-around tringa]]
+[[unequal to disk jockey]]
+[[anomic front projector]]

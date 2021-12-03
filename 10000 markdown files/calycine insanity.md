@@ -88,3 +88,7 @@ William and barley-sugar and
 Would not choosing to
 : And so awfully clever.
 
+
+## Wikilinks load test
+
+[[primaeval korean war]]

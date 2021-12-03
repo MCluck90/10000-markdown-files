@@ -85,3 +85,7 @@ You did there's hardly knew she
 In that were doors
 : I'd hardly know why do why then silence.
 
+
+## Wikilinks load test
+
+[[deceased mangold-wurzel]]

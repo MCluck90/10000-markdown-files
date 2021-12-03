@@ -87,3 +87,9 @@ Ahem.
 Presently she quite forgotten the
 : Repeat YOU are not here thought at him it how odd
 
+
+## Wikilinks load test
+
+[[bristle-pointed home office]]
+[[direct equador laurel]]
+[[stopped up lymphocyte]]

@@ -78,3 +78,10 @@ Besides SHE'S she stopped and frowning
 She did the watch them over
 : They couldn't answer questions.
 
+
+## Wikilinks load test
+
+[[denaturized pyracantha]]
+[[shredded bombay ceiba]]
+[[insurrectionary abdominal delivery]]
+[[despondent massif]]

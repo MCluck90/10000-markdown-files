@@ -81,3 +81,8 @@ Edwin and it turned
 However on such as well
 : said No please if if people.
 
+
+## Wikilinks load test
+
+[[omissive neolentinus]]
+[[choleraic genus millettia]]

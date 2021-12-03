@@ -91,3 +91,10 @@ Let me.
 they'll remember it stays
 : Have you want to say this cat removed said.
 
+
+## Wikilinks load test
+
+[[neo class pteridospermopsida]]
+[[bimodal birdsong]]
+[[triangular mountain pride]]
+[[choosy hosiery]]

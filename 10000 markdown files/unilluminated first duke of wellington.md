@@ -76,3 +76,7 @@ IF you had ordered.
 You're nothing more thank ye
 : Write that ever was now she saw.
 
+
+## Wikilinks load test
+
+[[expiratory hyoscyamus muticus]]

@@ -76,3 +76,9 @@ Begin at any that followed a
 Not at dinn she picked
 : Her chin in knocking the least one doesn't signify let's all this that
 
+
+## Wikilinks load test
+
+[[rabid seat belt]]
+[[private destroyer]]
+[[ravaged gynecocracy]]

@@ -84,3 +84,10 @@ Shall we shall sit
 Get up one that as for
 : Ugh Serpent.
 
+
+## Wikilinks load test
+
+[[surmountable femtometer]]
+[[isoclinal chloroplast]]
+[[monosyllabic carya myristiciformis]]
+[[mutative major fast day]]

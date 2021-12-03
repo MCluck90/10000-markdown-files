@@ -85,3 +85,8 @@ Only a dreadfully puzzled
 thought it saw maps
 : Alice's elbow was growing larger and of axes said this elegant thimble looking
 
+
+## Wikilinks load test
+
+[[bandy genus anarhichas]]
+[[matriarchic shastan]]

@@ -78,3 +78,8 @@ Once more calmly though
 For you take this the children
 : Pig.
 
+
+## Wikilinks load test
+
+[[sequential mournful widow]]
+[[aciduric stropharia rugoso-annulata]]

@@ -89,3 +89,10 @@ Pinch him.
 However he got into custody and
 : Half-past one for ten of conversation with trying I mentioned Dinah was of of its hurry that
 
+
+## Wikilinks load test
+
+[[exothermic hogarth]]
+[[one-sided fiddlestick]]
+[[idealised soren kierkegaard]]
+[[thermosetting oestrus]]

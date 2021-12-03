@@ -84,3 +84,9 @@ Some of pretending to about
 WHAT.
 : Sing her hedgehog a consultation about lessons.
 
+
+## Wikilinks load test
+
+[[semantic bokmal]]
+[[godlike chemical diabetes]]
+[[pituitary technophile]]

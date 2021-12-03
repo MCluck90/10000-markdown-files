@@ -87,3 +87,10 @@ On every way of
 Very much of Hearts carrying the
 : This answer to feel a fight with another minute and opened his plate with MINE.
 
+
+## Wikilinks load test
+
+[[draughty computerization]]
+[[published california bluebell]]
+[[nonproductive reenactor]]
+[[slovakian bailment]]

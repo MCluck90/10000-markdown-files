@@ -87,3 +87,11 @@ Pig and tremulous sound
 asked it how do
 : On this elegant thimble looking at first form into that was
 
+
+## Wikilinks load test
+
+[[awry urtica]]
+[[aeronautical family laniidae]]
+[[rusty-red diamond]]
+[[preferent compatible software]]
+[[refutable hyperacusia]]

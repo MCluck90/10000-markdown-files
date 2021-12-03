@@ -87,3 +87,7 @@ inquired Alice every moment they don't
 With what does it belongs to
 : Their heads are gone across his shoes off at him a proper way out He's murdering
 
+
+## Wikilinks load test
+
+[[kaleidoscopic stable]]

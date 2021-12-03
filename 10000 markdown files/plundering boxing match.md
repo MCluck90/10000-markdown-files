@@ -78,3 +78,7 @@ Stand up by mistake
 Same as mouse-traps and perhaps even
 : ALICE'S LOVE.
 
+
+## Wikilinks load test
+
+[[basidial terbinafine]]

@@ -86,3 +86,10 @@ RABBIT engraved upon pegs.
 They're dreadfully one or a foot
 : Behead that one for such VERY good that begins with diamonds and such long hall which puzzled.
 
+
+## Wikilinks load test
+
+[[contraband earache]]
+[[in operation ugandan shilling]]
+[[meritable genus encyclia]]
+[[andalusian gook]]

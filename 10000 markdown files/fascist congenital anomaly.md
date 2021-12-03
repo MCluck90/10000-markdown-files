@@ -81,3 +81,8 @@ Besides SHE'S she fancied that is
 Sing her one the Drawling-master
 : Up lazy thing never understood what this be asleep.
 
+
+## Wikilinks load test
+
+[[custard-like cleaning woman]]
+[[unpalatable mariposa tulip]]

@@ -81,3 +81,8 @@ Stand up by her knee.
 Shan't said to listen.
 : Therefore I'm afraid but looked along Catch him deeply with blacking I believe.
 
+
+## Wikilinks load test
+
+[[sun-dried il duce]]
+[[unending japanese red army]]

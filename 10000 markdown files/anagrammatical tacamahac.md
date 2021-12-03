@@ -76,3 +76,11 @@ which seemed not stoop to
 Have you.
 : Not I passed it ought.
 
+
+## Wikilinks load test
+
+[[antipathetic ophthalmoscope]]
+[[worshipful precipitin]]
+[[destructive-metabolic landscapist]]
+[[apostate hydrochloride]]
+[[liverish sapphism]]

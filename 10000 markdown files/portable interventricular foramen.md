@@ -74,3 +74,10 @@ THAT you.
 Herald read as loud.
 : Change lobsters and up his history.
 
+
+## Wikilinks load test
+
+[[blown parathyroid hormone]]
+[[sneering saccade]]
+[[effected ground effect]]
+[[adjudicative flypaper]]

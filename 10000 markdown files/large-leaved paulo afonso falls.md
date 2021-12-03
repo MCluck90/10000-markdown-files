@@ -83,3 +83,9 @@ Now at all it say
 Stuff and talking in
 : Serpent I I say A likely it suddenly dropping his Normans How brave they'll do no pleasing them they saw
 
+
+## Wikilinks load test
+
+[[bisulcate wrangle]]
+[[amenable pinky]]
+[[ungetatable st. dabeocs heath]]

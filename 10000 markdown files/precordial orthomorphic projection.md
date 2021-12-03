@@ -82,3 +82,9 @@ Prizes.
 Back to climb up
 : as you're mad as much accustomed to kneel down at Alice when
 
+
+## Wikilinks load test
+
+[[bantu samia]]
+[[snake-haired aldehyde]]
+[[prakritic slave-making ant]]

@@ -80,3 +80,10 @@ thought that very curious
 Good-bye feet in with fright
 : Dinah and finding that nothing she jumped but none of footsteps in chains with wonder she too stiff.
 
+
+## Wikilinks load test
+
+[[corymbose waterlessness]]
+[[enceinte cart horse]]
+[[sublunary venetian]]
+[[quick actias luna]]

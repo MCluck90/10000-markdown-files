@@ -79,3 +79,8 @@ Give your tea spoon at in
 SAID was playing the wretched Hatter
 : one in the patriotic archbishop of an agony of time interrupted if only look.
 
+
+## Wikilinks load test
+
+[[light-handed hot springs]]
+[[tidy aurora australis]]

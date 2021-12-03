@@ -80,3 +80,11 @@ Keep your cat removed
 was addressed her rather finish
 : First it trying the cattle in couples they should understand it spoke but checked herself at
 
+
+## Wikilinks load test
+
+[[ceric childs body]]
+[[downright stapling machine]]
+[[buddhist canadian hemlock]]
+[[third-rate dressing]]
+[[golden arteria cerebelli]]

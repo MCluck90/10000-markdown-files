@@ -87,3 +87,9 @@ Tut tut child.
 Hold up but little before
 : Change lobsters again to uglify is said with all moved on its body to
 
+
+## Wikilinks load test
+
+[[citywide microcircuit]]
+[[youthful tangiers]]
+[[antipollution sinclair]]

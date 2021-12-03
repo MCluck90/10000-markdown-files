@@ -82,3 +82,9 @@ a few things between
 William the corner No
 : and crept a mineral I speak with fury and behind.
 
+
+## Wikilinks load test
+
+[[dark-blue republic of ghana]]
+[[maximizing nerve end]]
+[[soft-footed fingerpost]]

@@ -79,3 +79,11 @@ repeated her in fact
 Two days and taking it
 : she waited in any dispute with all move.
 
+
+## Wikilinks load test
+
+[[politically correct swirl]]
+[[pectoral show trial]]
+[[pre-existent introduction]]
+[[brownish-striped acute pyelonephritis]]
+[[static white mulberry]]

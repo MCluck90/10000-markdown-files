@@ -76,3 +76,8 @@ Bill's got a hint
 they both sat silent.
 : Who am older than you can EVEN finish his slate.
 
+
+## Wikilinks load test
+
+[[flowing mansard]]
+[[shopsoiled ticket booth]]

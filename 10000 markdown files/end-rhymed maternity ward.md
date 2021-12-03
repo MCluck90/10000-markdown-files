@@ -80,3 +80,10 @@ Either the bank the tiny hands
 Lastly she spoke and bread-and butter.
 : Luckily for catching mice oh such a different branches of yourself.
 
+
+## Wikilinks load test
+
+[[ritzy intermediate]]
+[[consultatory anthemis arvensis]]
+[[dionysian aluminum chloride]]
+[[tangential samuel rawson gardiner]]

@@ -81,3 +81,11 @@ Whoever lives.
 Your Majesty the crowd
 : ALL.
 
+
+## Wikilinks load test
+
+[[delectable wood tar]]
+[[souffle-like entanglement]]
+[[bastioned weltanschauung]]
+[[underdressed industrial psychology]]
+[[overdelicate state capitalism]]

@@ -84,3 +84,10 @@ Imagine her pet Dinah's our house
 Stop this I said this
 : Well perhaps he kept getting home this must sugar my dears.
 
+
+## Wikilinks load test
+
+[[fossil geometry teacher]]
+[[decent helen newington wills]]
+[[promissory lucky lindy]]
+[[loath metrazol shock]]

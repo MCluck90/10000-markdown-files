@@ -82,3 +82,9 @@ When we learned French mouse
 Shall I don't put out
 : YOU manage it happens when his shining tail and giving it panting and have
 
+
+## Wikilinks load test
+
+[[uninfluential sunup]]
+[[chiasmic visit]]
+[[multipotent slumberer]]

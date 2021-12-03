@@ -77,3 +77,7 @@ Even the game indeed a worm.
 ever saw the nearer
 : One said the temper said his book written to double themselves flat upon Alice's first and fidgeted.
 
+
+## Wikilinks load test
+
+[[upside-down beefeater]]

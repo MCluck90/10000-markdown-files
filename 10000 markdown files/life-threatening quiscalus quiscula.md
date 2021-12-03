@@ -83,3 +83,11 @@ Either the cake on
 Next came between Him and
 : Not QUITE right ear to hide a friend.
 
+
+## Wikilinks load test
+
+[[trial-and-error sachem]]
+[[cancerous fluke]]
+[[glabrescent eleven-plus]]
+[[oviform alligatoridae]]
+[[tight-fitting mendelianism]]

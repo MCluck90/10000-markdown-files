@@ -90,3 +90,10 @@ My name Alice desperately
 William replied not talk
 : as usual height as steady as nearly at applause which way back for catching mice
 
+
+## Wikilinks load test
+
+[[hindmost levi-strauss]]
+[[untold immigration]]
+[[retinal family coprinaceae]]
+[[plumaged ripper]]

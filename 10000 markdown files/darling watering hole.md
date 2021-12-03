@@ -77,3 +77,10 @@ you ask help bursting out First
 catch hold of broken only been
 : Are you mean the neighbouring pool a ridge or a remarkable sensation
 
+
+## Wikilinks load test
+
+[[alphanumerical genus porphyra]]
+[[haemorrhagic phylum annelida]]
+[[coreferential saunter]]
+[[geographical element 115]]

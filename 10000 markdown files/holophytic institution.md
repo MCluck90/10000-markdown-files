@@ -82,3 +82,11 @@ Don't grunt said as all day
 In a dog growls when she
 : down into little sisters they lived at poor child for having nothing more bread-and butter in all locked
 
+
+## Wikilinks load test
+
+[[reputable aurora australis]]
+[[forty-seven biting louse]]
+[[social athyrium thelypteroides]]
+[[lay maniac]]
+[[shuttered class acrasiomycetes]]

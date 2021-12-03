@@ -81,3 +81,11 @@ Very much frightened that said this
 Tis the prizes.
 : Silence.
 
+
+## Wikilinks load test
+
+[[affine erythrina indica]]
+[[gold objective lens]]
+[[comme il faut admission day]]
+[[honeycombed fosbury flop]]
+[[buggy light bread]]

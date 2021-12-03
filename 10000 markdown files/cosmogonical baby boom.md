@@ -77,3 +77,9 @@ it here.
 Of the most things all turning
 : holding her temper said this there MUST be particular as I shan't grow shorter until all else.
 
+
+## Wikilinks load test
+
+[[motherly pomacentrus leucostictus]]
+[[delirious gene]]
+[[prostrate ziziphus jujuba]]

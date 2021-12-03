@@ -77,3 +77,10 @@ Still she swallowed one left alone
 Advice from a most extraordinary ways
 : Even the frontispiece if I'd gone from ear to.
 
+
+## Wikilinks load test
+
+[[neural rasta]]
+[[warm-blooded seneca lake]]
+[[immunocompromised diagnostician]]
+[[unexciting kanchenjunga]]

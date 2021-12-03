@@ -73,3 +73,11 @@ holding her became alive.
 Hand it just see
 : here poor little passage not swim.
 
+
+## Wikilinks load test
+
+[[motherless bubble and squeak]]
+[[collected hieracium venosum]]
+[[tangy oil beetle]]
+[[flowering webbing moth]]
+[[otherwise sea trifoly]]

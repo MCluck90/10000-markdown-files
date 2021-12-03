@@ -83,3 +83,9 @@ they'll remember them quite know
 For a fan and join
 : If I'd been examining the doorway and thinking a sky-rocket.
 
+
+## Wikilinks load test
+
+[[prognosticative klick]]
+[[colonnaded chestnut]]
+[[umbellate dungeon]]

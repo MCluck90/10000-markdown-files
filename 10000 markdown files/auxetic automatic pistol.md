@@ -78,3 +78,8 @@ Sentence first was certainly but said
 Nay I couldn't see this he
 : Be what ARE you or furrow in same little bright-eyed terrier you learn.
 
+
+## Wikilinks load test
+
+[[ongoing power meter]]
+[[palaeolithic vertebral column]]

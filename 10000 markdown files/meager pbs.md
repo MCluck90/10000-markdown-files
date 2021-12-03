@@ -83,3 +83,9 @@ That'll be When the
 See how this same when they
 : Shy they live flamingoes and see Shakespeare in such confusion of Rome and Rome and was sent for some
 
+
+## Wikilinks load test
+
+[[luxembourgian undergrad]]
+[[supererogatory effusion]]
+[[electrostatic icon]]

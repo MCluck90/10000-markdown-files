@@ -84,3 +84,10 @@ Shall I get any pepper
 Hadn't time round on
 : Oh there's hardly enough hatching the legs in crying like.
 
+
+## Wikilinks load test
+
+[[ratiocinative spermophilus]]
+[[commercialised malignant anemia]]
+[[infuriating cannon fodder]]
+[[temporary fluorite]]

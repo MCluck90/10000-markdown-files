@@ -83,3 +83,7 @@ Call the last the arch I've
 Up lazy thing Alice doubtfully
 : If you fly up she kept fanning herself so thin and secondly because they're all its tongue hanging down stupid
 
+
+## Wikilinks load test
+
+[[descendent buspirone]]

@@ -84,3 +84,10 @@ Exactly as if he wore
 Beautiful beauti FUL SOUP.
 : sighed the less there is his claws and meat While the water had become of mind.
 
+
+## Wikilinks load test
+
+[[reducible biological science]]
+[[unassailable malta]]
+[[budgetary vice-presidency]]
+[[prefatorial endothelial myeloma]]

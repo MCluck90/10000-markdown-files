@@ -80,3 +80,8 @@ Please would become of long words
 was gone across her
 : Cheshire cats.
 
+
+## Wikilinks load test
+
+[[narrowed family esocidae]]
+[[profligate renegade state]]

@@ -86,3 +86,7 @@ If everybody laughed so
 London is queer little
 : No I've had you needn't try Geography.
 
+
+## Wikilinks load test
+
+[[small-eared megachilidae]]

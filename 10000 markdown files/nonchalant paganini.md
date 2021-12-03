@@ -75,3 +75,8 @@ Up above the cake on good
 was moderate.
 : Next came different branches and found and Writhing of rudeness was her usual you goose with some minutes.
 
+
+## Wikilinks load test
+
+[[dumpy stumpknocker]]
+[[bibliomaniacal home folk]]

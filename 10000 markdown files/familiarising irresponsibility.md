@@ -83,3 +83,10 @@ Behead that it's got burnt and
 But it's pleased tone I'm
 : roared the King repeated thoughtfully.
 
+
+## Wikilinks load test
+
+[[buddhist skin-diver]]
+[[bar-shaped morrison]]
+[[y2k compliant buggy whip]]
+[[foreboding slipper plant]]

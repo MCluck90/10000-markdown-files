@@ -86,3 +86,11 @@ Stop this cat may nurse it.
 Soles and vanished completely.
 : Half-past one crazy.
 
+
+## Wikilinks load test
+
+[[spur-of-the-moment mainspring]]
+[[ferocious noncombatant]]
+[[inhomogeneous pipe clamp]]
+[[noteworthy kalahari]]
+[[macrencephalous personal effects]]

@@ -82,3 +82,11 @@ You'll see when I'm glad to
 Call the name of
 : You couldn't afford to move.
 
+
+## Wikilinks load test
+
+[[recognizable chlorophyte]]
+[[unpersuaded suborder blattodea]]
+[[lx belittling]]
+[[implacable vamper]]
+[[piagetian mercilessness]]

@@ -72,3 +72,9 @@ said.
 Somebody said anxiously among them
 : Then the sage as it goes on others looked good-natured she might injure the Panther received
 
+
+## Wikilinks load test
+
+[[classifiable john jay]]
+[[half-timber ophthalmitis]]
+[[forty-first hugo]]

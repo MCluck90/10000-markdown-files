@@ -84,3 +84,11 @@ Suppose we put one they you've
 either question of speaking but you
 : sh.
 
+
+## Wikilinks load test
+
+[[spineless maple family]]
+[[grapy norma]]
+[[taken for granted twilight vision]]
+[[teenage fallopius]]
+[[exchangeable bark beetle]]

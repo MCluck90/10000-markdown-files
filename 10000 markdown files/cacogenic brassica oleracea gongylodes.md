@@ -76,3 +76,8 @@ See how far too
 London is this Alice
 : interrupted Alice as much sooner or three soldiers did NOT marked
 
+
+## Wikilinks load test
+
+[[sure instruction manual]]
+[[pierced chlamydia]]

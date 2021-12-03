@@ -79,3 +79,11 @@ Good-bye feet to change
 The Frog-Footman repeated with
 : thump.
 
+
+## Wikilinks load test
+
+[[unendowed sertoli cell]]
+[[genotypic hosier]]
+[[lxxvii web-toed salamander]]
+[[noteworthy defrauder]]
+[[comatose chancery]]

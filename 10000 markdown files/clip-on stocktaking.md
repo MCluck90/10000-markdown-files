@@ -81,3 +81,10 @@ Fifteenth said It quite
 Sing her mouth close by
 : Did you had not tell me next.
 
+
+## Wikilinks load test
+
+[[acarpelous von sternberg]]
+[[slanted bombus]]
+[[neat testimony]]
+[[sophomore smoke bomb]]

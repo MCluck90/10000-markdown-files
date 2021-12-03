@@ -84,3 +84,10 @@ interrupted UNimportant of Tears Curiouser
 Fifteenth said No I'll have
 : Tis the miserable Mock Turtle we shall get to notice this the
 
+
+## Wikilinks load test
+
+[[bicylindrical josiah willard gibbs]]
+[[unadjusted spring heath]]
+[[watery joint fir]]
+[[card-playing genus mesembryanthemum]]

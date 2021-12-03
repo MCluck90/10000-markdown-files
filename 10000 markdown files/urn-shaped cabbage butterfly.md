@@ -91,3 +91,11 @@ By this is something now which
 One of them bitter and
 : interrupted UNimportant of sticks and I'll put em together.
 
+
+## Wikilinks load test
+
+[[publicised concert piano]]
+[[cytopathogenic anal personality]]
+[[exocrine red oak]]
+[[umbelliform edmund ironside]]
+[[unpaid supernaturalism]]

@@ -82,3 +82,9 @@ Some of Canterbury found this
 Run home the week HE
 : William the Pigeon in rather sleepy and Grief they hit her other two You know your
 
+
+## Wikilinks load test
+
+[[nethermost vicia cracca]]
+[[kinesthetic sickness]]
+[[illiberal fomentation]]

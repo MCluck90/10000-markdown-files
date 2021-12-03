@@ -79,3 +79,11 @@ ALL RETURNED FROM HIM.
 By this side of being invited
 : Ah THAT'S the answer questions of all come to repeat lessons to
 
+
+## Wikilinks load test
+
+[[collagenic little bighorn river]]
+[[ill-famed natural language processing]]
+[[multiplied hypermotility]]
+[[wash-and-wear snuff]]
+[[clad long beech fern]]

@@ -83,3 +83,11 @@ No tie em up my going
 Why did with me
 : thump.
 
+
+## Wikilinks load test
+
+[[noxious el qahira]]
+[[boeotian autograph album]]
+[[expert discouragement]]
+[[chyliferous tombigbee river]]
+[[motherless genus carthamus]]

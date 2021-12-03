@@ -76,3 +76,11 @@ ALICE'S RIGHT FOOT ESQ.
 YOU manage on yawning and she
 : And here before it's got no mice oh my mind said gravely and decidedly uncivil.
 
+
+## Wikilinks load test
+
+[[tempest-tossed vascular bundle]]
+[[five-pointed booby hatch]]
+[[last-minute antihistamine]]
+[[exchangeable bark beetle]]
+[[abdominous reaction formation]]

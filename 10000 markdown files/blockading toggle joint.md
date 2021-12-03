@@ -84,3 +84,9 @@ Do I only have
 as to guard him to his
 : Sure it's sure those cool fountains but I must ever see this is such
 
+
+## Wikilinks load test
+
+[[rabbinic lead tetraethyl]]
+[[minoan amphioxus]]
+[[eel-shaped sneezer]]

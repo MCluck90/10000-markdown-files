@@ -84,3 +84,8 @@ Shan't said And he SAID
 wow.
 : persisted.
 
+
+## Wikilinks load test
+
+[[laborsaving visual modality]]
+[[extrusive purgation]]

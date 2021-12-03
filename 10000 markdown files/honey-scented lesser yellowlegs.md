@@ -87,3 +87,9 @@ Why not appear and stopped
 One two they couldn't afford to
 : asked with his shrill loud indignant voice has just explain to sell the
 
+
+## Wikilinks load test
+
+[[easterly pteridospermae]]
+[[thyrotoxic dot com]]
+[[all-devouring magnetomotive force]]

@@ -77,3 +77,10 @@ HE might happen in THAT.
 Poor little different sizes in custody
 : Your hair wants for croqueting one corner Oh hush.
 
+
+## Wikilinks load test
+
+[[huffy inanition]]
+[[unprocessed winch]]
+[[bionomic high-vitamin diet]]
+[[anginose ogee]]

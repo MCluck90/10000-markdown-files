@@ -77,3 +77,8 @@ either question added turning
 These words and people
 : Here Bill had meanwhile been would said tossing his Normans How
 
+
+## Wikilinks load test
+
+[[chaotic rhabdomancer]]
+[[mediocre micruroides]]

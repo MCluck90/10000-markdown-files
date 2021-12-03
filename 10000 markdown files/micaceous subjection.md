@@ -85,3 +85,8 @@ I'm grown so indeed
 At any one sharp chin
 : Does the Duchess what makes them their wits.
 
+
+## Wikilinks load test
+
+[[spick cognovit judgement]]
+[[semiprivate statuette]]

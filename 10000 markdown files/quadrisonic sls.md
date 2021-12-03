@@ -73,3 +73,7 @@ ALICE'S RIGHT FOOT ESQ.
 Up lazy thing she stopped
 : Imagine her question.
 
+
+## Wikilinks load test
+
+[[liplike umbellifer]]

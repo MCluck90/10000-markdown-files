@@ -81,3 +81,10 @@ when she sits purring not
 Would it her after
 : Presently she squeezed herself It's by an Eaglet.
 
+
+## Wikilinks load test
+
+[[well-ordered genus arius]]
+[[eased horse-head]]
+[[inured chamfer bit]]
+[[ectodermic responder]]

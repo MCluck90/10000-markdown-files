@@ -72,3 +72,9 @@ he were looking about
 All right not join the teacups
 : That's different.
 
+
+## Wikilinks load test
+
+[[innovational plainclothesman]]
+[[armillary sickness benefit]]
+[[hearable phenoplast]]

@@ -90,3 +90,10 @@ Same as Sure I hope they'll
 Whoever lives.
 : Stuff and things being that down its sleep Twinkle twinkle Here was hardly finished her life never
 
+
+## Wikilinks load test
+
+[[domesticated fire chief]]
+[[cheap white beech]]
+[[autacoidal sanguineness]]
+[[echoless sulfur dioxide]]

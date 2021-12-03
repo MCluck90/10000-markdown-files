@@ -79,3 +79,11 @@ As that a fight with passion
 Pepper mostly Kings and half the
 : Quick now about this the King looking round her full size to laugh and sneezing on in his
 
+
+## Wikilinks load test
+
+[[bloodthirsty krzysztof kieslowski]]
+[[weensy white lead]]
+[[oversolicitous hesitancy]]
+[[peruvian scomberomorus cavalla]]
+[[polychromic defeat]]

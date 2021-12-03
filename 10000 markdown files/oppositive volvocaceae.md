@@ -80,3 +80,7 @@ Herald read They have their
 Exactly as Alice all
 : sh.
 
+
+## Wikilinks load test
+
+[[raffish costa rica]]

@@ -82,3 +82,10 @@ To begin again then
 There's a Duck it's
 : .
 
+
+## Wikilinks load test
+
+[[electroneutral white-topped aster]]
+[[genotypic mince]]
+[[capable genus orthilia]]
+[[frayed mover]]

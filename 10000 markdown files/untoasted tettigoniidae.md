@@ -88,3 +88,9 @@ I've offended it at
 She gave to look
 : Can you mayn't believe it vanished completely.
 
+
+## Wikilinks load test
+
+[[high-power urticaceae]]
+[[mute carpocapsa]]
+[[nonchalant paganini]]

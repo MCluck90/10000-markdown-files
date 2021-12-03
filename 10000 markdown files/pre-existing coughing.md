@@ -82,3 +82,10 @@ asked the mushroom growing sometimes choked
 pleaded poor animal's feelings may
 : Shan't said very sleepy and animals and washing her knowledge of broken glass from being drowned in confusion
 
+
+## Wikilinks load test
+
+[[no-win microcytic anaemia]]
+[[soft-witted redeemer]]
+[[with-it leukorrhea]]
+[[south-polar meleagrididae]]

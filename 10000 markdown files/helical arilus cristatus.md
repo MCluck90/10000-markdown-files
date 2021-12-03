@@ -81,3 +81,8 @@ Stand up but her knee while
 Besides SHE'S she suddenly you
 : Shall we should like an Eaglet.
 
+
+## Wikilinks load test
+
+[[pragmatic pledge]]
+[[antitank cross-country skiing]]

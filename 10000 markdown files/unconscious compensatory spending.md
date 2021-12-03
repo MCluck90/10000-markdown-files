@@ -84,3 +84,8 @@ When I'M not attended
 William the oldest rule you
 : Have some fun.
 
+
+## Wikilinks load test
+
+[[unlocked white-tailed sea eagle]]
+[[pharisaical postgraduate]]

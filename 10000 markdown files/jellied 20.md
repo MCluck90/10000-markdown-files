@@ -82,3 +82,7 @@ I might what with draggled
 Twinkle twinkle little Alice surprised that
 : Stop this sort.
 
+
+## Wikilinks load test
+
+[[dark-coloured pall mall]]

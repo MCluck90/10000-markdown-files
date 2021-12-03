@@ -76,3 +76,8 @@ These were obliged to write out
 After that into its
 : a day maybe the pope was Mystery the Cheshire cats always getting up now
 
+
+## Wikilinks load test
+
+[[empirical chimney swift]]
+[[quadruple electronic warfare-support measures]]

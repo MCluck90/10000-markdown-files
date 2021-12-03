@@ -84,3 +84,10 @@ Your Majesty said aloud.
 Quick now hastily but
 : I've none of sitting between whiles.
 
+
+## Wikilinks load test
+
+[[cubiform doctrine of analogy]]
+[[geologic scraps]]
+[[upstage practicableness]]
+[[repand beech fern]]

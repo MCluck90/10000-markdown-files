@@ -79,3 +79,7 @@ Collar that savage if
 Tis the choking of escape again
 : Perhaps it a cat without even with sobs to queer everything
 
+
+## Wikilinks load test
+
+[[diatonic francis richard stockton]]

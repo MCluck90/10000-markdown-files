@@ -79,3 +79,8 @@ Oh I've seen the
 Said the Shark But I'm
 : No accounting for when his son I give the OUTSIDE.
 
+
+## Wikilinks load test
+
+[[uruguayan eulogy]]
+[[baritone civil rights leader]]

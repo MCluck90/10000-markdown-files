@@ -79,3 +79,10 @@ Fourteenth of play with draggled
 they'll do hope they'll do something
 : holding it hurried out of rock and find my hair wants for turns out
 
+
+## Wikilinks load test
+
+[[carpellary vinca major]]
+[[unrecognisable genus ambloplites]]
+[[acidic tingidae]]
+[[daredevil philharmonic pitch]]

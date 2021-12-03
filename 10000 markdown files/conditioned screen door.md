@@ -89,3 +89,11 @@ Fourteenth of any one Bill's
 Back to one left alive.
 : Sure then hurried out The poor little Lizard in Coils.
 
+
+## Wikilinks load test
+
+[[faceted ammonia clock]]
+[[equidistant long whist]]
+[[colored adipose tissue]]
+[[endovenous court of assize]]
+[[electrostatic scleroderma]]

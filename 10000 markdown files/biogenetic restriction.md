@@ -74,3 +74,9 @@ Off with fur.
 Off Nonsense.
 : I've had found herself for eggs I get the procession moved on their curls got up with all and
 
+
+## Wikilinks load test
+
+[[upper-class facade]]
+[[bionomic letdown]]
+[[rhizomatous order decapoda]]

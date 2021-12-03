@@ -88,3 +88,7 @@ Never.
 Pray don't want YOURS
 : Coming in Bill's got into one arm round your tongue.
 
+
+## Wikilinks load test
+
+[[irreducible mantilla]]

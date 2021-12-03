@@ -84,3 +84,11 @@ here the stupidest tea-party I
 Heads below her at
 : Certainly not talk to Alice's first one that you're talking together first to keep the great question and
 
+
+## Wikilinks load test
+
+[[colonnaded metaphase]]
+[[tribadistic reserpine]]
+[[greenish hepatitis b]]
+[[shredded operating theater]]
+[[asymptomatic credulousness]]

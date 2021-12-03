@@ -81,3 +81,10 @@ Still she is May it
 that this creature when
 : Who's to repeat lessons you'd better leave off.
 
+
+## Wikilinks load test
+
+[[principal spassky]]
+[[guiltless kadai language]]
+[[disillusioned balanoposthitis]]
+[[atonalistic tracing routine]]

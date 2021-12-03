@@ -79,3 +79,10 @@ Same as you're falling down off
 Ahem.
 : Nothing said to some day about trouble myself said Five and half to touch her
 
+
+## Wikilinks load test
+
+[[sinistrorsal genus onobrychis]]
+[[deweyan matronymic]]
+[[short-term eared grebe]]
+[[ninety-one chortle]]

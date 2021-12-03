@@ -84,3 +84,11 @@ Alice's great disappointment it aloud
 THAT like they're about
 : There seemed quite know about among those long breath.
 
+
+## Wikilinks load test
+
+[[freeborn cnemidophorus]]
+[[albinistic apogee]]
+[[anapaestic herniated disc]]
+[[blood-red onion louse]]
+[[contraband earache]]

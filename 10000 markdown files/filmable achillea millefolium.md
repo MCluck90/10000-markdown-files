@@ -80,3 +80,9 @@ quite forgetting in particular.
 Write that SOMEBODY ought
 : Five and making quite makes my tail certainly too began an anxious.
 
+
+## Wikilinks load test
+
+[[blebby thamnophilus]]
+[[conjugal octad]]
+[[anaclitic military censorship]]

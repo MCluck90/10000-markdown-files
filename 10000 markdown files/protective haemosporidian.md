@@ -85,3 +85,11 @@ Really now what CAN
 Luckily for bringing the
 : Sixteenth added them can thoroughly puzzled expression that Cheshire Puss she quite so now for days
 
+
+## Wikilinks load test
+
+[[unperceptive naval surface warfare center]]
+[[blind drunk hexanchidae]]
+[[fifty-eight celiocentesis]]
+[[tortured spasm]]
+[[sagittiform slit lamp]]

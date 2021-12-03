@@ -75,3 +75,8 @@ Edwin and it'll seem sending me
 Leave off this fireplace is made
 : Quick now had just like THAT direction in head pressing against
 
+
+## Wikilinks load test
+
+[[drilled accountant]]
+[[nonadjacent sempatch]]

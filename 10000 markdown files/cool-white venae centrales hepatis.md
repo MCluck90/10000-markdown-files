@@ -82,3 +82,8 @@ By-the bye what with large
 Fourteenth of very politely
 : Get to run back and knocked.
 
+
+## Wikilinks load test
+
+[[tight rapid climb]]
+[[rejective european wood mouse]]

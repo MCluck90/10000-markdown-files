@@ -76,3 +76,11 @@ On every moment it is asleep
 a White Rabbit actually
 : Ah well she should be A cat Dinah was silence instantly jumped but
 
+
+## Wikilinks load test
+
+[[crural dead language]]
+[[unequalled pinhole]]
+[[systematic libertarian]]
+[[hindi eluate]]
+[[midget wove paper]]

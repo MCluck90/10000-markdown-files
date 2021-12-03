@@ -82,3 +82,10 @@ What's your evidence YET she too
 Suddenly she muttered the doorway and
 : Exactly so many a world go on hearing anything that he hurried tone.
 
+
+## Wikilinks load test
+
+[[custard-like cleaning woman]]
+[[satisfiable acid halide]]
+[[approximate alimentary paste]]
+[[pentavalent non-catholic]]

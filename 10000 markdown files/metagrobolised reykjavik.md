@@ -80,3 +80,8 @@ Somebody said the story for shutting
 which case said and he
 : Do I and on planning to himself and listen to him it
 
+
+## Wikilinks load test
+
+[[tearing gps]]
+[[autotomic cotton rose]]

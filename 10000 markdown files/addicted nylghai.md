@@ -76,3 +76,7 @@ Are their faces in
 It'll be of broken
 : wow.
 
+
+## Wikilinks load test
+
+[[naked-muzzled genus onopordum]]

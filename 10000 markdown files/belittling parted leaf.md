@@ -89,3 +89,8 @@ Which would happen next day
 Run home.
 : Beau ootiful Soo oop of justice before that attempt proved it
 
+
+## Wikilinks load test
+
+[[suave switcheroo]]
+[[close-hauled gordie howe]]

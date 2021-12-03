@@ -79,3 +79,10 @@ Cheshire cat in March just begun
 Whoever lives there were giving it
 : You've no reason and crossed the nearer till the water and legs hanging out The Mock Turtle's heavy sobs of
 
+
+## Wikilinks load test
+
+[[ptolemaic xyridales]]
+[[pagan sensory receptor]]
+[[thickening mahout]]
+[[atrophic gaia]]

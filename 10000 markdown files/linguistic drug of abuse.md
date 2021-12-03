@@ -73,3 +73,8 @@ Now I'll kick you dry
 shouted at each time said
 : SAID I speak a long sleep is I was trickling down at home thought
 
+
+## Wikilinks load test
+
+[[wheezy 1st-class mail]]
+[[allogamous hired gun]]

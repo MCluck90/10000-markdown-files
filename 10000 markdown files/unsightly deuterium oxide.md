@@ -78,3 +78,7 @@ Prizes.
 Certainly not got any that
 : won't talk.
 
+
+## Wikilinks load test
+
+[[honeycombed fosbury flop]]

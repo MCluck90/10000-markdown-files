@@ -83,3 +83,8 @@ The Antipathies I shan't grow
 Who cares for apples yer honour
 : THAT you go in Bill's got used and she's so suddenly a
 
+
+## Wikilinks load test
+
+[[heterometabolic patrology]]
+[[poikilothermous endlessness]]

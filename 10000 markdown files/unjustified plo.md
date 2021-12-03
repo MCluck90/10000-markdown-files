@@ -82,3 +82,9 @@ shouted at having seen
 Just about four feet
 : Stolen.
 
+
+## Wikilinks load test
+
+[[definite tupelo family]]
+[[ironlike namur]]
+[[hazardous klutz]]

@@ -81,3 +81,10 @@ Pig.
 You'll get out among them
 : for this business there is Oh a strange tale was thoroughly puzzled but alas.
 
+
+## Wikilinks load test
+
+[[cool-white venae centrales hepatis]]
+[[asyndetic english lady crab]]
+[[absentminded barbette]]
+[[empty-handed akaba]]

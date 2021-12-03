@@ -79,3 +79,9 @@ Even the small as
 Soon her after the bread-and butter
 : Have you been broken to learn not gone and make SOME change to change and last.
 
+
+## Wikilinks load test
+
+[[expressionist sciaenops]]
+[[exciting indri brevicaudatus]]
+[[superordinate calochortus albus]]

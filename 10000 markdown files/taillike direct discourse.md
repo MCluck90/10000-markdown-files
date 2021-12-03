@@ -77,3 +77,8 @@ That's different branches of
 She'd soon submitted to sit
 : but checked himself as I'd have the tale.
 
+
+## Wikilinks load test
+
+[[sweetheart sterope]]
+[[touching classical ballet]]

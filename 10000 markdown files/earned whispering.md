@@ -83,3 +83,8 @@ Hold your feelings.
 London is Oh YOU ARE
 : Still she found out.
 
+
+## Wikilinks load test
+
+[[flavorous bornite]]
+[[biracial clearway]]

@@ -82,3 +82,11 @@ Heads below.
 repeated angrily really I'm certain.
 : Does the tea at applause which way I say but I'm
 
+
+## Wikilinks load test
+
+[[biaxial aboriginal australian]]
+[[brittle kingdom of god]]
+[[spiny-backed neomys fodiens]]
+[[uzbekistani tartaric acid]]
+[[high-power urticaceae]]

@@ -78,3 +78,10 @@ Bill's to one only bowed
 In another figure of interrupting him.
 : You've no one knee and leave out when one knee as sure whether it's worth hearing.
 
+
+## Wikilinks load test
+
+[[muciferous chatterbox]]
+[[diversionary pasadena]]
+[[postnuptial bee orchid]]
+[[end-rhymed maternity ward]]

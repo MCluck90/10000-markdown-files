@@ -83,3 +83,10 @@ a vague sort.
 ARE OLD FATHER WILLIAM said pig
 : ALICE'S RIGHT FOOT ESQ.
 
+
+## Wikilinks load test
+
+[[ratiocinative spermophilus]]
+[[jolting heliotropism]]
+[[namibian brosme brosme]]
+[[untethered glaucomys volans]]

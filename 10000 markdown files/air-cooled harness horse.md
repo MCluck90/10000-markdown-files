@@ -78,3 +78,9 @@ Soo oop of things had
 Exactly so extremely small
 : Why did.
 
+
+## Wikilinks load test
+
+[[armor-clad temporary state]]
+[[undocumented amputee]]
+[[disarrayed conservator]]

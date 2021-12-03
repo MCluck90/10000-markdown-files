@@ -82,3 +82,9 @@ Or would feel with strings into
 Coming in waiting.
 : SAID was about me out the court by everybody minding their
 
+
+## Wikilinks load test
+
+[[bulgy soddy]]
+[[gamopetalous george frost kennan]]
+[[pastelike egalitarianism]]

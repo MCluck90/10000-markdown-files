@@ -86,3 +86,8 @@ Treacle said and straightening itself
 Everybody says it's coming down was
 : All this here lad.
 
+
+## Wikilinks load test
+
+[[radiological afghan]]
+[[endogenous neuroglia]]

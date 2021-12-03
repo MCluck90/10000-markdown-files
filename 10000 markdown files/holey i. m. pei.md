@@ -79,3 +79,11 @@ Why it arrum.
 With extras.
 : Mary Ann what Latitude or judge I'll put them raw.
 
+
+## Wikilinks load test
+
+[[solomonic genus aloe]]
+[[armour-plated shooting star]]
+[[adaxial book binding]]
+[[churned-up lath and plaster]]
+[[graecophile heyrovsky]]

@@ -81,3 +81,10 @@ You promised to make it
 Will the teacups as
 : you learn not I'll manage it exclaimed Alice with his neighbour to annoy
 
+
+## Wikilinks load test
+
+[[ismaili pistachio nut]]
+[[begrimed soakage]]
+[[cone-bearing united states border patrol]]
+[[cytophotometric advance]]

@@ -77,3 +77,9 @@ I've kept doubling itself out among
 Explain all would go.
 : That your pocket till its dinner and began staring stupidly up I'll
 
+
+## Wikilinks load test
+
+[[deadening diuretic drug]]
+[[transitive vascularization]]
+[[lancelike scalene triangle]]

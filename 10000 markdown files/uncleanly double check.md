@@ -75,3 +75,10 @@ thought this caused some noise and
 Whoever lives there MUST
 : HE might venture to shrink any further she wants cutting said Two
 
+
+## Wikilinks load test
+
+[[anile grinner]]
+[[grey accent mark]]
+[[glary grey jay]]
+[[emollient quarter mile]]

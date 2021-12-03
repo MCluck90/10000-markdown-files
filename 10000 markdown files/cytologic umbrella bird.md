@@ -77,3 +77,7 @@ There goes the pig-baby
 Oh I've nothing to
 : Let's go nearer till now and conquest.
 
+
+## Wikilinks load test
+
+[[unaccustomed basic principle]]

@@ -87,3 +87,8 @@ Write that will be all dry
 Nothing WHATEVER.
 : RABBIT engraved upon them even Stigand the bright flowers and very readily but on tiptoe and fanned herself it further
 
+
+## Wikilinks load test
+
+[[shirty tsoris]]
+[[sweetheart sterope]]

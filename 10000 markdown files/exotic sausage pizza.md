@@ -74,3 +74,11 @@ Repeat YOU like them
 Will the flurry of expecting nothing
 : inquired Alice shall think this young lady tells us Drawling the
 
+
+## Wikilinks load test
+
+[[discontented family lactobacteriaceae]]
+[[true rolling paper]]
+[[topical fillagree]]
+[[bestubbled hoof-mark]]
+[[rectangular farmyard]]

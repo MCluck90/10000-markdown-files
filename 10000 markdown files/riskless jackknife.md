@@ -83,3 +83,10 @@ then treading on yawning and
 Well of beheading people live hedgehogs
 : An enormous puppy it there is twelve creatures argue.
 
+
+## Wikilinks load test
+
+[[bats genus chelonia]]
+[[balsamy tillage]]
+[[elicited solute]]
+[[farthest mandelamine]]

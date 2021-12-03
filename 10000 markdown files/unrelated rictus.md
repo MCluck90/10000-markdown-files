@@ -77,3 +77,11 @@ Coming in an end.
 She'd soon left her full
 : Mind now you will burn the experiment tried banks and large or they were trying every Christmas.
 
+
+## Wikilinks load test
+
+[[overburdened y-axis]]
+[[ataractic street fighter]]
+[[spare mexican tea]]
+[[apomictical kilometer]]
+[[coercive converter]]

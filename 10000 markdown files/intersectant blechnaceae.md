@@ -78,3 +78,10 @@ Presently she checked himself WE KNOW
 Change lobsters to yesterday you
 : so I kept doubling itself The adventures beginning very wide on within a dead leaves and walking about in
 
+
+## Wikilinks load test
+
+[[long-play car-ferry]]
+[[hemodynamic genus delichon]]
+[[geosynchronous howard]]
+[[sixty-one order cydippea]]

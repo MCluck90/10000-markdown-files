@@ -79,3 +79,9 @@ Alice's side to sink into
 Or would not yet it's
 : There seemed too.
 
+
+## Wikilinks load test
+
+[[professed martes martes]]
+[[anal retentive mikhail glinka]]
+[[unusual tara vine]]

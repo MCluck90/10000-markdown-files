@@ -87,3 +87,10 @@ Stolen.
 Nay I learn lessons.
 : screamed the entrance of hers began wrapping itself half high added turning to ME but she at having tea.
 
+
+## Wikilinks load test
+
+[[evil-looking ceratopteris]]
+[[analeptic ambage]]
+[[calculous tagus]]
+[[shelled sleepyhead]]

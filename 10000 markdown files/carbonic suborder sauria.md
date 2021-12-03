@@ -79,3 +79,8 @@ interrupted.
 or you'll understand that
 : won't.
 
+
+## Wikilinks load test
+
+[[adverse empty words]]
+[[tracked stylishness]]

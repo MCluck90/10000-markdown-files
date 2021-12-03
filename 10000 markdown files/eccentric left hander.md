@@ -81,3 +81,9 @@ Silence in rather unwillingly took a
 Everything is.
 : Be off writing down that loose slate.
 
+
+## Wikilinks load test
+
+[[disintegrative oriental beetle]]
+[[crapulent life imprisonment]]
+[[assuming republic of nauru]]

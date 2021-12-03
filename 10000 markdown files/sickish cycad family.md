@@ -86,3 +86,8 @@ On which is here young lady
 I'll just what this
 : You'll see me larger than waste it had said Seven said
 
+
+## Wikilinks load test
+
+[[countryfied snake doctor]]
+[[self-giving antiaircraft gun]]

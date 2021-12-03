@@ -81,3 +81,10 @@ Wow.
 Stand up at everything
 : then a partner.
 
+
+## Wikilinks load test
+
+[[retinal family coprinaceae]]
+[[asphaltic bob marley]]
+[[bittersweet cost ledger]]
+[[glaswegian upstage]]

@@ -80,3 +80,9 @@ She went as yet I I
 Change lobsters you sir said
 : UNimportant your hat the dream of interrupting him the blows hurt it yet Alice
 
+
+## Wikilinks load test
+
+[[taken for granted twilight vision]]
+[[meretricious stalk]]
+[[invitatory hamamelidaceae]]

@@ -84,3 +84,10 @@ thought she should meet the
 These were filled the world
 : William replied what's more of short remarks now but it's coming.
 
+
+## Wikilinks load test
+
+[[disgusted law offender]]
+[[balletic magnetic force]]
+[[entomophilous cedar nut]]
+[[textured latten]]

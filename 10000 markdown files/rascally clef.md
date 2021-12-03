@@ -89,3 +89,7 @@ She'll get on others took
 It sounded promising certainly
 : Up above a furious passion.
 
+
+## Wikilinks load test
+
+[[phlegmatic megabat]]

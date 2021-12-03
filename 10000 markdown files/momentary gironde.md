@@ -79,3 +79,9 @@ An invitation for protection.
 Back to itself in large one
 : Beau ootiful Soo oop.
 
+
+## Wikilinks load test
+
+[[multifarious nougat]]
+[[liplike umbellifer]]
+[[noncivilized occlusive]]

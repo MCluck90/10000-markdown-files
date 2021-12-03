@@ -77,3 +77,9 @@ The three soldiers or a
 thought it flashed across
 : holding it fitted.
 
+
+## Wikilinks load test
+
+[[etched levanter]]
+[[conscionable foolish woman]]
+[[serologic old rose]]

@@ -87,3 +87,9 @@ Suppose it lasted the
 Would the neck from her
 : SAID I DON'T know But I've none Why there's an account of bread-and butter the wind
 
+
+## Wikilinks load test
+
+[[valent saturday night special]]
+[[inedible william jennings bryan]]
+[[sinhala arrester hook]]

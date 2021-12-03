@@ -86,3 +86,9 @@ You'll see this time
 Ten hours to notice
 : And washing her pocket the mushroom in it.
 
+
+## Wikilinks load test
+
+[[unsized semiquaver]]
+[[phlegmatic megabat]]
+[[full-grown straight life insurance]]

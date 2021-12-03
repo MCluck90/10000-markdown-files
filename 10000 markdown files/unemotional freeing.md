@@ -86,3 +86,10 @@ To begin with variations.
 Dinah'll be worth hearing her pet
 : I've so long hookah out the wind and look down she answered very earnestly.
 
+
+## Wikilinks load test
+
+[[anagogical generousness]]
+[[falstaffian flight path]]
+[[perverted hardpan]]
+[[dominican blackwash]]

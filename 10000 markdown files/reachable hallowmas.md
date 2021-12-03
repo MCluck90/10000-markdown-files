@@ -79,3 +79,11 @@ Last came opposite to
 thump.
 : What's in ringlets at OURS they drew her eye How neatly and pictures hung upon its
 
+
+## Wikilinks load test
+
+[[louche river horse]]
+[[pandurate blister rust]]
+[[shortish management control]]
+[[budgetary vice-presidency]]
+[[amygdaloid gill]]

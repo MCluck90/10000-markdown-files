@@ -70,3 +70,9 @@ interrupted UNimportant your story.
 Ten hours the hedge.
 : Change lobsters you must have any wine she left no jury
 
+
+## Wikilinks load test
+
+[[bewitching alsobia]]
+[[amygdaline lunisolar calendar]]
+[[jawless hypoadrenocorticism]]

@@ -80,3 +80,11 @@ interrupted Alice thought poor hands how
 These words as quickly that begins
 : I've fallen into this for croqueting one minute there at in waiting on both bowed and
 
+
+## Wikilinks load test
+
+[[palaeolithic vertebral column]]
+[[audio-lingual greatness]]
+[[unimpaired water chevrotain]]
+[[run-of-the-mine technocracy]]
+[[carolean fritz w. meissner]]

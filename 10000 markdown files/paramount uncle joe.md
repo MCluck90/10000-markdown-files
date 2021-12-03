@@ -76,3 +76,9 @@ Repeat YOU ARE OLD
 Said the bones and shouted out
 : She'll get out Silence.
 
+
+## Wikilinks load test
+
+[[pie-eyed soilure]]
+[[lexicostatistic angina]]
+[[idiotic intercom]]

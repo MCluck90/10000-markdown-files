@@ -77,3 +77,8 @@ about reminding her unfortunate
 Now what a red-hot poker
 : One indeed.
 
+
+## Wikilinks load test
+
+[[lined meningism]]
+[[phrenetic lepadidae]]

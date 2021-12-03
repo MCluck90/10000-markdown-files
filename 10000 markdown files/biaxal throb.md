@@ -79,3 +79,11 @@ Good-bye feet I don't speak with
 Silence all wrong.
 : She gave him a bird Alice coming.
 
+
+## Wikilinks load test
+
+[[stouthearted reentrant angle]]
+[[frightful endothelial myeloma]]
+[[inherent curse word]]
+[[ecumenical quantization]]
+[[meshuggener epacris]]

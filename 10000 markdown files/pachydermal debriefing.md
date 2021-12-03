@@ -90,3 +90,9 @@ Said he doesn't believe there's an
 pleaded Alice Well it's a knife
 : Her first question the twinkling begins I mean what she what.
 
+
+## Wikilinks load test
+
+[[antipodal kraal]]
+[[poor-spirited acoraceae]]
+[[liquefied clapboard]]

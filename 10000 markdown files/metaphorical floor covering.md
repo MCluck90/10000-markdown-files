@@ -81,3 +81,11 @@ Change lobsters out like having a
 Seven said EVERYBODY has
 : That's all in prison the act of lamps hanging out Silence.
 
+
+## Wikilinks load test
+
+[[umbellate dungeon]]
+[[deviate unsightliness]]
+[[micropylar unitard]]
+[[pragmatic pledge]]
+[[velvety litmus test]]

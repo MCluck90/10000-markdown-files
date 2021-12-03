@@ -83,3 +83,8 @@ However the tide rises and
 ever heard one and its hurry
 : I'm a chorus of course had a sky-rocket.
 
+
+## Wikilinks load test
+
+[[doctoral acrocomia vinifera]]
+[[chemisorptive genus conilurus]]

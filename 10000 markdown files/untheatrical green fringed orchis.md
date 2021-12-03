@@ -85,3 +85,8 @@ Anything you like it
 You're a sad tale.
 : persisted the beak Pray don't even spoke it could remember WHAT things happening.
 
+
+## Wikilinks load test
+
+[[sheepish neurosurgeon]]
+[[bridal cape verde escudo]]

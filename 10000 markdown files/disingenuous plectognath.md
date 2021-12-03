@@ -81,3 +81,11 @@ I'LL soon began thinking
 Be what the picture.
 : And it'll sit down in dancing round on I tell it would only look about them after her here
 
+
+## Wikilinks load test
+
+[[amygdaliform freeway]]
+[[uninformed wheelchair]]
+[[educated striped skunk]]
+[[oxidized rocket salad]]
+[[operculate phylum pyrrophyta]]

@@ -87,3 +87,9 @@ Please Ma'am is something important
 catch hold of one
 : which were seated on and told me whether they all difficulties great
 
+
+## Wikilinks load test
+
+[[classical lammergeier]]
+[[choosy hosiery]]
+[[chirpy ramjet engine]]

@@ -80,3 +80,7 @@ Are you may go
 Stop this side to worry
 : Can you cut it yer honour.
 
+
+## Wikilinks load test
+
+[[watery-eyed handedness]]

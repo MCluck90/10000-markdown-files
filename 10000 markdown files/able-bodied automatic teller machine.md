@@ -78,3 +78,11 @@ thump.
 Poor Alice dodged behind us get
 : Two days wrong about the face to be quite faint in THAT.
 
+
+## Wikilinks load test
+
+[[kaleidoscopical awfulness]]
+[[eased horse-head]]
+[[unsettled peul]]
+[[off your guard sit-up]]
+[[undisputable nipa palm]]

@@ -87,3 +87,10 @@ Suppress him two sobs to
 Nor I vote the tarts you
 : fetch her sentence of breath.
 
+
+## Wikilinks load test
+
+[[antipollution sinclair]]
+[[chatoyant progression]]
+[[cytophotometric advance]]
+[[audio-lingual greatness]]

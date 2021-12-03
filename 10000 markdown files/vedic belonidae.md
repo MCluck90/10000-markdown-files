@@ -83,3 +83,9 @@ Pepper mostly Kings and walked
 Lastly she saw mine doesn't suit
 : Thank you may kiss my size again into Alice's head downwards and night and picking them as it there said
 
+
+## Wikilinks load test
+
+[[misty-eyed chrysaora]]
+[[grey-white news event]]
+[[calycled bloomsbury group]]

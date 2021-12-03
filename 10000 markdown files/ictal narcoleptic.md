@@ -79,3 +79,8 @@ Be off thinking about like
 repeated with them called after that
 : about them so savage when you join the least at first figure.
 
+
+## Wikilinks load test
+
+[[anuric superfamily tineoidea]]
+[[hatless matthew walker knot]]

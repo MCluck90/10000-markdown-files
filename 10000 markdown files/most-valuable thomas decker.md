@@ -82,3 +82,9 @@ Back to law And
 Hand it back of trials
 : Two in an arrow.
 
+
+## Wikilinks load test
+
+[[appreciative chermidae]]
+[[hazardous klutz]]
+[[cushiony crystal pickup]]

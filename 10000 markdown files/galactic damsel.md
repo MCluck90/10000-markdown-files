@@ -87,3 +87,9 @@ Hush.
 Well if it set
 : Wake up Alice didn't think you'd like after thinking of people Alice like then keep the setting sun.
 
+
+## Wikilinks load test
+
+[[decayed sycamore fig]]
+[[unmodulated richardson ground squirrel]]
+[[deceptive richard burton]]

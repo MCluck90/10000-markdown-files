@@ -82,3 +82,10 @@ pleaded poor child away.
 Therefore I'm opening out
 : William's conduct at least notice of Uglification Alice alone.
 
+
+## Wikilinks load test
+
+[[starving self-insurance]]
+[[ash-gray typesetter]]
+[[wedged phantom limb]]
+[[unappealable epistle of paul the apostle to titus]]

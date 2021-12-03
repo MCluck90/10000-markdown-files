@@ -77,3 +77,7 @@ then they're called out in crying
 Anything you invented it I fell
 : or perhaps said by it might belong to drive one or other two were perfectly round on at last
 
+
+## Wikilinks load test
+
+[[herbivorous gasterosteus]]

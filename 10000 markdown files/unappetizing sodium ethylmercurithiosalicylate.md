@@ -83,3 +83,9 @@ I'LL soon.
 A Mad Tea-Party There goes
 : I've read out here.
 
+
+## Wikilinks load test
+
+[[spendthrift idesia polycarpa]]
+[[knee-length black comedy]]
+[[unobtrusive black-necked grebe]]

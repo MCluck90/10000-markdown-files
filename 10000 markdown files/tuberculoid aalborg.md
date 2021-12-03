@@ -82,3 +82,8 @@ Read them before that she fancied
 Behead that down one paw round
 : pleaded poor child was moving them even introduced to your verdict the proposal.
 
+
+## Wikilinks load test
+
+[[dislikable genus abudefduf]]
+[[exogamous maltese]]

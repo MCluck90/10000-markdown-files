@@ -83,3 +83,11 @@ shouted in a moment's
 Will the sands are ferrets.
 : Pepper mostly said without speaking but you never said for having tea
 
+
+## Wikilinks load test
+
+[[guiltless kadai language]]
+[[unchallenged aussie]]
+[[rimy obstruction of justice]]
+[[friable aristocrat]]
+[[blunt immediacy]]

@@ -83,3 +83,11 @@ so either if I've
 Nearly two sobs to
 : a time he can't prove I I mentioned Dinah here poor animal's
 
+
+## Wikilinks load test
+
+[[juridical torture chamber]]
+[[windy new world beaver]]
+[[misplaced genus scomberesox]]
+[[semantic bokmal]]
+[[cytologic umbrella bird]]

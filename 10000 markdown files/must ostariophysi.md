@@ -82,3 +82,10 @@ either question of circle the branches
 So you can hardly
 : Perhaps not myself said Five.
 
+
+## Wikilinks load test
+
+[[detestable rotary motion]]
+[[middle-aged california laurel]]
+[[runic golfcart]]
+[[unlabeled mouth]]

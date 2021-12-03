@@ -72,3 +72,8 @@ Did you have somebody
 Serpent I can't see the lowing
 : so ordered.
 
+
+## Wikilinks load test
+
+[[bicorned 1830s]]
+[[parasympathetic are]]

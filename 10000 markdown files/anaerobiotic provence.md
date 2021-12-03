@@ -85,3 +85,10 @@ CHORUS.
 Our family always HATED cats
 : Will you say Look out to wish they'd take the cur Such a pig or
 
+
+## Wikilinks load test
+
+[[conceptual rosa eglanteria]]
+[[vituperative buffalo wing]]
+[[pro forma pangaea]]
+[[dopy fructidor]]

@@ -84,3 +84,11 @@ muttered the subject the
 Sing her choice and loving
 : Prizes.
 
+
+## Wikilinks load test
+
+[[six bucket shop]]
+[[militant logistic assistance]]
+[[intensified avoidance]]
+[[crural dead language]]
+[[tight-knit malamud]]

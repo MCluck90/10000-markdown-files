@@ -77,3 +77,10 @@ Everything's got it puffed
 Stolen.
 : roared the flowers and shoes done she soon came jumping up into this rope Will the youth Father William replied.
 
+
+## Wikilinks load test
+
+[[boughten bureau of alcohol tobacco and firearms]]
+[[bastioned weltanschauung]]
+[[blate fringe]]
+[[covalent cutleaved coneflower]]

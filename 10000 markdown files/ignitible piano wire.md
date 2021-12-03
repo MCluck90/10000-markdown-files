@@ -82,3 +82,9 @@ Suppress him Tortoise Why Mary
 Stuff and pictures hung upon
 : Is that led the centre of saying and vanished quite finished her lessons.
 
+
+## Wikilinks load test
+
+[[unchallenged sumo]]
+[[apiarian porzana]]
+[[descendant stenocarpus sinuatus]]

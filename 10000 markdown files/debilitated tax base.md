@@ -85,3 +85,10 @@ that had such stuff
 Who in surprise that
 : Serpent.
 
+
+## Wikilinks load test
+
+[[pyroligneous pelvic inflammatory disease]]
+[[doctorial cabernet sauvignon grape]]
+[[inattentive darter]]
+[[intense henry the great]]

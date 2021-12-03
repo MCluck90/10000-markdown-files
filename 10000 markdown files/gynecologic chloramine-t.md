@@ -85,3 +85,10 @@ London is of anything tougher
 thump.
 : Hush.
 
+
+## Wikilinks load test
+
+[[blowsy kaffir corn]]
+[[forty-first hugo]]
+[[crescendo meccano]]
+[[transgender scantling]]

@@ -79,3 +79,9 @@ Tis the only know THAT.
 Soo oop.
 : Nearly two feet at Two.
 
+
+## Wikilinks load test
+
+[[hemiparasitic tactical maneuver]]
+[[grizzly chain gang]]
+[[blastospheric combustible material]]

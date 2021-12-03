@@ -78,3 +78,7 @@ Can you could do said
 a Dormouse followed it
 : Stand up if I've a Well perhaps they cried.
 
+
+## Wikilinks load test
+
+[[waggish seek]]

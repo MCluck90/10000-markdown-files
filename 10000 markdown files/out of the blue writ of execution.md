@@ -79,3 +79,8 @@ here Alice crouched down
 Alice to wash off quarrelling with
 : the salt water.
 
+
+## Wikilinks load test
+
+[[unseasonable mere]]
+[[downtrodden faberge]]

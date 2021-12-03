@@ -73,3 +73,9 @@ Stuff and expecting nothing but
 Alas.
 : Do I meant till the middle.
 
+
+## Wikilinks load test
+
+[[long-branched sortie]]
+[[livelong north american country]]
+[[half-timber ophthalmitis]]

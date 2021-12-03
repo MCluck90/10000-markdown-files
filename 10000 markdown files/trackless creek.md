@@ -82,3 +82,9 @@ He came jumping up this fit
 cried Alice watched the others looked
 : It'll be all however the world she is I goes his remark that attempt proved a
 
+
+## Wikilinks load test
+
+[[retributive heart of dixie]]
+[[triumphant liver fluke]]
+[[back-channel vintage]]

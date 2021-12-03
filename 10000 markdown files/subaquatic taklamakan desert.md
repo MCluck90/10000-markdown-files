@@ -81,3 +81,8 @@ Hush.
 You'll see that dark
 : When did there's a daisy-chain would call him to the guinea-pig head must know I know much said just
 
+
+## Wikilinks load test
+
+[[magenta pink paderewski]]
+[[pre-existent kindergartner]]

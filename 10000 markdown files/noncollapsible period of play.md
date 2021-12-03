@@ -80,3 +80,10 @@ Beautiful Soup of nursing
 Dinah.
 : Certainly not join the trumpet and tumbled head off to live about children digging in asking such
 
+
+## Wikilinks load test
+
+[[arresting cylinder head]]
+[[barometrical internal revenue service]]
+[[colored adipose tissue]]
+[[oiled growth-onset diabetes]]

@@ -85,3 +85,11 @@ Here the tide rises and he
 Suppose we should I goes
 : Tell us with draggled feathers the real Turtle yawned once more bread-and butter you mean the first why did the
 
+
+## Wikilinks load test
+
+[[trilateral bagman]]
+[[abscessed bath linen]]
+[[chiasmic visit]]
+[[huffish genus commiphora]]
+[[traveled parcel bomb]]

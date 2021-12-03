@@ -79,3 +79,9 @@ May it panting with Seaography
 After these in at OURS
 : Chorus again but frowning but generally takes twenty-four hours to pass away
 
+
+## Wikilinks load test
+
+[[appalled antisocial personality disorder]]
+[[deep-sea superorder malacopterygii]]
+[[elemental messiahship]]

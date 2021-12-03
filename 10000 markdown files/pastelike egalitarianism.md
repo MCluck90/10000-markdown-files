@@ -82,3 +82,7 @@ We must make anything more questions
 Ugh.
 : When I'M not even introduced to partners change the fun.
 
+
+## Wikilinks load test
+
+[[lengthy lindy hop]]

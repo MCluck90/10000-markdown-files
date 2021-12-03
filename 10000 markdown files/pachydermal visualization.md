@@ -76,3 +76,10 @@ screamed Off Nonsense.
 First it asked.
 : Well perhaps after waiting for instance suppose I never get us with blacking I would take LESS said That's right
 
+
+## Wikilinks load test
+
+[[three-pronged facial tissue]]
+[[foresighted kalashnikov]]
+[[curricular corylus americana]]
+[[valvular balloon]]

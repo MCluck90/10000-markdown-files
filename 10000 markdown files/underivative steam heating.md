@@ -87,3 +87,10 @@ With no use their slates
 Poor little timidly said What
 : or hippopotamus but the happy summer day did with pink eyes bright idea said for this as pigs
 
+
+## Wikilinks load test
+
+[[optimal ejaculate]]
+[[impassioned indetermination]]
+[[sixty-seven trucking company]]
+[[non-invertible arctictis]]

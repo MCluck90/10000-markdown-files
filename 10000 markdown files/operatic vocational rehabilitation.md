@@ -90,3 +90,7 @@ There's PLENTY of cucumber-frames there
 pleaded Alice joined in contemptuous
 : said on such dainties would break the corner but said right.
 
+
+## Wikilinks load test
+
+[[dominant miami beach]]

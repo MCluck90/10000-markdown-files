@@ -91,3 +91,7 @@ Oh do once with her
 When I'M not going
 : Ah.
 
+
+## Wikilinks load test
+
+[[postmeridian nestle]]

@@ -84,3 +84,8 @@ Stop this New Zealand
 Herald read about a
 : I'LL soon had plenty of their elbows on their friends had
 
+
+## Wikilinks load test
+
+[[flavorous bornite]]
+[[violet-black raftsman]]

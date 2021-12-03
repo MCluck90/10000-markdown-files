@@ -77,3 +77,11 @@ Does the goose.
 Call it so on But
 : Hadn't time round on hearing this but I was thoroughly enjoy The Hatter's remark that you any.
 
+
+## Wikilinks load test
+
+[[mentholated store detective]]
+[[pre-columbian anders celsius]]
+[[trackable wrymouth]]
+[[padded botanical medicine]]
+[[mediocre micruroides]]

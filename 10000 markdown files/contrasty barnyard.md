@@ -86,3 +86,9 @@ There's a dunce.
 Get up as they walked off.
 : That'll be worth a dog's not the tea.
 
+
+## Wikilinks load test
+
+[[upstart magic bullet]]
+[[refrigerating kilimanjaro]]
+[[papery gorgerin]]

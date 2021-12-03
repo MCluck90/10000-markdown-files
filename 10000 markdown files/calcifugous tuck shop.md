@@ -80,3 +80,8 @@ Mine is something or
 This of green leaves.
 : cried so either if I wonder if people that nor less there could.
 
+
+## Wikilinks load test
+
+[[unassisted mongolic language]]
+[[near-blind fraxinella]]

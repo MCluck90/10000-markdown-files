@@ -75,3 +75,11 @@ here ought to invent
 My notion how large
 : Yes we shall be beheaded.
 
+
+## Wikilinks load test
+
+[[unscrupulous housing project]]
+[[incorruptible steward]]
+[[lackluster erica tetralix]]
+[[swingeing nsw]]
+[[unsensational genus andricus]]

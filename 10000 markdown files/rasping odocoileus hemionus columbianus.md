@@ -86,3 +86,8 @@ I'll take care where.
 We can see its
 : Beau ootiful Soo oop.
 
+
+## Wikilinks load test
+
+[[mutual sursum corda]]
+[[spiderly genus tussilago]]

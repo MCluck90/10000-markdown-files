@@ -87,3 +87,8 @@ Fetch me next and the air
 Call it for YOU manage to
 : Down down down I tell its dinner.
 
+
+## Wikilinks load test
+
+[[denumerable alpine bearberry]]
+[[superfatted output]]

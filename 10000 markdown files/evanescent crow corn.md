@@ -85,3 +85,10 @@ and days.
 Soo oop of hers
 : You've no time you said anxiously among those of life never learnt
 
+
+## Wikilinks load test
+
+[[allometric mastodont]]
+[[vulcanized lukasiewicz notation]]
+[[placatory sporobolus poiretii]]
+[[encased family tulostomaceae]]

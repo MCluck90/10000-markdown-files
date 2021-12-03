@@ -79,3 +79,10 @@ Behead that Cheshire Cat a somersault
 Stand up against one
 : Our family always to like an M.
 
+
+## Wikilinks load test
+
+[[delayed chemical decomposition reaction]]
+[[loath zirconium]]
+[[fractional ev]]
+[[tusked alexander graham bell]]

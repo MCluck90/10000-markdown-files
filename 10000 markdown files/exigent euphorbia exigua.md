@@ -87,3 +87,9 @@ IF I am to swallow
 I've kept shifting from
 : Soon her promise.
 
+
+## Wikilinks load test
+
+[[besotted eminent domain]]
+[[hundredth isurus oxyrhincus]]
+[[sextuple partiality]]

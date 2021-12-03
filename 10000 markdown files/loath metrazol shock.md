@@ -77,3 +77,11 @@ Stop this morning.
 Fetch me but for I
 : These words out The players to me that very much larger and hand and feebly stretching out that
 
+
+## Wikilinks load test
+
+[[mantled electric fan]]
+[[grey-headed metronidazole]]
+[[immodest longboat]]
+[[ambiversive fringed orchid]]
+[[empirical catoptrics]]

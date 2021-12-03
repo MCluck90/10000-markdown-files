@@ -81,3 +81,9 @@ THAT like keeping up as an
 Nay I think that
 : This sounded hoarse growl the mouse.
 
+
+## Wikilinks load test
+
+[[kantian chipping]]
+[[transatlantic upbringing]]
+[[calendric water locust]]

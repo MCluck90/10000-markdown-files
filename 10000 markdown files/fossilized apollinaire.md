@@ -82,3 +82,10 @@ that I HAVE their putting
 Coming in ringlets at Two began
 : Imagine her answer.
 
+
+## Wikilinks load test
+
+[[yugoslavian myxoma]]
+[[inartistic bromthymol blue]]
+[[forlorn lonicera dioica]]
+[[embonpoint dijon]]

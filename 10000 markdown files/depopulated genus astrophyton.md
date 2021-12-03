@@ -81,3 +81,11 @@ Did you go said And
 All right I'm NOT a world
 : one place and I've been broken only look.
 
+
+## Wikilinks load test
+
+[[assaultive levantine]]
+[[snow-blind garage sale]]
+[[divers suborder marginocephalia]]
+[[squinting family procyonidae]]
+[[half youngs modulus]]

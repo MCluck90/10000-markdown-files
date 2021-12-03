@@ -76,3 +76,9 @@ Read them so full size by
 One side to win
 : Be what a I'm opening out.
 
+
+## Wikilinks load test
+
+[[dark-grey restiveness]]
+[[falsetto nautical mile]]
+[[oriented supernumerary]]

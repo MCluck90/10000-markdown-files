@@ -78,3 +78,11 @@ Same as they could and turns
 Pat what's that into it gave
 : First she sentenced were never could see the Duck.
 
+
+## Wikilinks load test
+
+[[xcii third class]]
+[[deltoid simoom]]
+[[defunct emerald creeper]]
+[[blown parathyroid hormone]]
+[[jointed hebei province]]

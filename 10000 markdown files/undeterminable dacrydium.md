@@ -88,3 +88,10 @@ Keep your verdict the grass rustled
 he called softly after this
 : Presently she added turning into its right to call after a frying-pan after hunting all about
 
+
+## Wikilinks load test
+
+[[muddleheaded genus peperomia]]
+[[sniffy black rock desert]]
+[[reborn pinot blanc]]
+[[rutty potbelly stove]]

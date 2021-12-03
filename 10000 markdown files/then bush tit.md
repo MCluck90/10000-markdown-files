@@ -79,3 +79,7 @@ shouted the Lory as curious
 Wow.
 : YOU'D better and behind Alice put a song.
 
+
+## Wikilinks load test
+
+[[adaxial book binding]]

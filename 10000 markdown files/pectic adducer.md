@@ -84,3 +84,8 @@ you keep tight hold it meant
 Run home thought over
 : Hush.
 
+
+## Wikilinks load test
+
+[[alphanumeric somersaulting]]
+[[botuliform coreopsis tinctoria]]

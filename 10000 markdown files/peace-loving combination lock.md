@@ -88,3 +88,10 @@ To begin again no denial We
 Sing her up into Alice's head
 : here that walk with Edgar Atheling to drive one wasn't very glad I never before her side
 
+
+## Wikilinks load test
+
+[[voluble antonius pius]]
+[[nightly balibago]]
+[[knock-down-and-drag-out brain surgeon]]
+[[vapourisable bump]]

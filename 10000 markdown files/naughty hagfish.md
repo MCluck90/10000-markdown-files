@@ -82,3 +82,7 @@ Pig.
 Consider your Majesty the
 : screamed Off Nonsense.
 
+
+## Wikilinks load test
+
+[[mingy auditory ossicle]]

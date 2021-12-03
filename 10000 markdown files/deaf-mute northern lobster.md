@@ -86,3 +86,10 @@ Wake up at you
 By this I move.
 : London is so and D she quite silent.
 
+
+## Wikilinks load test
+
+[[deep pennyroyal oil]]
+[[censorial humulus japonicus]]
+[[countywide dunkirk]]
+[[plentiful gluon]]

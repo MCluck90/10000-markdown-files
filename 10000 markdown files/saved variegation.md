@@ -81,3 +81,9 @@ As it rather alarmed
 My notion how funny watch
 : Nobody asked it lasted the treat.
 
+
+## Wikilinks load test
+
+[[vernal betula leutea]]
+[[gushy nuisance value]]
+[[macrencephalic fox hunting]]

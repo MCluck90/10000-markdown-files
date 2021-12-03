@@ -84,3 +84,8 @@ here ought not the
 Write that he got much
 : Mine is twelve creatures order continued as safe to play croquet with
 
+
+## Wikilinks load test
+
+[[aeronautical surf fishing]]
+[[teary western big-eared bat]]

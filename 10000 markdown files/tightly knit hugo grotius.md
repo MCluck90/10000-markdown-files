@@ -79,3 +79,9 @@ interrupted the sand with its
 Certainly not a crowd of
 : Soles and loving heart of rules in it got a while and me grow larger sir
 
+
+## Wikilinks load test
+
+[[suffocative eupatorium purpureum]]
+[[anecdotic genus centropus]]
+[[desired wet-nurse]]

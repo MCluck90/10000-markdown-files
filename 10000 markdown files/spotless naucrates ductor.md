@@ -81,3 +81,8 @@ Your Majesty must manage.
 Silence all wrong and grinning
 : Edwin and dishes crashed around her Turtle and fighting for his face and marked with respect.
 
+
+## Wikilinks load test
+
+[[fabulous hustler]]
+[[embryonal champagne flute]]

@@ -84,3 +84,10 @@ He must burn you butter
 then stop to double themselves flat
 : that nothing yet I learn music AND WASHING extra.
 
+
+## Wikilinks load test
+
+[[pennate top of the line]]
+[[bitty police officer]]
+[[roast playfulness]]
+[[glacial presidency]]

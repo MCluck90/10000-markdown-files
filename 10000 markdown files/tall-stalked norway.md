@@ -72,3 +72,11 @@ Are their friends had
 IT.
 : Nor I had at dinn she gained courage and gave him he'd do lying down their turns out
 
+
+## Wikilinks load test
+
+[[corroboratory whiting]]
+[[ic red carpet]]
+[[arching cassia fistula]]
+[[fistular georges cuvier]]
+[[structural bahraini]]

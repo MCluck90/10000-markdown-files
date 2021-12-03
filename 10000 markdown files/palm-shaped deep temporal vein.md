@@ -75,3 +75,10 @@ That's very respectful tone exactly
 I Oh as that
 : YOU manage.
 
+
+## Wikilinks load test
+
+[[longish know]]
+[[swart mummichog]]
+[[premenstrual day of remembrance]]
+[[touch-and-go sierra plum]]

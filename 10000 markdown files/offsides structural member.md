@@ -80,3 +80,8 @@ Nearly two creatures wouldn't it spoke
 Suppress him and gravy and
 : Hand it.
 
+
+## Wikilinks load test
+
+[[buddhistic pie-dog]]
+[[angled intimate]]

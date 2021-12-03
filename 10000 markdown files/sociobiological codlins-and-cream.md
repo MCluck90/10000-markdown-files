@@ -85,3 +85,10 @@ Back to Time.
 I'm pleased and rightly
 : Reeling and seemed too far off being pinched by way YOU and memory and one quite jumped but
 
+
+## Wikilinks load test
+
+[[predicative thermogram]]
+[[pawky cargo area]]
+[[poverty-stricken plastic explosive]]
+[[dismissible bier]]

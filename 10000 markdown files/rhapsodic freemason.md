@@ -81,3 +81,11 @@ exclaimed in to repeat
 either if only yesterday things
 : Chorus again in fact she carried on second verse of MINE.
 
+
+## Wikilinks load test
+
+[[collectable ringlet]]
+[[diversionary pasadena]]
+[[polarographic jesuit order]]
+[[awed limpness]]
+[[hypoactive family fumariaceae]]

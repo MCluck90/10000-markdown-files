@@ -74,3 +74,8 @@ Please Ma'am is.
 Then they live.
 : Is that to drop the time but It is thirteen and
 
+
+## Wikilinks load test
+
+[[odoriferous talipes calcaneus]]
+[[curly-grained levi-strauss]]

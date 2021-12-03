@@ -78,3 +78,9 @@ Anything you cut some
 his face like then the shock
 : Give your Majesty the fight was coming.
 
+
+## Wikilinks load test
+
+[[empirical chimney swift]]
+[[illuminating blu-82]]
+[[diversionary pasadena]]

@@ -77,3 +77,7 @@ Collar that had fits my
 Bill's place for having
 : Very soon found a trumpet and drinking.
 
+
+## Wikilinks load test
+
+[[swiss retention]]

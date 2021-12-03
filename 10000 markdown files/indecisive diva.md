@@ -87,3 +87,7 @@ Idiot.
 fetch me who I
 : ALICE'S LOVE.
 
+
+## Wikilinks load test
+
+[[flukey feudatory]]

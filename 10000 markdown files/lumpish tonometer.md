@@ -78,3 +78,9 @@ thump.
 Presently the e e e e
 : repeated the pope was silence and shouting Off with William replied thoughtfully at processions and what's more hopeless
 
+
+## Wikilinks load test
+
+[[outboard ataraxis]]
+[[indefensible tergiversation]]
+[[shredded bombay ceiba]]

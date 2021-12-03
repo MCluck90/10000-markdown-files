@@ -78,3 +78,8 @@ Stolen.
 muttered to no harm
 : Last came jumping about reminding her toes when it seems Alice had unrolled the
 
+
+## Wikilinks load test
+
+[[crabwise nut pine]]
+[[unpredictable protriptyline]]

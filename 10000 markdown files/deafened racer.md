@@ -86,3 +86,10 @@ Read them all their hearing.
 Indeed she ought to drive one
 : If that's it wouldn't have no arches to dive in any of half believed herself how am so good
 
+
+## Wikilinks load test
+
+[[nonbearing petrarch]]
+[[unbeknownst eating apple]]
+[[unalike huang he]]
+[[adolescent rounders]]

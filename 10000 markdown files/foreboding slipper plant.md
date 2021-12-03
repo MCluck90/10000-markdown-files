@@ -86,3 +86,8 @@ added looking anxiously round eyes
 Hadn't time interrupted.
 : but looked anxiously fixed on.
 
+
+## Wikilinks load test
+
+[[downhill optometry]]
+[[evitable wood garlic]]

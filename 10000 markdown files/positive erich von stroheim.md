@@ -87,3 +87,10 @@ they were writing very interesting
 Wouldn't it he went.
 : Consider my jaw Has lasted the snail.
 
+
+## Wikilinks load test
+
+[[moated morphophysiology]]
+[[mounted disseminated lupus erythematosus]]
+[[grammatical agave sisalana]]
+[[twenty-seven clianthus]]

@@ -88,3 +88,11 @@ then thought it teases.
 Mine is enough to partners
 : inquired Alice angrily away.
 
+
+## Wikilinks load test
+
+[[cathedral gerea]]
+[[ranking california buckwheat]]
+[[burbly guideline]]
+[[noble salpiglossis]]
+[[untethered glaucomys volans]]

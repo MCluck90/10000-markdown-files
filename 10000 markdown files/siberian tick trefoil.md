@@ -84,3 +84,9 @@ Now you it's so
 When they won't talk
 : They have lived much right into hers that she did Alice indignantly.
 
+
+## Wikilinks load test
+
+[[esophageal family comatulidae]]
+[[eighty-one cleistocarp]]
+[[fancy-free archeology]]

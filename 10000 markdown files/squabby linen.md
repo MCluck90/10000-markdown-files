@@ -84,3 +84,8 @@ about once one a-piece
 as for all think
 : Luckily for life.
 
+
+## Wikilinks load test
+
+[[unscripted amniotic sac]]
+[[custard-like cynocephalidae]]

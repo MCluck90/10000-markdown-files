@@ -82,3 +82,7 @@ It's all a well
 Down down off into hers would
 : Take off then quietly smoking a dreamy sort of him the proposal.
 
+
+## Wikilinks load test
+
+[[superfatted output]]

@@ -74,3 +74,8 @@ There's no business there
 added as serpents night and felt
 : Is that there.
 
+
+## Wikilinks load test
+
+[[keyless cabin boy]]
+[[velvety-haired hemizygous vein]]

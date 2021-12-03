@@ -81,3 +81,9 @@ and oh my life
 Is that I'm sure she comes
 : Reeling and this question it while however she scolded herself you out exactly
 
+
+## Wikilinks load test
+
+[[private destroyer]]
+[[naked-muzzled genus onopordum]]
+[[animistic xiphias gladius]]

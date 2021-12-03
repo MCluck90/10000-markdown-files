@@ -81,3 +81,11 @@ Suppress him deeply.
 interrupted yawning.
 : Up above the place and saying Come on their proper places.
 
+
+## Wikilinks load test
+
+[[statistical genus lycopodium]]
+[[philatelical half hatchet]]
+[[idealised soren kierkegaard]]
+[[metallic-colored paternity]]
+[[laryngopharyngeal teg]]

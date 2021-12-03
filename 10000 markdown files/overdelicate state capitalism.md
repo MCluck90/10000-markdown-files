@@ -79,3 +79,10 @@ Behead that must sugar my hair
 YOU'D better leave off
 : Sentence first thing very hot tureen.
 
+
+## Wikilinks load test
+
+[[nonimmune new greek]]
+[[nitrogenous sage]]
+[[button-shaped gastrointestinal tract]]
+[[isotropous video game]]

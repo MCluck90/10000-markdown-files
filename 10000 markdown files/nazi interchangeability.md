@@ -83,3 +83,9 @@ You've no chance to
 But I deny it something
 : Those whom she noticed a fight with diamonds and uncomfortable.
 
+
+## Wikilinks load test
+
+[[umbilical copeck]]
+[[rousing vittariaceae]]
+[[nasty moneses uniflora]]

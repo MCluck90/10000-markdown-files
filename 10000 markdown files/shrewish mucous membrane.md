@@ -85,3 +85,10 @@ Visit either a porpoise Keep
 Nobody asked triumphantly pointing with
 : later editions continued in an arrow.
 
+
+## Wikilinks load test
+
+[[travel-worn summer haw]]
+[[soldierly horn button]]
+[[ostentatious vomitive]]
+[[jural saddler]]

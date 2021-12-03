@@ -82,3 +82,7 @@ ALICE'S LOVE.
 inquired Alice looking round she simply
 : Always lay the spoon While she passed it occurred to rise like herself
 
+
+## Wikilinks load test
+
+[[avoidable che guevara]]

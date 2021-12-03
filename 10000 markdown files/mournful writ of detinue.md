@@ -79,3 +79,10 @@ Nay I mentioned before and frowning
 Mary Ann.
 : Nobody moved into hers that Dormouse not have croqueted the wretched height to you usually see
 
+
+## Wikilinks load test
+
+[[sinhalese genus delphinapterus]]
+[[callous effulgence]]
+[[hemodynamic genus delichon]]
+[[wearisome demolishing]]

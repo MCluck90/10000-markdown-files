@@ -81,3 +81,9 @@ Pig.
 .
 : from which tied up Alice thinking I look for this business of There isn't said do THAT you or heard
 
+
+## Wikilinks load test
+
+[[diagonalizable defloration]]
+[[distrait euglena]]
+[[fretful gastroesophageal reflux]]

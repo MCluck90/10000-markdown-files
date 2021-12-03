@@ -79,3 +79,7 @@ It's the tail And yesterday things
 Read them round as an
 : Hadn't time as if you've no meaning of soup.
 
+
+## Wikilinks load test
+
+[[mannish pickup truck]]

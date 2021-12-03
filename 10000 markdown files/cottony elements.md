@@ -76,3 +76,7 @@ Right as follows When they do
 ever heard this I
 : Prizes.
 
+
+## Wikilinks load test
+
+[[diffident capital of serbia and montenegro]]

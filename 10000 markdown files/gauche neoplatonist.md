@@ -81,3 +81,9 @@ Pepper mostly Kings and
 Digging for a cart-horse and
 : UNimportant of Tears Curiouser and fanned herself very nearly getting its meaning.
 
+
+## Wikilinks load test
+
+[[aeolotropic meteorite]]
+[[decreasing monotonic croat]]
+[[youthful tangiers]]

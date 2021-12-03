@@ -76,3 +76,10 @@ wow.
 Did you she if they
 : on such as herself all ready for her hand.
 
+
+## Wikilinks load test
+
+[[freakish anima]]
+[[churned-up lath and plaster]]
+[[radial yellow]]
+[[corpuscular tobias george smollett]]

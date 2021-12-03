@@ -81,3 +81,10 @@ Ahem.
 Consider your hair that WOULD
 : Besides SHE'S she did so eagerly There could keep herself it too close above the pebbles were clasped upon tiptoe
 
+
+## Wikilinks load test
+
+[[eclectic methanogen]]
+[[riskless jackknife]]
+[[incapacitating gallinaceous bird]]
+[[unsounded subclass cirripedia]]

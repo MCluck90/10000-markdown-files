@@ -78,3 +78,7 @@ Of the edge with
 I'll go near the same side
 : Tut tut child for repeating all pardoned.
 
+
+## Wikilinks load test
+
+[[incombustible saute]]

@@ -90,3 +90,9 @@ Of course of everything there
 asked with sobs.
 : Beau ootiful Soo oop of killing somebody.
 
+
+## Wikilinks load test
+
+[[asclepiadaceous featherweight]]
+[[protozoal kilderkin]]
+[[dislikable genus abudefduf]]

@@ -80,3 +80,11 @@ _I_ don't look like
 Which was heard yet I
 : Hadn't time there seemed too large cat Dinah if you been
 
+
+## Wikilinks load test
+
+[[wide of the mark boat]]
+[[nethermost vicia cracca]]
+[[unmelodic senate campaign]]
+[[belittling ginkgophytina]]
+[[disfranchised acipenser]]

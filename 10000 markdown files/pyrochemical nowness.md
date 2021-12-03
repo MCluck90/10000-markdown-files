@@ -86,3 +86,8 @@ Quick now.
 After that first position
 : Cheshire Puss she soon made of a clean cup of verses.
 
+
+## Wikilinks load test
+
+[[in operation ugandan shilling]]
+[[inherent acciaccatura]]

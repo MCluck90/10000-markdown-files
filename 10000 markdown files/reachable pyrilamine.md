@@ -73,3 +73,9 @@ Thinking again and must go
 Ah well she simply
 : Leave off you seen when it or three.
 
+
+## Wikilinks load test
+
+[[ferine easter cactus]]
+[[destructive-metabolic landscapist]]
+[[paneled margin of profit]]

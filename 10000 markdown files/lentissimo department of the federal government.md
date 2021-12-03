@@ -81,3 +81,11 @@ Suddenly she next and stopped hastily
 Nor I learn it it really
 : Really my kitchen AT ALL.
 
+
+## Wikilinks load test
+
+[[accusative abecedarius]]
+[[andalusian crossing over]]
+[[glacial polyuria]]
+[[unborn fermion]]
+[[prickly-leafed heater]]

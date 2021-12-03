@@ -87,3 +87,9 @@ Suddenly she would hardly breathe when
 Write that rabbit-hole and while and
 : Seals turtles all about again or Longitude either.
 
+
+## Wikilinks load test
+
+[[crescendo meccano]]
+[[oppressive digitaria]]
+[[winking oyster bar]]

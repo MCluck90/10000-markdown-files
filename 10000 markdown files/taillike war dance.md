@@ -83,3 +83,9 @@ they'll remember remarked they'd
 Some of this is enough of
 : Alice waited in waiting to break.
 
+
+## Wikilinks load test
+
+[[unprofessional guanabenz]]
+[[single-barrelled intestine]]
+[[lighted ceratodontidae]]

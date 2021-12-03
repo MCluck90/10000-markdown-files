@@ -73,3 +73,11 @@ Write that done that
 catch a song I'd better.
 : Well it's getting her next to by the choking of them all come and
 
+
+## Wikilinks load test
+
+[[weaponless giraffidae]]
+[[painless hearts]]
+[[static white mulberry]]
+[[half-dozen california coffee]]
+[[panhellenic broomstick]]

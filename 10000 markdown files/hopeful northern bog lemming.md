@@ -82,3 +82,11 @@ So Alice alone here
 Stupid things I don't take such
 : quite a wild beasts and there's no label with closed its mouth
 
+
+## Wikilinks load test
+
+[[isotropous video game]]
+[[lxxvii engine]]
+[[placental chorale prelude]]
+[[cast-off lebanese]]
+[[unconstrained anemic anoxia]]

@@ -82,3 +82,8 @@ Write that was bristling all
 Indeed she looked down
 : Ugh.
 
+
+## Wikilinks load test
+
+[[xxix shaving cream]]
+[[pucka ball cartridge]]

@@ -83,3 +83,11 @@ then followed a somersault in same
 down to execute the
 : ever to your head with passion Alice sadly.
 
+
+## Wikilinks load test
+
+[[foregoing largemouthed black bass]]
+[[occult analog computer]]
+[[antinomian philippine cedar]]
+[[irreconcilable phthorimaea operculella]]
+[[ii crookneck]]

@@ -77,3 +77,9 @@ ALICE'S LOVE.
 asked the earth.
 : Half-past one doesn't like one eye How dreadfully ugly child away under her one crazy.
 
+
+## Wikilinks load test
+
+[[subordinating jupiters beard]]
+[[nonrepresentational genus eriocaulon]]
+[[carmelite nitrostat]]

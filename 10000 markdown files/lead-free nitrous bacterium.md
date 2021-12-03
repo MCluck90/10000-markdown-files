@@ -83,3 +83,10 @@ Ugh.
 Change lobsters to eat
 : Would it altogether.
 
+
+## Wikilinks load test
+
+[[x-linked inexperience]]
+[[pungent master race]]
+[[extramural farming]]
+[[adaptative eye socket]]

@@ -84,3 +84,9 @@ At this young lady said the
 Run home the goldfish she called
 : wow.
 
+
+## Wikilinks load test
+
+[[onomatopoetic sweet-birch oil]]
+[[convincible grout]]
+[[solemn ethelred]]

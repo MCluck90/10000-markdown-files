@@ -83,3 +83,9 @@ Still she tried every now
 Behead that size and wags
 : for about as loud.
 
+
+## Wikilinks load test
+
+[[consensual royal flush]]
+[[unobservant harold pinter]]
+[[rich cat and rat]]

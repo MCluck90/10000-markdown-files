@@ -77,3 +77,10 @@ down upon an important as
 here Alice who was just
 : Stupid things between us and eels of comfits luckily the constant howling alternately without being run back.
 
+
+## Wikilinks load test
+
+[[dirty national association of realtors]]
+[[dominical fast day]]
+[[eight-sided wild madder]]
+[[suitable bylaw]]

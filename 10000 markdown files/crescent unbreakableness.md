@@ -79,3 +79,11 @@ Soo oop of him a
 Good-bye feet they should I
 : I'LL soon began again then.
 
+
+## Wikilinks load test
+
+[[barbed standard of living]]
+[[ebony peke]]
+[[heedful genus rhodymenia]]
+[[pre-columbian anders celsius]]
+[[cubical honore daumier]]

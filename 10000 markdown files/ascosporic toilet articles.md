@@ -89,3 +89,7 @@ Who in before the
 Alice's head began by
 : Please come wrong and then they live flamingoes and gravy and
 
+
+## Wikilinks load test
+
+[[in force pantomime]]

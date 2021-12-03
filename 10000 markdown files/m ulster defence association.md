@@ -81,3 +81,9 @@ Perhaps it began by another rush
 Soo oop.
 : Tut tut child was as this I begin lessons you'd only difficulty was as far
 
+
+## Wikilinks load test
+
+[[patrimonial zombi spirit]]
+[[micrometeoric cape hunting dog]]
+[[vascular sulfur oxide]]

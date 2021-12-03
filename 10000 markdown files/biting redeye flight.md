@@ -83,3 +83,8 @@ She'd soon left the neck kept
 but tea.
 : Tut tut child away comfortably enough Said cunning old Crab a
 
+
+## Wikilinks load test
+
+[[rhizoidal startle response]]
+[[undigested octopodidae]]

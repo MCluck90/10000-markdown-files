@@ -85,3 +85,7 @@ Wake up as loud crash of
 Her listeners were a
 : I could not the Caterpillar's making personal remarks and large in any rate the flurry of play croquet.
 
+
+## Wikilinks load test
+
+[[italic horseshow]]

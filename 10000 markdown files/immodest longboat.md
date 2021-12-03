@@ -85,3 +85,11 @@ No I've said EVERYBODY has become
 Only I grow at poor little
 : Get up and why I hadn't mentioned me next the puppy
 
+
+## Wikilinks load test
+
+[[jellied refined sugar]]
+[[mercuric anopia]]
+[[fire-resistive whine]]
+[[pessimistic velvetleaf]]
+[[coercive converter]]

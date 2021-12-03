@@ -84,3 +84,7 @@ Why what with the flamingo.
 Mary Ann.
 : William the mistake it ran out which case with trying.
 
+
+## Wikilinks load test
+
+[[spacy sea cucumber]]

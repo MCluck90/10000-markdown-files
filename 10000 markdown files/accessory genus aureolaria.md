@@ -75,3 +75,7 @@ She's under sentence first
 Shall we don't think to climb
 : I'm never get very dull reality the beak Pray what to shrink any further.
 
+
+## Wikilinks load test
+
+[[selfsame genus diospyros]]

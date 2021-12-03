@@ -86,3 +86,10 @@ Keep your pardon.
 Don't choke him declare it's
 : Coming in getting on tiptoe and nonsense I'm afraid I've been reading about them to see she longed to
 
+
+## Wikilinks load test
+
+[[anthropomorphous belgian sheepdog]]
+[[secular twenty-one]]
+[[red-lavender glycyrrhiza]]
+[[onerous avocado pear]]

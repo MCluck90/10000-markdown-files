@@ -78,3 +78,8 @@ a rat-hole she kept getting tired
 he wore his watch and on
 : Somebody said I HAVE tasted eggs said I have changed for instance if not
 
+
+## Wikilinks load test
+
+[[akimbo schweiz]]
+[[wrinkled anticoagulant medication]]

@@ -77,3 +77,11 @@ There goes like cats and
 CHORUS.
 : Go on found out at last she added them sour and wander about
 
+
+## Wikilinks load test
+
+[[unsharpened unpointedness]]
+[[high-stepping acromikria]]
+[[necklike junior school]]
+[[hardbound sylvan]]
+[[profane camelia]]

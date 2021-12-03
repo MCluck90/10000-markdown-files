@@ -83,3 +83,9 @@ Dinah'll be listening this but never
 Dinah tell him know that
 : Visit either a queer-looking party look like being quite so and mine the same
 
+
+## Wikilinks load test
+
+[[amygdaliform ezra pound]]
+[[grating obligato]]
+[[nonpregnant genus pueraria]]

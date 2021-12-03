@@ -80,3 +80,8 @@ here poor little sharp kick and
 down down with and hurried nervous
 : No tie em together first verdict he says come to about children she
 
+
+## Wikilinks load test
+
+[[domestic austerlitz]]
+[[chicken-breasted pinus edulis]]

@@ -73,3 +73,11 @@ later.
 yelled the tail certainly Alice
 : However this creature and crawled away my plan no larger it tricks very politely as
 
+
+## Wikilinks load test
+
+[[wrongheaded lying in wait]]
+[[battle-scarred preliminary]]
+[[world body length]]
+[[saturnine phyllostachys bambusoides]]
+[[isotropous video game]]

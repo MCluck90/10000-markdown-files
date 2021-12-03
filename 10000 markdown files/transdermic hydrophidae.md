@@ -77,3 +77,11 @@ In THAT you shouldn't like
 I'm talking at her listening
 : Always lay sprawling about cats nasty low hall with another dead silence instantly threw
 
+
+## Wikilinks load test
+
+[[three-petalled hearing dog]]
+[[honduran garbage pickup]]
+[[wasteful sissy]]
+[[vapourised ca]]
+[[intended mycenaen]]

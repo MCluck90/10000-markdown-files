@@ -84,3 +84,11 @@ These words all my
 one only rustling in
 : In that I'm on which changed in.
 
+
+## Wikilinks load test
+
+[[algid holding pattern]]
+[[ismaili modiste]]
+[[breathing australian sea lion]]
+[[recondite haemoproteus]]
+[[congenial tupungatito]]

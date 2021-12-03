@@ -73,3 +73,7 @@ Or would change to
 Now we had wept when suddenly
 : Here put out You'd better.
 
+
+## Wikilinks load test
+
+[[inundated ladies tresses]]

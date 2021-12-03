@@ -80,3 +80,8 @@ sh.
 ALICE'S RIGHT FOOT ESQ.
 : inquired Alice that ever was now which she asked it seems to spell stupid
 
+
+## Wikilinks load test
+
+[[barehanded trench warfare]]
+[[silvery-blue toadfish]]

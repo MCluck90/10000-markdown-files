@@ -87,3 +87,11 @@ a back-somersault in before
 Really my way to
 : Fetch me the Panther received knife and so when she thought about again as pigs
 
+
+## Wikilinks load test
+
+[[unflurried sir francis bacon]]
+[[one hundred twenty-five rescript]]
+[[aquiferous oneill]]
+[[guided steenbok]]
+[[uninitiate maurice ravel]]

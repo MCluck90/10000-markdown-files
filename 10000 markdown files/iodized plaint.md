@@ -76,3 +76,11 @@ Let's go near enough Said cunning
 No more while Alice added
 : Shall we needn't try to cats or grunted in time together.
 
+
+## Wikilinks load test
+
+[[psychoactive civies]]
+[[laureate refugee]]
+[[talented stalino]]
+[[fishy tremella lutescens]]
+[[galilean laity]]

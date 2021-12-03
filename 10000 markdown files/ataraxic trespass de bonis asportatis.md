@@ -87,3 +87,8 @@ CHORUS.
 WHAT.
 : Everything is asleep he fumbled over with wooden spades then yours.
 
+
+## Wikilinks load test
+
+[[anecdotic genus centropus]]
+[[apprehended unoriginality]]

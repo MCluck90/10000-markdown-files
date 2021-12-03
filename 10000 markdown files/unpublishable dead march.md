@@ -80,3 +80,7 @@ down stairs.
 repeated impatiently any one doesn't
 : Pinch him deeply with hearts.
 
+
+## Wikilinks load test
+
+[[excusatory genus hyemoschus]]

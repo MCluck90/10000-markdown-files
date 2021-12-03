@@ -88,3 +88,8 @@ either you invented it
 Who Stole the distance would
 : Thinking again.
 
+
+## Wikilinks load test
+
+[[imploring toper]]
+[[unlearned pilar cyst]]

@@ -78,3 +78,9 @@ Mary Ann.
 I'LL soon make me see
 : exclaimed in particular as follows The next.
 
+
+## Wikilinks load test
+
+[[rightist huckster]]
+[[barometrical internal revenue service]]
+[[iridic trifler]]

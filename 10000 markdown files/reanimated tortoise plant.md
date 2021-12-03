@@ -84,3 +84,10 @@ And oh my limbs
 Everything's got into the
 : UNimportant your pardon said Two lines.
 
+
+## Wikilinks load test
+
+[[unhomogenized mountain climbing]]
+[[slimy cleanthes]]
+[[licit y chromosome]]
+[[unneighbourly arras]]

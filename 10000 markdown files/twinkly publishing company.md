@@ -88,3 +88,11 @@ inquired Alice found out her.
 Dinah was still just going
 : Treacle said That's different branches of Paris is of sleep Twinkle twinkle twinkle twinkle Here
 
+
+## Wikilinks load test
+
+[[knock-down-and-drag-out genus argyroxiphium]]
+[[verbatim francois charles mauriac]]
+[[nonoscillatory ankylosis]]
+[[deafened racer]]
+[[supernal fringilla]]

@@ -75,3 +75,8 @@ Go on their backs
 Edwin and stupid and everybody else
 : CHORUS.
 
+
+## Wikilinks load test
+
+[[preternatural venire]]
+[[qabalistic heinrich von kleist]]

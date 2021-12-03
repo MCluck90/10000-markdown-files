@@ -83,3 +83,9 @@ Wake up eagerly for
 Heads below.
 : Wow.
 
+
+## Wikilinks load test
+
+[[appalled antisocial personality disorder]]
+[[unstable subjunctive]]
+[[young-bearing sodium hypochlorite]]

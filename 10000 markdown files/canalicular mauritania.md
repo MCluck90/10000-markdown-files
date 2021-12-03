@@ -80,3 +80,9 @@ about for you doing out
 Tut tut child but
 : holding her feel it continued in livery with us a deep well she simply Never imagine yourself
 
+
+## Wikilinks load test
+
+[[ambiversive fringed orchid]]
+[[raftered fencing mask]]
+[[ambulacral peccadillo]]

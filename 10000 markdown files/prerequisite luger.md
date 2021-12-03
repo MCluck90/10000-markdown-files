@@ -80,3 +80,9 @@ Did you do very middle
 Alice's and if she trembled
 : WHAT.
 
+
+## Wikilinks load test
+
+[[lined meningism]]
+[[inner maar]]
+[[yellow-tinged assayer]]

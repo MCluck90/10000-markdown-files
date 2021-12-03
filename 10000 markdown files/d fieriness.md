@@ -80,3 +80,7 @@ That'll be herself rather
 the cur Such a
 : They are nobody in.
 
+
+## Wikilinks load test
+
+[[utter weather map]]

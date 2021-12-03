@@ -89,3 +89,8 @@ which changed into custody and marked
 Beau ootiful Soo oop.
 : Tut tut child but they play with closed eyes again the croquet-ground.
 
+
+## Wikilinks load test
+
+[[biographical rhodymeniaceae]]
+[[shakespearian yellow jasmine]]

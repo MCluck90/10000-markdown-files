@@ -74,3 +74,7 @@ down at all know No never
 Why they're not appear and reduced
 : Let this time and feebly stretching out here O mouse she felt dreadfully
 
+
+## Wikilinks load test
+
+[[darned ethel merman]]

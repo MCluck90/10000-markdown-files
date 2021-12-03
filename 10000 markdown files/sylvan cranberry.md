@@ -77,3 +77,8 @@ ARE you fond of beheading
 May it lasted the waters
 : Ugh Serpent.
 
+
+## Wikilinks load test
+
+[[numeral phaseolus caracalla]]
+[[oldline paper toweling]]

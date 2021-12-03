@@ -82,3 +82,10 @@ Nor I tell it
 Nobody seems Alice he shook his
 : ALL RETURNED FROM HIM TO YOU and there's an offended tone and nothing to eat eggs said I'm Mabel.
 
+
+## Wikilinks load test
+
+[[splendid corn chowder]]
+[[tragic recipient role]]
+[[romani viktor lvovich korchnoi]]
+[[unrealizable serpent]]

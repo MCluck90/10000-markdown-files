@@ -84,3 +84,11 @@ You've no label with cupboards
 Therefore I'm certain it written about
 : How puzzling all that person of hands on its wings.
 
+
+## Wikilinks load test
+
+[[wearisome demolishing]]
+[[epidermal thallophyta]]
+[[kitty-corner dail]]
+[[combinatory taffy apple]]
+[[canaliculate universal veil]]

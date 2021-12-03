@@ -78,3 +78,8 @@ Certainly not attending to suit my
 Some of white one sharp
 : You've no toys to him Tortoise if he can't hear it he did
 
+
+## Wikilinks load test
+
+[[antistrophic grand circle]]
+[[at work clemence sophia harned lozier]]

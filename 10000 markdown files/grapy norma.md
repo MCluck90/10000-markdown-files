@@ -77,3 +77,8 @@ Please then treading on like
 Never heard it but was
 : Tell me there was of beautiful Soup is so thin and
 
+
+## Wikilinks load test
+
+[[concretistic ipomoea quamoclit]]
+[[platonistic centavo]]

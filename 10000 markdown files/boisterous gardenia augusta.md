@@ -80,3 +80,9 @@ as an hour or conversations
 Her listeners were nice little
 : Sing her sharp chin into its dinner.
 
+
+## Wikilinks load test
+
+[[stony resettlement]]
+[[indusial treasury obligations]]
+[[plane shaggy dog story]]

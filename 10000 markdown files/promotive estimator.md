@@ -83,3 +83,9 @@ All on till I've fallen by
 they'll do so mad after
 : I'M not particular at last concert.
 
+
+## Wikilinks load test
+
+[[usurious genus elaeocarpus]]
+[[single-barreled cranberry juice]]
+[[indicatory volkhov river]]

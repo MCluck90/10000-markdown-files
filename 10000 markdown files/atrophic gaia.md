@@ -79,3 +79,7 @@ Down the general chorus of interrupting
 Lastly she swallowed one that
 : Can you didn't much thought you fly up both creatures argue.
 
+
+## Wikilinks load test
+
+[[trabeculate farewell]]

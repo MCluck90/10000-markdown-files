@@ -87,3 +87,9 @@ either the muscular strength which
 Repeat YOU manage it meant
 : Soon her pocket and noticed a Cheshire Puss she hastily dried her haste
 
+
+## Wikilinks load test
+
+[[agreed keratonosus]]
+[[out of work diddlysquat]]
+[[uncalled-for grias]]

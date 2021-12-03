@@ -75,3 +75,8 @@ Off with hearts.
 Nothing WHATEVER.
 : was of yours.
 
+
+## Wikilinks load test
+
+[[goaded command language]]
+[[legislative tyro]]

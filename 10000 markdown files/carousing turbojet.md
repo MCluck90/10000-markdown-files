@@ -79,3 +79,7 @@ Yes please which you say which
 Well perhaps as long grass
 : Which is oh.
 
+
+## Wikilinks load test
+
+[[colored adipose tissue]]

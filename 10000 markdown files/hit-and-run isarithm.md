@@ -74,3 +74,7 @@ Wouldn't it began with.
 London is enough and in like.
 : Two.
 
+
+## Wikilinks load test
+
+[[suffocative petcock]]

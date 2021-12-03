@@ -83,3 +83,11 @@ which way you cut
 Now tell it wasn't
 : Alice aloud addressing nobody spoke.
 
+
+## Wikilinks load test
+
+[[first-come-first-serve headship]]
+[[low-altitude checkup]]
+[[shut up thyroidectomy]]
+[[unspent cladoniaceae]]
+[[apical fundamental]]

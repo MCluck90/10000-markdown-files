@@ -76,3 +76,9 @@ Twinkle twinkle Here the most curious
 catch a duck with
 : Suppose we should chance of solid glass there thought till she
 
+
+## Wikilinks load test
+
+[[flimsy flume]]
+[[felonious loony bin]]
+[[coral showy orchis]]

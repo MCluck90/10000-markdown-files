@@ -83,3 +83,11 @@ William's conduct at applause which
 Always lay sprawling about
 : Twinkle twinkle twinkle little worried.
 
+
+## Wikilinks load test
+
+[[unsightly deuterium oxide]]
+[[sri lankan basketball]]
+[[touch-and-go sierra plum]]
+[[upstage practicableness]]
+[[taillike direct discourse]]

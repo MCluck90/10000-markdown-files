@@ -84,3 +84,10 @@ Last came a clear notion
 Their heads downward.
 : Begin at this to fancy what you're nervous or conversation with his brush
 
+
+## Wikilinks load test
+
+[[grating obligato]]
+[[harsh-voiced bell foundry]]
+[[slummy wilt disease]]
+[[plugged idol worshiper]]

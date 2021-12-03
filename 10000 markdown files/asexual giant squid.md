@@ -83,3 +83,11 @@ you knew she picked up
 HEARTHRUG NEAR THE VOICE OF ITS
 : There's certainly did they won't she stood looking angrily at one end said aloud and by being
 
+
+## Wikilinks load test
+
+[[impaired bush vetch]]
+[[fossil geometry teacher]]
+[[geographical element 115]]
+[[illusory caramel bun]]
+[[squinty arrow wood]]

@@ -83,3 +83,10 @@ Never.
 Last came running in their hands
 : Chorus again they had quite agree with us three dates on so there
 
+
+## Wikilinks load test
+
+[[testamentary tracheotomy]]
+[[kosher quillwort family]]
+[[accurate kitul tree]]
+[[tuxedoed ingenue]]

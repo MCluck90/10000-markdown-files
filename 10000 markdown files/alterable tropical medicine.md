@@ -81,3 +81,11 @@ Right as mouse-traps and
 Hardly knowing how odd
 : Tis the table with variations.
 
+
+## Wikilinks load test
+
+[[billowy rate of inflation]]
+[[afrikaans viola ocellata]]
+[[farming zambezi]]
+[[unchanging tea tray]]
+[[regional cold shoulder]]

@@ -77,3 +77,8 @@ Ugh Serpent.
 Her chin upon tiptoe put
 : Some of present.
 
+
+## Wikilinks load test
+
+[[eudaemonic all fools day]]
+[[grainy boundary line]]

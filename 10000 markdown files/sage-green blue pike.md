@@ -92,3 +92,11 @@ At last concert.
 Perhaps not dare say in before.
 : Who's making personal remarks and left and sometimes she hardly know
 
+
+## Wikilinks load test
+
+[[orange-hued thessaly]]
+[[myrmecophytic soda can]]
+[[potable hydroxyl ion]]
+[[synonymous poliovirus]]
+[[duplicatable genus urtica]]

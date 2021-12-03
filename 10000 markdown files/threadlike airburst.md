@@ -81,3 +81,10 @@ Seven jogged my right
 Stuff and repeat lessons
 : later.
 
+
+## Wikilinks load test
+
+[[bare-ass roman type]]
+[[waste gravitational mass]]
+[[valvular martin van buren]]
+[[nectar-rich seigneur]]

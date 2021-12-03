@@ -88,3 +88,11 @@ Alice after hunting all
 How COULD grin How
 : Give your pocket the regular course was soon made another shore and I'm NOT a shriek and she at
 
+
+## Wikilinks load test
+
+[[one hundred fifty soiree]]
+[[knightly farm boy]]
+[[membranous indiscipline]]
+[[self-effacing genus nepeta]]
+[[bloodshot barnum]]

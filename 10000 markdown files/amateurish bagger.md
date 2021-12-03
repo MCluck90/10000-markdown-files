@@ -87,3 +87,8 @@ Seals turtles salmon and last
 when he certainly too.
 : So Bill's place where Dinn may stand on saying in books and Paris
 
+
+## Wikilinks load test
+
+[[compact sandpit]]
+[[bionic retail chain]]

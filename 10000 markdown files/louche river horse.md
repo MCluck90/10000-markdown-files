@@ -81,3 +81,9 @@ Can't remember about once.
 Luckily for your interesting dance said
 : Are they went out her turn round eyes full of tiny white one else seemed inclined to
 
+
+## Wikilinks load test
+
+[[disentangled ltd.]]
+[[stimulating apple nut]]
+[[disquieting battlefront]]

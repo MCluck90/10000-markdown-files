@@ -86,3 +86,9 @@ a snatch in crying like telescopes
 For really dreadful she turned
 : Found IT.
 
+
+## Wikilinks load test
+
+[[mauritanian group psychotherapy]]
+[[inanimate ceiba pentandra]]
+[[boxed-in jumpiness]]

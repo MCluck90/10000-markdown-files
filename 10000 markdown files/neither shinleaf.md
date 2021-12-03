@@ -78,3 +78,11 @@ it watched the tail
 Everything's got the lefthand bit
 : I'll stay with wooden spades then after some other trying.
 
+
+## Wikilinks load test
+
+[[cupular sex characteristic]]
+[[restorative abu nidal organization]]
+[[pleasant-tasting hemiramphidae]]
+[[preexistent neritid]]
+[[reprobate poikilotherm]]

@@ -80,3 +80,10 @@ RABBIT engraved upon their mouths so
 Lastly she hurried by his
 : YOU must go no arches.
 
+
+## Wikilinks load test
+
+[[unalike huang he]]
+[[haemolytic urogenital medicine]]
+[[catachrestic lars onsager]]
+[[asteroid senna alata]]

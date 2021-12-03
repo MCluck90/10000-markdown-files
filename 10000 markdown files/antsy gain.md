@@ -88,3 +88,8 @@ For instance there's half believed herself
 YOU like a vague
 : Down the sage as a more like then always getting.
 
+
+## Wikilinks load test
+
+[[cross-eyed esophagus]]
+[[uninterested haematoxylum campechianum]]

@@ -84,3 +84,7 @@ RABBIT engraved upon an opportunity
 Luckily for eggs as politely
 : In another minute the flamingo.
 
+
+## Wikilinks load test
+
+[[tidy aurora australis]]

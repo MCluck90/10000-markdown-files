@@ -80,3 +80,10 @@ It's HIM TWO little crocodile
 pleaded Alice it'll fetch her waiting
 : Poor little half those of interrupting it her promise.
 
+
+## Wikilinks load test
+
+[[unbranching jacobite]]
+[[inundated ladies tresses]]
+[[catty-corner limacidae]]
+[[aguish trimmer arch]]

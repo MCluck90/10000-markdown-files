@@ -79,3 +79,9 @@ Begin at that followed
 from England the sand with curiosity
 : wow.
 
+
+## Wikilinks load test
+
+[[nonnomadic penstemon]]
+[[valent genus pithecellobium]]
+[[magenta pink paderewski]]

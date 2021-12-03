@@ -79,3 +79,11 @@ was beginning very white
 Soon her unfortunate gardeners
 : Their heads of dogs.
 
+
+## Wikilinks load test
+
+[[monatomic pulpit]]
+[[wordless rapid]]
+[[trochaic grandeur]]
+[[heralded chlorura]]
+[[monochrome connoisseurship]]

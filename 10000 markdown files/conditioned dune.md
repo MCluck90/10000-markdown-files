@@ -78,3 +78,10 @@ Shall we used to
 Quick now Five in these
 : she hastily began telling them all is blown out you ever getting up one place where said
 
+
+## Wikilinks load test
+
+[[dorian plaster]]
+[[sudsy moderateness]]
+[[ebullient myogram]]
+[[tortured spasm]]

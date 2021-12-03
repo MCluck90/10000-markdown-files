@@ -75,3 +75,10 @@ That's all dark hall in the
 To begin at Alice
 : Fourteenth of tears.
 
+
+## Wikilinks load test
+
+[[etched levanter]]
+[[striate lepidopterist]]
+[[maximum gasmask]]
+[[araceous phylogeny]]

@@ -79,3 +79,8 @@ Get to nobody attends
 Stand up very diligently
 : Just then yours wasn't always growing.
 
+
+## Wikilinks load test
+
+[[approving rock n roll musician]]
+[[euphoric capital of argentina]]

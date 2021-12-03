@@ -77,3 +77,11 @@ but none Why what
 sighed deeply.
 : Alice.
 
+
+## Wikilinks load test
+
+[[thickly settled calling card]]
+[[cortico-hypothalamic genus psychotria]]
+[[must mare nostrum]]
+[[selfless lantern fly]]
+[[aminic constellation]]

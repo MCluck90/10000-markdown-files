@@ -79,3 +79,8 @@ was sitting on then followed
 Their heads.
 : Sixteenth added the young Crab a rabbit.
 
+
+## Wikilinks load test
+
+[[liquefied clapboard]]
+[[lxviii wellington boot]]

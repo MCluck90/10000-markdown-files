@@ -87,3 +87,9 @@ down it right said.
 Ahem.
 : Consider your flamingo.
 
+
+## Wikilinks load test
+
+[[aided funk]]
+[[ill-humored goncalo alves]]
+[[umbellate gayfeather]]

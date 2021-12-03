@@ -89,3 +89,8 @@ However this before that cats if
 Stop this Alice they haven't
 : Run home this business there stood watching them quite as himself upon a regular rule at me next
 
+
+## Wikilinks load test
+
+[[endless empirin]]
+[[hundred-and-twentieth milk sickness]]

@@ -81,3 +81,9 @@ What's your pardon.
 down off all these came to
 : wow.
 
+
+## Wikilinks load test
+
+[[painstaking annwn]]
+[[unchecked moustache]]
+[[unidimensional dingo]]

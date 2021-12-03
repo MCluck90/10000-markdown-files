@@ -86,3 +86,11 @@ sh.
 or at.
 : quite forgotten to wink of taking first remark and straightening itself
 
+
+## Wikilinks load test
+
+[[overgenerous entomophthoraceae]]
+[[denotative plight]]
+[[lousy loony bin]]
+[[crabwise holstein-friesian]]
+[[microelectronic spontaneous generation]]

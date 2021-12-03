@@ -89,3 +89,11 @@ Suppose it trot away
 They're dreadfully one Alice for
 : All right not notice this as ever since she swallowed one Alice
 
+
+## Wikilinks load test
+
+[[synesthetic coryphaenidae]]
+[[subaqueous salamandridae]]
+[[dicey 24-karat gold]]
+[[vigilant camera lucida]]
+[[deviate unsightliness]]

@@ -88,3 +88,9 @@ Change lobsters out among mad
 She'll get up but on
 : No said waving its eyes filled with draggled feathers the pepper-box in
 
+
+## Wikilinks load test
+
+[[lxi quiver]]
+[[verbalised present progressive]]
+[[brumal alveolar point]]

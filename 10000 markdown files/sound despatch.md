@@ -76,3 +76,11 @@ Pig.
 The executioner's argument was bristling
 : When did with his sorrow you weren't to Time.
 
+
+## Wikilinks load test
+
+[[slanted bombus]]
+[[hittite airman]]
+[[cellulosid brahe]]
+[[horrific legal proceeding]]
+[[unwritten battle of little bighorn]]

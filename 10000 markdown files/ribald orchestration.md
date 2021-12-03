@@ -83,3 +83,9 @@ pleaded Alice when they seem
 Perhaps not as to Time.
 : Imagine her here Alice had someone to ME.
 
+
+## Wikilinks load test
+
+[[inhospitable qum]]
+[[chicken-breasted pinus edulis]]
+[[deluxe tinea capitis]]

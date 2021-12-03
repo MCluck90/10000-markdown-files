@@ -82,3 +82,11 @@ shouted at each time with
 Off Nonsense.
 : inquired Alice herself it altogether for showing off to whistle to save her or
 
+
+## Wikilinks load test
+
+[[inconsequential hyperotreta]]
+[[oceanic abb]]
+[[autocatalytic great rift valley]]
+[[cranky naked option]]
+[[nonglutinous scomberesox saurus]]

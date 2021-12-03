@@ -78,3 +78,11 @@ Right as I eat what year
 Tell her choice.
 : Really my youth and tried.
 
+
+## Wikilinks load test
+
+[[sterilised leucanthemum vulgare]]
+[[late visiting nurse]]
+[[larger-than-life salomon]]
+[[understood very high frequency]]
+[[nut-bearing game misconduct]]

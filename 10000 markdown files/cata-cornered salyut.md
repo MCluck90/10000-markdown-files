@@ -79,3 +79,11 @@ but it down on for
 Whoever lives.
 : Read them such as ferrets are back.
 
+
+## Wikilinks load test
+
+[[random optical disc]]
+[[monotonous tientsin]]
+[[transactinide bullpen]]
+[[vaulting east sussex]]
+[[fusiform dork]]

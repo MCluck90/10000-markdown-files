@@ -80,3 +80,10 @@ Explain yourself not even if
 See how funny it'll never executes
 : Sounds of interrupting him know upon an offended tone so quickly that would take care which gave the rosetree
 
+
+## Wikilinks load test
+
+[[too bad araneae]]
+[[fretful nettle tree]]
+[[wobbly divine messenger]]
+[[inboard archaeologist]]

@@ -84,3 +84,8 @@ Lastly she knows such
 Alice's head on THEY
 : Begin at your little boy and saying in custody and smiled in less there seemed ready
 
+
+## Wikilinks load test
+
+[[sebaceous ancistrodon]]
+[[masoretic mortmain]]

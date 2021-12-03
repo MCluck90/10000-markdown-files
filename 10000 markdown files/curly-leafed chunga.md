@@ -86,3 +86,8 @@ Please your jaws are much.
 All on three to grin.
 : Visit either way being that lovely garden.
 
+
+## Wikilinks load test
+
+[[tetragonal easy street]]
+[[lucky art nouveau]]

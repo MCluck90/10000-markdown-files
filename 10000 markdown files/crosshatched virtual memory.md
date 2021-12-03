@@ -81,3 +81,7 @@ Wow.
 that queer little magic bottle.
 : While the sky.
 
+
+## Wikilinks load test
+
+[[strong-willed dissolver]]

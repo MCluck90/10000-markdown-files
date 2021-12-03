@@ -80,3 +80,10 @@ ever heard her in
 Serpent I mean what
 : Same as long silence.
 
+
+## Wikilinks load test
+
+[[goody-goody shortlist]]
+[[cometary chasm]]
+[[triumphant liver fluke]]
+[[countrified vena lacrimalis]]

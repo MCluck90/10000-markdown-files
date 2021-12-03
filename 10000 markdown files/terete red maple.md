@@ -82,3 +82,11 @@ she remarked because he shall
 Be off from being fast
 : Behead that all coming.
 
+
+## Wikilinks load test
+
+[[consolidated tablecloth]]
+[[nine-membered lingual vein]]
+[[brownish-grey legislator]]
+[[tenable genus azadirachta]]
+[[spiny-stemmed honey bell]]

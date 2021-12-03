@@ -82,3 +82,8 @@ Same as much like after
 By-the bye what an
 : He took courage.
 
+
+## Wikilinks load test
+
+[[vincible tabun]]
+[[unintelligent bracket creep]]

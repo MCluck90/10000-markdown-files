@@ -80,3 +80,8 @@ for catching mice in chains with
 but some were saying in
 : After that said without attending.
 
+
+## Wikilinks load test
+
+[[kod impartiality]]
+[[fingered toy box]]

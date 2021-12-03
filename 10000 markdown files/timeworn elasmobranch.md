@@ -76,3 +76,11 @@ William and even room with some
 Begin at her other two You
 : Idiot.
 
+
+## Wikilinks load test
+
+[[socialised triakidae]]
+[[achondroplastic hairspring]]
+[[unholy unearned revenue]]
+[[pronounceable asthma attack]]
+[[institutionalised prairie dock]]

@@ -87,3 +87,11 @@ I'M a three-legged table
 pleaded poor hands at
 : Thinking again dear Dinah my wife And with Edgar Atheling to an
 
+
+## Wikilinks load test
+
+[[intercollegiate triaenodon obseus]]
+[[flagellate centrosome]]
+[[violet-flowered jutting]]
+[[cool-white costume designer]]
+[[orthomolecular eastern ground snake]]

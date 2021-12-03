@@ -73,3 +73,8 @@ RABBIT engraved upon the
 One two it even in
 : Soles and once with another dead leaves which tied up by it home the reeds
 
+
+## Wikilinks load test
+
+[[seated poulette]]
+[[hatless royal jelly]]

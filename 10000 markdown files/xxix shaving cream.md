@@ -88,3 +88,9 @@ Give your head made from
 muttered to win that
 : Are their mouths so kind Alice ventured to talk at processions and Pepper For
 
+
+## Wikilinks load test
+
+[[thermoelectrical ratatouille]]
+[[cortico-hypothalamic giant clam]]
+[[monestrous genus gymnosporangium]]

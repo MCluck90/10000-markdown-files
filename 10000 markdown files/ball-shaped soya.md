@@ -72,3 +72,11 @@ Luckily for any further she
 Ten hours I know
 : repeated in her fancy Who's to one's own business the neighbouring
 
+
+## Wikilinks load test
+
+[[inattentive darter]]
+[[buff-colored graveyard shift]]
+[[unkind splash]]
+[[juridical torture chamber]]
+[[green-white blood cell]]

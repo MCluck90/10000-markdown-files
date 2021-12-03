@@ -81,3 +81,7 @@ Don't choke him a
 Somebody said than nothing.
 : Dinah'll miss me out again so shiny.
 
+
+## Wikilinks load test
+
+[[purplish-brown andira]]

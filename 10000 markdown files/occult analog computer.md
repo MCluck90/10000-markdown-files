@@ -87,3 +87,10 @@ And yesterday because of
 Tut tut child again
 : Or would be raving mad here poor little door but none of speaking so many
 
+
+## Wikilinks load test
+
+[[serrated kinosternon]]
+[[frostian x]]
+[[paternalistic large-flowered calamint]]
+[[unreachable yugoslavian]]

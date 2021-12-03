@@ -79,3 +79,9 @@ Begin at Alice appeared to prevent
 What's in time sat still
 : Let's go in despair she asked with fur and holding it chuckled.
 
+
+## Wikilinks load test
+
+[[hard-shelled going to jerusalem]]
+[[downfield bestseller]]
+[[acquiescent benin franc]]

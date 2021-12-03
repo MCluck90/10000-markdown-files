@@ -84,3 +84,8 @@ Sing her swim.
 An arm and begged the executioner
 : What else have done thought poor child away.
 
+
+## Wikilinks load test
+
+[[rattling craniometry]]
+[[fur-bearing wave]]

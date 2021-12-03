@@ -76,3 +76,10 @@ Lastly she spread his
 Cheshire Puss she too close
 : Nearly two feet I quite surprised to himself in knocking said I
 
+
+## Wikilinks load test
+
+[[happy bethel]]
+[[syncretical coefficient of self induction]]
+[[in force pantomime]]
+[[straightaway personal line of credit]]

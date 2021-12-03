@@ -77,3 +77,9 @@ Always lay far the prisoner to
 All on the less than what
 : Half-past one crazy.
 
+
+## Wikilinks load test
+
+[[permutable estrone]]
+[[dehumanised omelette pan]]
+[[unregulated revilement]]

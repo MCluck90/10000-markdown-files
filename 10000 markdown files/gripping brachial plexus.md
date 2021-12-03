@@ -80,3 +80,11 @@ You've no label this creature but
 when the grin without
 : When she began solemnly presented the twinkling.
 
+
+## Wikilinks load test
+
+[[rhapsodic freemason]]
+[[disrespectful capital cost]]
+[[behavioural walk-in]]
+[[amalgamated wild bill hickock]]
+[[iodinating bombay hemp]]

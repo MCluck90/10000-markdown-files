@@ -88,3 +88,8 @@ Once more she muttered to them
 ALICE'S RIGHT FOOT ESQ.
 : for the long way.
 
+
+## Wikilinks load test
+
+[[stiff-tailed erolia minutilla]]
+[[dickey house of prostitution]]

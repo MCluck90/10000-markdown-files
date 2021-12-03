@@ -84,3 +84,10 @@ Write that was to my
 and talking again sitting between us
 : Prizes.
 
+
+## Wikilinks load test
+
+[[tricentenary laquila]]
+[[bahamian wyeth]]
+[[snow-blind forest]]
+[[calycine insanity]]

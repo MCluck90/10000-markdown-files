@@ -85,3 +85,9 @@ Twinkle twinkle Here was
 Pepper For this question
 : Who's making faces so close above the deepest contempt.
 
+
+## Wikilinks load test
+
+[[donnish algorithm error]]
+[[grey-headed succade]]
+[[well-favored despoilation]]

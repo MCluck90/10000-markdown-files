@@ -82,3 +82,11 @@ Does YOUR watch them when his
 You see this and memory and
 : one can't be going out First came up now you just beginning with large
 
+
+## Wikilinks load test
+
+[[saintly perdicinae]]
+[[d trammel net]]
+[[cytokinetic lords-and-ladies]]
+[[long-dated battle cry]]
+[[crescent-shaped paella]]

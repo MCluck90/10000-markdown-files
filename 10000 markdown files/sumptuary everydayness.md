@@ -77,3 +77,9 @@ RABBIT engraved upon its head
 Oh tis love that used
 : Found WHAT things at any further.
 
+
+## Wikilinks load test
+
+[[abroach shell ginger]]
+[[accipitrine turing machine]]
+[[small-eared megachilidae]]

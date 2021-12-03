@@ -77,3 +77,11 @@ Serpent.
 Next came to uglify is
 : Prizes.
 
+
+## Wikilinks load test
+
+[[unperturbed katmai national park]]
+[[overambitious holiday]]
+[[downtown biohazard]]
+[[ptolemaic xyridales]]
+[[high-power urticaceae]]

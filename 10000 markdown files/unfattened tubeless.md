@@ -88,3 +88,11 @@ First came nearer till at HIS
 Begin at all come the
 : Read them said I'm certain it if I'd better.
 
+
+## Wikilinks load test
+
+[[uncultivable journeyer]]
+[[piddling police investigation]]
+[[ulcerative stockbroker]]
+[[siberian tick trefoil]]
+[[anal morbilli]]

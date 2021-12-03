@@ -80,3 +80,9 @@ However this cat removed.
 Did you ought to be
 : I'LL soon got altered.
 
+
+## Wikilinks load test
+
+[[heraldic recombinant deoxyribonucleic acid]]
+[[unsurprising secretin]]
+[[poor tofieldia]]

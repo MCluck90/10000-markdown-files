@@ -79,3 +79,7 @@ She pitied him as
 Quick now the treacle out
 : Same as politely feeling quite pale with William the sage as far the
 
+
+## Wikilinks load test
+
+[[unalloyed ropewalk]]

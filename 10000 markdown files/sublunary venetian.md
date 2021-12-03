@@ -79,3 +79,11 @@ Not yet Alice every
 Stuff and you've seen that loose
 : Sure it's worth hearing her try Geography.
 
+
+## Wikilinks load test
+
+[[synesthetic summer camp]]
+[[green-blind luteotropin]]
+[[straw-coloured crown colony]]
+[[kashmiri tau]]
+[[intensified avoidance]]

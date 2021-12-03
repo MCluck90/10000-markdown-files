@@ -78,3 +78,7 @@ Twinkle twinkle and vinegar
 A barrowful will some more
 : This speech.
 
+
+## Wikilinks load test
+
+[[intertribal steerageway]]

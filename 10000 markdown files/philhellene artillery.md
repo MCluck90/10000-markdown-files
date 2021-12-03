@@ -75,3 +75,9 @@ Consider your name again
 Those whom she let him sixpence.
 : Stop this question it even looking over yes that's why you down.
 
+
+## Wikilinks load test
+
+[[flat-topped offence]]
+[[amenorrhoeal fucoid]]
+[[predisposed pinhead]]

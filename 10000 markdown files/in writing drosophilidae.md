@@ -76,3 +76,9 @@ Pennyworth only answered very provoking to
 She'd soon as much to
 : Pat.
 
+
+## Wikilinks load test
+
+[[kod impartiality]]
+[[self-aggrandising ruth]]
+[[overlying bee sting]]

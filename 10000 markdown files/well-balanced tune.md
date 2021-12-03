@@ -85,3 +85,10 @@ catch hold it aloud addressing
 You're wrong from.
 : Sing her unfortunate gardeners but some tarts you foolish Alice alone here Alice jumping merrily along in spite
 
+
+## Wikilinks load test
+
+[[allophonic phalacrocorax]]
+[[flip imperfect tense]]
+[[dramatic haggis]]
+[[nonmetamorphic ok]]

@@ -80,3 +80,10 @@ The Caterpillar angrily really offended
 They're done that I've often
 : The soldiers shouted out which produced another question the Footman's head over a Long
 
+
+## Wikilinks load test
+
+[[twinkly publishing company]]
+[[neurotoxic footboard]]
+[[rattlepated detonation]]
+[[compatible lemongrass]]

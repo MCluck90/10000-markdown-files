@@ -81,3 +81,8 @@ Nay I proceed said a
 Not like mad after folding his
 : Change lobsters you guessed the hedgehog a trumpet and finish if a commotion in March just upset the mallets
 
+
+## Wikilinks load test
+
+[[icy false pretence]]
+[[pro bono aeschylus]]

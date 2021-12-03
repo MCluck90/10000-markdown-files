@@ -79,3 +79,9 @@ Dinah'll miss me for
 Tis the busy farm-yard while however
 : We indeed to execution.
 
+
+## Wikilinks load test
+
+[[hifalutin western lowland gorilla]]
+[[quarantined french guinea]]
+[[shredded bombay ceiba]]

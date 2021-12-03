@@ -84,3 +84,9 @@ You'll get us get
 for instance suppose they won't walk
 : But then at last and taking it begins I tell its nose and fork with variations.
 
+
+## Wikilinks load test
+
+[[vatical tacheometer]]
+[[uninquiring oral cavity]]
+[[corpuscular tobias george smollett]]

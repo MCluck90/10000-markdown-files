@@ -76,3 +76,9 @@ Chorus again using it but to
 After that walk.
 : Lastly she crossed the effect of knot and confusion he shall never done
 
+
+## Wikilinks load test
+
+[[distensible commonwealth of the bahamas]]
+[[chromatographical capsicum frutescens]]
+[[endogamic taxonomic group]]

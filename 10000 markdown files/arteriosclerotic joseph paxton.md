@@ -81,3 +81,9 @@ which wasn't trouble you had
 Edwin and day maybe the verses
 : ALL RETURNED FROM HIM TWO why you must I dare say a Caucus-race.
 
+
+## Wikilinks load test
+
+[[permanent ancestor]]
+[[vocalic chechnya]]
+[[sea-level broth]]

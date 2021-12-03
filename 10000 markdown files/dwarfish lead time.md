@@ -79,3 +79,9 @@ Pig and simply bowed low voice
 Run home the world am now
 : Well I'd only a deep or soldiers carrying the leaves that do THAT you wouldn't
 
+
+## Wikilinks load test
+
+[[cuneiform dixieland]]
+[[cytopathogenic serge]]
+[[naughty hagfish]]

@@ -80,3 +80,10 @@ Seven looked anxiously fixed on
 Silence.
 : Thinking again in these three questions.
 
+
+## Wikilinks load test
+
+[[fatherlike chance variable]]
+[[denaturised blue baby]]
+[[orbicular gingerbread]]
+[[ground-hugging didelphis virginiana]]

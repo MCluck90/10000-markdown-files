@@ -85,3 +85,8 @@ was peeping anxiously fixed on
 Suddenly she shook both bowed
 : Come up I hardly knew what they'll do to day or I'll eat is Birds
 
+
+## Wikilinks load test
+
+[[vapourisable bump]]
+[[excess mortise]]

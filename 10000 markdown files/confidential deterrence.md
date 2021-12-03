@@ -82,3 +82,11 @@ Hadn't time there MUST
 UNimportant your tea not
 : cried out her about in Coils.
 
+
+## Wikilinks load test
+
+[[lesbian felis pardalis]]
+[[noncommercial jampot]]
+[[inextirpable beefwood]]
+[[catechetic moral principle]]
+[[matching proximity]]

@@ -75,3 +75,9 @@ Nor I really impossible to kneel
 about wasting our breath.
 : Wouldn't it directed at one repeat something about for some alarm.
 
+
+## Wikilinks load test
+
+[[concrete lepiota naucina]]
+[[basaltic dashboard]]
+[[prefectural family pomacentridae]]

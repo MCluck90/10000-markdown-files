@@ -90,3 +90,8 @@ Stand up.
 YOU are said And be Mabel
 : Ahem.
 
+
+## Wikilinks load test
+
+[[guided steenbok]]
+[[disingenuous southland]]

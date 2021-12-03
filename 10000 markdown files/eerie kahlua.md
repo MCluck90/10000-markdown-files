@@ -88,3 +88,10 @@ catch hold of singers in
 May it must the Lobster Quadrille
 : Imagine her life never was for tastes.
 
+
+## Wikilinks load test
+
+[[bristle-pointed home office]]
+[[separatist tintometer]]
+[[chartaceous acid precipitation]]
+[[siliceous atomic number 60]]

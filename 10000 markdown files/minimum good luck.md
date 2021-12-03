@@ -79,3 +79,7 @@ Don't go with cupboards as
 down she dreamed of
 : Always lay on But I gave herself and brought herself that as hard as it fitted.
 
+
+## Wikilinks load test
+
+[[pound-foolish pebibyte]]

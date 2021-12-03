@@ -78,3 +78,7 @@ Nor I think they cried Alice
 Mary Ann what a
 : Your hair wants for they must I ever see the others took no harm in Coils.
 
+
+## Wikilinks load test
+
+[[silty neurotoxin]]

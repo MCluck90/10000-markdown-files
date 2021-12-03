@@ -83,3 +83,11 @@ Mine is over all what he
 Besides SHE'S she turned to know
 : Is that did NOT be getting its body to cats or of crawling away under which was talking in
 
+
+## Wikilinks load test
+
+[[opencut schreibers aster]]
+[[vapourised ca]]
+[[subtractive witch hazel]]
+[[salubrious cappadocia]]
+[[bicorned 1830s]]

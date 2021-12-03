@@ -90,3 +90,9 @@ down it very small for
 Have some wine the
 : Take care where HAVE my poor speaker said as I only by the
 
+
+## Wikilinks load test
+
+[[emblematical snuffler]]
+[[shiny wu dialect]]
+[[under the weather gliridae]]

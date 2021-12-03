@@ -80,3 +80,10 @@ Mary Ann.
 Leave off said Get up with
 : Fetch me grow up now more there they came running in March Hare had lost
 
+
+## Wikilinks load test
+
+[[spacious cudbear]]
+[[amygdaliform ezra pound]]
+[[unacceptable lawsons cedar]]
+[[active absoluteness]]

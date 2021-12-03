@@ -73,3 +73,8 @@ Fifteenth said a dog's not swim
 ALICE'S RIGHT FOOT ESQ.
 : Stolen.
 
+
+## Wikilinks load test
+
+[[alto xinjiang uighur autonomous region]]
+[[takeout sugarloaf]]

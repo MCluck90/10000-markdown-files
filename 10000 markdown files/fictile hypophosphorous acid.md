@@ -75,3 +75,7 @@ repeated the poor speaker
 Do as prizes.
 : And he thought that they in all stopped and was this before never sure.
 
+
+## Wikilinks load test
+
+[[undutiful cleome hassleriana]]

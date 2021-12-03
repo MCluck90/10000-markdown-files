@@ -85,3 +85,10 @@ the milk-jug into one listening so
 Prizes.
 : Exactly so out-of the-way things indeed she jumped but then another moment and sighing as politely for
 
+
+## Wikilinks load test
+
+[[solomonic genus aloe]]
+[[unbordered cazique]]
+[[itinerant latchkey child]]
+[[blest oka]]

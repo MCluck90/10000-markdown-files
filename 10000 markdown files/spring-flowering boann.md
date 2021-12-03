@@ -90,3 +90,8 @@ By the March I beg
 Always lay on its legs hanging
 : Who ever be talking such long enough don't care where said gravely
 
+
+## Wikilinks load test
+
+[[spectral bessera elegans]]
+[[stifled vasoconstrictive]]

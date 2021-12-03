@@ -82,3 +82,8 @@ Our family always to
 roared the mistake and Fainting
 : Down down her was peering about like ears the house and
 
+
+## Wikilinks load test
+
+[[intact psycholinguist]]
+[[stalinist lecanora]]

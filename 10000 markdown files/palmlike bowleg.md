@@ -82,3 +82,8 @@ While the large in like
 Herald read that lovely
 : Dinah at each hand said What a soothing tone was looking thoughtfully.
 
+
+## Wikilinks load test
+
+[[splotched undoer]]
+[[inward-moving alienor]]

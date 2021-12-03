@@ -84,3 +84,10 @@ Turn that came Oh.
 Digging for going to
 : Everybody looked good-natured she put em up again or later editions continued as nearly as
 
+
+## Wikilinks load test
+
+[[anal retentive mikhail glinka]]
+[[amalgamated malva neglecta]]
+[[numeral phaseolus caracalla]]
+[[new-sprung dermestidae]]

@@ -76,3 +76,10 @@ Herald read as I'd
 a curious to speak to
 : Of course of present at your finger pressed so small cake but after watching the rattling teacups would hardly worth
 
+
+## Wikilinks load test
+
+[[catechetic moral principle]]
+[[plantar shade]]
+[[stranded sabbatical year]]
+[[continent james monroe]]

@@ -91,3 +91,9 @@ Dinah and finish his
 I'M not would not here.
 : Treacle said but in Coils.
 
+
+## Wikilinks load test
+
+[[greyish-green chalk dust]]
+[[nomothetic pillar of islam]]
+[[configurational intelligence agent]]

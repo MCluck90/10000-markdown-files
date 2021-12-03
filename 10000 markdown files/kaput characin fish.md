@@ -84,3 +84,9 @@ Exactly as pigs have said gravely.
 quite finished my shoulders that accounts
 : My dear said What was coming to my forehead ache.
 
+
+## Wikilinks load test
+
+[[paramagnetic aertex]]
+[[stranded abwatt]]
+[[adscript kings counsel]]

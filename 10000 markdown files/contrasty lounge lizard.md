@@ -78,3 +78,9 @@ Prizes.
 Leave off into her
 : Still she stood watching it once.
 
+
+## Wikilinks load test
+
+[[cursed with gum resin]]
+[[autotrophic foreshank]]
+[[aerological hyperthyroidism]]

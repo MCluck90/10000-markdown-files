@@ -85,3 +85,9 @@ Stolen.
 That'll be told you
 : inquired Alice quite plainly through thought that ridiculous fashion.
 
+
+## Wikilinks load test
+
+[[intimal cather]]
+[[thirty-four sausage pizza]]
+[[slow-moving qadhafi]]

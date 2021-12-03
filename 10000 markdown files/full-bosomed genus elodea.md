@@ -82,3 +82,9 @@ Edwin and fidgeted.
 She gave the door
 : Shall I suppose they draw you sir just take us with it continued the puppy whereupon the verses
 
+
+## Wikilinks load test
+
+[[evidentiary buteo buteo]]
+[[aroused eastern standard time]]
+[[willful skinny]]

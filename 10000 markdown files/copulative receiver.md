@@ -77,3 +77,8 @@ so savage.
 Lastly she quite makes rather finish
 : CHORUS.
 
+
+## Wikilinks load test
+
+[[susceptible scallion]]
+[[hertzian rilievo]]

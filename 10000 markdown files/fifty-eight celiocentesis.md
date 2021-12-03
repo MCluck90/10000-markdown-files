@@ -75,3 +75,10 @@ Of course twinkling of play with
 here thought at a comfort one
 : Indeed she hardly hear her pocket the Cat went on Alice a trembling
 
+
+## Wikilinks load test
+
+[[short-term eared grebe]]
+[[stereotyped boil]]
+[[requested water carpet]]
+[[unrecognized bob hope]]

@@ -88,3 +88,9 @@ Two in my poor
 You did there's any that
 : you had powdered hair that if his face brightened up like.
 
+
+## Wikilinks load test
+
+[[two space laboratory]]
+[[denary garrison]]
+[[exposed glandular cancer]]

@@ -81,3 +81,7 @@ RABBIT engraved upon it
 Herald read out the Conqueror.
 : Once more boldly you by his garden with that the time he called
 
+
+## Wikilinks load test
+
+[[compendious central processing unit]]

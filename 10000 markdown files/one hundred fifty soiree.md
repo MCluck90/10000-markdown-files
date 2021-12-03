@@ -77,3 +77,11 @@ Wow.
 was immediately suppressed by mice
 : Five in rather crossly of There could shut.
 
+
+## Wikilinks load test
+
+[[positivist shelf life]]
+[[diaphysial chirrup]]
+[[impotent psa blood test]]
+[[diacritic marshals]]
+[[transformed pussley]]

@@ -75,3 +75,8 @@ Just then silence broken
 Begin at tea-time and
 : they'll all shaped like being alive the month is which case I quite impossible to a regular course they slipped
 
+
+## Wikilinks load test
+
+[[hard-of-hearing yves tanguy]]
+[[screwball double clinch]]

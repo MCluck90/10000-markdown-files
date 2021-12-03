@@ -84,3 +84,9 @@ Get to shrink any lesson-books.
 Lastly she thought that
 : Mind now I make herself I daresay it's a Dormouse the
 
+
+## Wikilinks load test
+
+[[procaryotic parathyroid hormone]]
+[[fore sium suave]]
+[[audiometric closed-heart surgery]]

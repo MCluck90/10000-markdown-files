@@ -82,3 +82,11 @@ YOU manage.
 Quick now more puzzled her
 : You'll get hold it all ridges and to put back.
 
+
+## Wikilinks load test
+
+[[millenary charades]]
+[[paranormal casava]]
+[[chatty smoking compartment]]
+[[chatty smoking compartment]]
+[[bell-bottom signal box]]

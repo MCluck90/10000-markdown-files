@@ -83,3 +83,10 @@ Idiot.
 Have you wouldn't squeeze so long
 : RABBIT engraved upon pegs.
 
+
+## Wikilinks load test
+
+[[smooth-haired dali]]
+[[awake ward-heeler]]
+[[well-nourished ketoacidosis-prone diabetes]]
+[[dyslexic scrutinizer]]

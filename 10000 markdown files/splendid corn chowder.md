@@ -88,3 +88,11 @@ Sentence first.
 Wouldn't it altogether like it
 : she waited.
 
+
+## Wikilinks load test
+
+[[inaccessible jules emile frederic massenet]]
+[[unimpassioned champion lode]]
+[[paneled margin of profit]]
+[[sword-shaped opinion poll]]
+[[supplicant norwegian]]

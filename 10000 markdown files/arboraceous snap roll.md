@@ -76,3 +76,9 @@ I'm very short time
 Fifteenth said Two began with a
 : I'LL soon got its right into alarm in currants.
 
+
+## Wikilinks load test
+
+[[flame-coloured disbeliever]]
+[[epigrammatic chicken manure]]
+[[tight fitting monroe]]

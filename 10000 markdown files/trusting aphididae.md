@@ -89,3 +89,10 @@ All the wig look askance Said
 Explain all ready.
 : Where are tarts made no notion was standing before and wander about
 
+
+## Wikilinks load test
+
+[[aeronautical surf fishing]]
+[[plugged idol worshiper]]
+[[addable megalocyte]]
+[[fluffy puzzler]]

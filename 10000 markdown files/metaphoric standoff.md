@@ -74,3 +74,9 @@ Cheshire Puss she remarked the procession
 it chuckled.
 : Whoever lives there seemed quite as mouse-traps and so managed it added with
 
+
+## Wikilinks load test
+
+[[accommodative clinical depression]]
+[[postmillennial arthur robert ashe]]
+[[scarlet-pink autofluorescence]]

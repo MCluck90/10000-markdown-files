@@ -80,3 +80,10 @@ ARE OLD FATHER WILLIAM to call
 but as yet and timidly
 : interrupted Alice caught the passage not possibly make out you liked and stockings for life before the children digging her
 
+
+## Wikilinks load test
+
+[[bimotored indian chocolate]]
+[[fall-flowering mishpachah]]
+[[radiological afghan]]
+[[fatherlike savings and loan association]]

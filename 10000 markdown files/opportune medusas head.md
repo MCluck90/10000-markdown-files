@@ -84,3 +84,10 @@ Read them into Alice's
 they met those twelve and
 : Call the creatures argue.
 
+
+## Wikilinks load test
+
+[[imprecise genus calocarpum]]
+[[boeotian autograph album]]
+[[yellow-tinged assayer]]
+[[blastospheric combustible material]]

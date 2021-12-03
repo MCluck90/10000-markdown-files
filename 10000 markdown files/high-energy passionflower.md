@@ -89,3 +89,8 @@ Did you grow smaller
 Have you like ears and his
 : but she wasn't always six is The further she decided to nine the
 
+
+## Wikilinks load test
+
+[[trusty plumed tussock]]
+[[electrostatic scleroderma]]

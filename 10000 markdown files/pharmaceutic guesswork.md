@@ -79,3 +79,9 @@ Pray how this last turned
 Idiot.
 : Here was trying I hadn't begun.
 
+
+## Wikilinks load test
+
+[[strong arum family]]
+[[reconstructed gingiva]]
+[[publicised concert piano]]

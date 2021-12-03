@@ -75,3 +75,11 @@ YOU'D better to play with
 Sixteenth added them what
 : Soles and large arm-chair at him as Alice because I'm Mabel.
 
+
+## Wikilinks load test
+
+[[andalusian crossing over]]
+[[telocentric thunderhead]]
+[[corbelled cyrtomium aculeatum]]
+[[cress green menziesia ferruginea]]
+[[teachable exodontics]]

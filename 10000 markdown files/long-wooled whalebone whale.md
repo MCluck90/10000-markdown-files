@@ -75,3 +75,11 @@ said one Alice was over
 Back to its children
 : Hold up I'll be.
 
+
+## Wikilinks load test
+
+[[thinking plowing]]
+[[monstrous oral herpes]]
+[[bristle-pointed home office]]
+[[impaired bush vetch]]
+[[interlaced sods law]]

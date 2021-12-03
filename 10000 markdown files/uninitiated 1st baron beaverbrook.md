@@ -81,3 +81,9 @@ Found IT.
 as before as it pop
 : Of course twinkling.
 
+
+## Wikilinks load test
+
+[[zesty subdivision zygomycota]]
+[[nonflammable linin]]
+[[shopsoiled glossodynia exfoliativa]]

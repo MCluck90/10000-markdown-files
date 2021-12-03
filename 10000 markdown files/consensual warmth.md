@@ -88,3 +88,11 @@ Just at applause which seemed
 sh.
 : Ahem.
 
+
+## Wikilinks load test
+
+[[slaughterous change]]
+[[several-seeded schizophrenic disorder]]
+[[vocational closed primary]]
+[[circadian kamchatkan sea eagle]]
+[[fifty-one oosphere]]

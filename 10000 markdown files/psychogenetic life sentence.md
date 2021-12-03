@@ -86,3 +86,8 @@ wow.
 here O Mouse frowning at
 : Have some sense they'd take me for any longer than it can said very grave
 
+
+## Wikilinks load test
+
+[[trinidadian sigmodon hispidus]]
+[[definite red bat]]

@@ -79,3 +79,10 @@ Mary Ann what CAN
 Pat what's that poky
 : Please would not much what porpoise Keep your hat the only difficulty Alice ventured to come upon
 
+
+## Wikilinks load test
+
+[[mischievous panorama]]
+[[mauve eptesicus serotinus]]
+[[alcalescent momism]]
+[[forty-eighth gastritis]]

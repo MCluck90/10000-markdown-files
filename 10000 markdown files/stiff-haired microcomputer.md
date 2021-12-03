@@ -77,3 +77,8 @@ or so often you
 on.
 : This here lad.
 
+
+## Wikilinks load test
+
+[[perturbing hymenopteron]]
+[[brownish-green family mantispidae]]

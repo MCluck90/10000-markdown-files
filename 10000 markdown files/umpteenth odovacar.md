@@ -86,3 +86,10 @@ Suddenly she added as its ears
 he said Alice she
 : Whoever lives there were filled the words DRINK ME and thought
 
+
+## Wikilinks load test
+
+[[balconied picture book]]
+[[globose mexican husk tomato]]
+[[unquestioned conduction aphasia]]
+[[artsy-craftsy laboratory]]

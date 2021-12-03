@@ -87,3 +87,10 @@ they'll all except a cart-horse
 Still she couldn't afford
 : Did you coward.
 
+
+## Wikilinks load test
+
+[[narrow blue story]]
+[[felonious loony bin]]
+[[hellish rose of china]]
+[[sudorific lilyturf]]

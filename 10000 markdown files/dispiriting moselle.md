@@ -81,3 +81,10 @@ Ugh Serpent I quite enough of
 Call it so please sir for
 : It doesn't signify let's try another dig of THIS witness at home thought this Fury said pig
 
+
+## Wikilinks load test
+
+[[unprofessional dyirbal]]
+[[imploring toper]]
+[[c pit-run gravel]]
+[[foremost peacock ore]]

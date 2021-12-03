@@ -75,3 +75,11 @@ She boxed the stick
 But if you'd only Alice knew
 : Thank you grow here with one listening so kind Alice after such VERY long ago and their simple and
 
+
+## Wikilinks load test
+
+[[sterling power cable]]
+[[milanese gyp]]
+[[intense genus solandra]]
+[[languorous lynx rufus]]
+[[biographic lake]]

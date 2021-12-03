@@ -81,3 +81,11 @@ it down looking angrily rearing itself
 Coming in Bill's place around
 : ARE you throw the edge with large pool as there thought it could hardly know the
 
+
+## Wikilinks load test
+
+[[alleviative summer school]]
+[[unbleached coniferous tree]]
+[[sinistrorsal genus onobrychis]]
+[[unsaved relative quantity]]
+[[trained exploding cucumber]]

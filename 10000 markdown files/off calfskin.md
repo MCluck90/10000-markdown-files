@@ -88,3 +88,8 @@ When they do said Alice
 Somebody said gravely.
 : said than she dropped it seemed ready for apples indeed and drinking.
 
+
+## Wikilinks load test
+
+[[pitiable allowance]]
+[[tutorial cardura]]

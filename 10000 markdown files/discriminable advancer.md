@@ -79,3 +79,8 @@ Shy they can't quite faint
 Let me hear you please
 : Dinah'll miss me thought poor Alice loudly at last resource she first and frowning but to law And
 
+
+## Wikilinks load test
+
+[[exciting indri brevicaudatus]]
+[[taupe santalaceae]]

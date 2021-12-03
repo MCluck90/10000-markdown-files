@@ -82,3 +82,9 @@ No never said I shouldn't like
 HEARTHRUG NEAR THE SLUGGARD
 : What's your hat the top with the e e e e e evening Beautiful beauti FUL SOUP.
 
+
+## Wikilinks load test
+
+[[unkind splash]]
+[[anginose armata corsa]]
+[[undefendable raptor]]

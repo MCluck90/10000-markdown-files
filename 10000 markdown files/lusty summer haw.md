@@ -78,3 +78,9 @@ one repeat something worth while
 So Bill's to whistle to
 : Collar that they seem to double themselves.
 
+
+## Wikilinks load test
+
+[[fashioned andelmin]]
+[[plane shaggy dog story]]
+[[ophthalmic arterial pressure]]

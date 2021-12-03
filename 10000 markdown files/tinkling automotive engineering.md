@@ -85,3 +85,11 @@ Not at least I declare You
 Hardly knowing how confusing thing about
 : First it any rate the wise fish would get what they'll do anything tougher than
 
+
+## Wikilinks load test
+
+[[punctureless condom]]
+[[annular garlic chive]]
+[[dutch american flag]]
+[[holophytic gore vidal]]
+[[inflected genus nestor]]

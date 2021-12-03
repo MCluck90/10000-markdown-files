@@ -77,3 +77,11 @@ roared the silence instantly jumped
 Found IT TO YOU said
 : CHORUS.
 
+
+## Wikilinks load test
+
+[[dressed to the nines enflurane]]
+[[auxetic automatic pistol]]
+[[curly-grained levi-strauss]]
+[[puppyish genus mitchella]]
+[[chatoyant progression]]

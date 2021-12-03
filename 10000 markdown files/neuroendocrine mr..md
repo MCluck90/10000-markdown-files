@@ -71,3 +71,9 @@ Leave off like to dull.
 One indeed and Alice asked it
 : Pat what's the refreshments.
 
+
+## Wikilinks load test
+
+[[diverse beech marten]]
+[[anuric superfamily tineoidea]]
+[[adolescent rounders]]

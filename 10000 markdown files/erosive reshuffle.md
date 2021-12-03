@@ -76,3 +76,9 @@ Sing her the Lizard's
 How I grow larger and
 : Stolen.
 
+
+## Wikilinks load test
+
+[[miry north korea]]
+[[flat-bottom bulwer-lytton]]
+[[preachy glutamic oxalacetic transaminase]]

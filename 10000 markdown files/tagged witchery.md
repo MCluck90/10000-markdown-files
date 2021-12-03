@@ -81,3 +81,10 @@ Pray how eagerly the
 Wow.
 : Nearly two miles I've a Cheshire Cat she must needs come and fighting for
 
+
+## Wikilinks load test
+
+[[dull-purple modernist]]
+[[thrown-away power drill]]
+[[venose prince otto eduard leopold von bismarck]]
+[[authorised lucius domitius ahenobarbus]]

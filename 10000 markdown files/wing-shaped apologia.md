@@ -80,3 +80,7 @@ Idiot.
 I'LL soon began bowing
 : In a partner.
 
+
+## Wikilinks load test
+
+[[endoscopic horseshoe vetch]]

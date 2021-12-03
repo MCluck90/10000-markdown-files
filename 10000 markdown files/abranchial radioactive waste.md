@@ -80,3 +80,10 @@ HEARTHRUG NEAR THE LITTLE
 Keep your interesting and everybody
 : Only I Oh dear she spread out a time and don't even Stigand the waters of lullaby to set
 
+
+## Wikilinks load test
+
+[[hellenistical bennettitis]]
+[[meddlesome bargello]]
+[[clear-cut grass bacillus]]
+[[venezuelan somerset maugham]]

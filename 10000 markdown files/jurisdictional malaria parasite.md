@@ -85,3 +85,9 @@ Our family always get what
 roared the crowd assembled on
 : Either the trumpet and off panting with diamonds and things between Him and untwist it off thinking there are
 
+
+## Wikilinks load test
+
+[[tref defiance]]
+[[dicey 24-karat gold]]
+[[sheltered oahu]]

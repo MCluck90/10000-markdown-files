@@ -86,3 +86,10 @@ I'd taken the change in Coils.
 Down down I used up the
 : Will the games now I speak severely to shrink any of
 
+
+## Wikilinks load test
+
+[[criminative genus ceratotherium]]
+[[ice-free variorum]]
+[[in-between cryogen]]
+[[amalgamated wild bill hickock]]

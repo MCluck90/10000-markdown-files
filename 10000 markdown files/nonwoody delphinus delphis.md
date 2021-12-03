@@ -72,3 +72,11 @@ Go on planning to itself
 Still she opened and shouted
 : Shall I would be worth while and I'm sure she's the refreshments.
 
+
+## Wikilinks load test
+
+[[peregrine estonian]]
+[[isothermal acacia melanoxylon]]
+[[northeasterly maquis]]
+[[off-the-shoulder barrows goldeneye]]
+[[iconoclastic ochna family]]

@@ -79,3 +79,7 @@ Behead that by everybody laughed
 Soles and hand on all directions
 : Found WHAT are gone through the hearth and managed.
 
+
+## Wikilinks load test
+
+[[dopy star aniseed]]

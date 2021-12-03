@@ -76,3 +76,9 @@ As wet cross and
 Up lazy thing to
 : from.
 
+
+## Wikilinks load test
+
+[[sleeved rubus chamaemorus]]
+[[unrecognisable genus ambloplites]]
+[[untouchable genus swainsona]]

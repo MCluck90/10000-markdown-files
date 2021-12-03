@@ -79,3 +79,9 @@ Twinkle twinkle and half
 Turn a pair of
 : later.
 
+
+## Wikilinks load test
+
+[[epidural counter]]
+[[hominine steel industry]]
+[[allometric mastodont]]

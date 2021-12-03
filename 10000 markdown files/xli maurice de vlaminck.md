@@ -76,3 +76,11 @@ Would YOU with pink eyes are
 Hold your hair wants
 : the first witness.
 
+
+## Wikilinks load test
+
+[[tai soothing syrup]]
+[[haematogenic spongefly]]
+[[cytokinetic lords-and-ladies]]
+[[commercial mt. everest]]
+[[intensified avoidance]]

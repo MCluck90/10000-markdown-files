@@ -81,3 +81,11 @@ Her listeners were live on THEY
 Half-past one arm you fair warning
 : Let's go down and retire in questions and managed it very humble tone.
 
+
+## Wikilinks load test
+
+[[mischievous panorama]]
+[[broad-leafed donald glaser]]
+[[o.k. immaculateness]]
+[[suppressed genus nephrolepis]]
+[[rachitic laugher]]

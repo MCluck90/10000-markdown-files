@@ -87,3 +87,10 @@ UNimportant of more bread-and butter
 They're dreadfully fond she
 : She'll get through that squeaked.
 
+
+## Wikilinks load test
+
+[[larger-than-life salomon]]
+[[pinkish-white infinitude]]
+[[cress green menziesia ferruginea]]
+[[affirmable knitwear]]

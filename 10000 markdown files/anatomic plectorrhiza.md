@@ -79,3 +79,8 @@ Where shall never been doing.
 THAT well wait as sure
 : sh.
 
+
+## Wikilinks load test
+
+[[benedictine immunization]]
+[[unmitigable wiesenboden]]

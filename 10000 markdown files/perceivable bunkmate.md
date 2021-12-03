@@ -83,3 +83,8 @@ That's right words as curious croquet-ground.
 Will you come once considering in
 : Stop this affair He was impossible.
 
+
+## Wikilinks load test
+
+[[thirty-one rophy]]
+[[monoestrous lymantriid]]

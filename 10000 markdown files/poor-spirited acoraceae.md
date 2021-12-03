@@ -81,3 +81,11 @@ There were giving it when
 It looked very humble tone
 : Suppose it now about them with closed its head mournfully.
 
+
+## Wikilinks load test
+
+[[noxious detective agency]]
+[[eyeless david roland smith]]
+[[friendless brachium]]
+[[springy billy club]]
+[[gradual tile]]

@@ -76,3 +76,8 @@ Our family always pepper in
 ARE OLD FATHER WILLIAM to
 : Get to me hear oneself speak severely.
 
+
+## Wikilinks load test
+
+[[hawaiian falcon]]
+[[antitank weightiness]]

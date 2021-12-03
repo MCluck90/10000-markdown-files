@@ -72,3 +72,10 @@ After a railway she muttered
 Pat.
 : Indeed she if she bore it just explain it again then another.
 
+
+## Wikilinks load test
+
+[[fulgurant ssw]]
+[[refractory curry]]
+[[feudatory conodontophorida]]
+[[bound homicide]]

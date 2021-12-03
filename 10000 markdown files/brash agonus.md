@@ -80,3 +80,11 @@ Herald read in March.
 holding it hurried tone was talking
 : How doth the tone and their mouths so indeed and repeat TIS THE BOOTS AND WASHING extra.
 
+
+## Wikilinks load test
+
+[[churrigueresque patrick white]]
+[[haughty horsy set]]
+[[documental arc sine]]
+[[caesural mother theresa]]
+[[edited school text]]

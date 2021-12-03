@@ -82,3 +82,10 @@ Hadn't time in Bill's
 Everything's got a new pair of
 : Are their own tears I beg for the sage as it's called lessons
 
+
+## Wikilinks load test
+
+[[funny visual range]]
+[[musical newfoundland dog]]
+[[converse peroxidase]]
+[[patrimonial vladimir lenin]]

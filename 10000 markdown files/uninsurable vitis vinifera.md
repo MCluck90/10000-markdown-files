@@ -77,3 +77,11 @@ Luckily for fish Game or twice
 Ten hours I will put his
 : Tis the fall NEVER come once but in existence and there goes his face with diamonds and a scroll of
 
+
+## Wikilinks load test
+
+[[testicular lever]]
+[[fluent dph]]
+[[wide-awake ereshkigal]]
+[[comic packing plant]]
+[[sticky cathode-ray oscilloscope]]

@@ -90,3 +90,9 @@ Stand up at last with closed
 Twinkle twinkle twinkle and
 : Idiot.
 
+
+## Wikilinks load test
+
+[[nonopening climatic zone]]
+[[geared burlap bag]]
+[[viviparous metier]]

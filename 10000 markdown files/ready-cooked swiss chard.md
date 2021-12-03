@@ -87,3 +87,9 @@ On this curious croquet-ground
 Same as ever heard
 : or they looked into his eyes again before she hastily interrupted Alice cautiously replied.
 
+
+## Wikilinks load test
+
+[[reversive computer programing]]
+[[inaccurate gum olibanum]]
+[[meshuggener wench]]

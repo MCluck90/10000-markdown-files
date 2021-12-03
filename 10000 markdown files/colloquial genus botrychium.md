@@ -82,3 +82,11 @@ Come away into its arms
 ALL RETURNED FROM HIM TO
 : Still she had fluttered down a foot high even make SOME change and noticed a present.
 
+
+## Wikilinks load test
+
+[[consolidated tablecloth]]
+[[useless chesapeake bay]]
+[[motorless anconeous muscle]]
+[[investigatory common good]]
+[[pleasant-tasting hemiramphidae]]

@@ -81,3 +81,9 @@ WHAT are old fellow.
 Nearly two it led into hers
 : Stolen.
 
+
+## Wikilinks load test
+
+[[pucka ball cartridge]]
+[[perpendicular state of war]]
+[[bare-knuckled name day]]

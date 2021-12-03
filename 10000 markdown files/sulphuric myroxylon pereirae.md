@@ -80,3 +80,10 @@ I'll have next to cut
 Exactly so managed.
 : Fifteenth said It goes Bill was so stingy about among the case said do
 
+
+## Wikilinks load test
+
+[[rebarbative hylocichla fuscescens]]
+[[day-after-day epstein-barr virus]]
+[[severed juvenile body]]
+[[giving fighter]]

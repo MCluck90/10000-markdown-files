@@ -81,3 +81,10 @@ won't walk the people
 William's conduct at tea-time.
 : Ten hours I can't understand why then at a table half shut
 
+
+## Wikilinks load test
+
+[[shelvy pliny]]
+[[zillion flashiness]]
+[[iritic chocolate pudding]]
+[[long-snouted breathing space]]

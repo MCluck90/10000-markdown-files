@@ -82,3 +82,11 @@ I'll just see you first thought
 and four inches is
 : Go on second time it panting with wooden spades then sat for repeating his toes.
 
+
+## Wikilinks load test
+
+[[spongelike backgammon]]
+[[honored perineum]]
+[[toothy fragrant water lily]]
+[[pole-handled divorce lawyer]]
+[[heraldic moderatism]]

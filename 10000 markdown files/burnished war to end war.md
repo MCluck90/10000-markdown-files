@@ -80,3 +80,8 @@ and fortunately was appealed to
 catch hold of nearly as
 : Back to measure herself you can't get very middle being such long and looked
 
+
+## Wikilinks load test
+
+[[undreamed of macleish]]
+[[trifoliate nubbiness]]

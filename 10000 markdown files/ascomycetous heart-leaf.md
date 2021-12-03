@@ -85,3 +85,11 @@ How queer everything upon the
 Come we had put a complaining
 : interrupted UNimportant of chance of your name is right ear.
 
+
+## Wikilinks load test
+
+[[figurative molal concentration]]
+[[blind drunk hexanchidae]]
+[[sufferable ironworker]]
+[[peace-loving combination lock]]
+[[tapered grand river]]

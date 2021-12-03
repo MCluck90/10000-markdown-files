@@ -81,3 +81,8 @@ Hadn't time together first saw
 Everybody says come over at
 : sh.
 
+
+## Wikilinks load test
+
+[[architectural lament]]
+[[uncategorized rugged individualism]]

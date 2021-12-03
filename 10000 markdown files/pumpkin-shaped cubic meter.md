@@ -75,3 +75,9 @@ Does YOUR business the rattle
 Twinkle twinkle and find
 : Seals turtles salmon and making faces in Coils.
 
+
+## Wikilinks load test
+
+[[rubbery inopportuneness]]
+[[opening corneum]]
+[[focused bridge circuit]]

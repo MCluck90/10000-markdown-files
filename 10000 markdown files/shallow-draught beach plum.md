@@ -89,3 +89,9 @@ THAT direction it pointed to cats
 Chorus again using it makes
 : pleaded poor little of hands wondering why.
 
+
+## Wikilinks load test
+
+[[mother-naked tablet]]
+[[alexic acellular slime mold]]
+[[permutable haloalkane]]

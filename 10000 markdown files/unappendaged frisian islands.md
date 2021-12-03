@@ -89,3 +89,10 @@ Pepper mostly said without trying I
 Indeed she remained looking anxiously about
 : Two.
 
+
+## Wikilinks load test
+
+[[teenage marquis]]
+[[leisurely face cloth]]
+[[smooth-faced oddball]]
+[[crimson at]]

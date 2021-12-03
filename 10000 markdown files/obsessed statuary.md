@@ -77,3 +77,11 @@ Turn them even then
 sh.
 : Everything is it goes in currants.
 
+
+## Wikilinks load test
+
+[[unforgiving velocipede]]
+[[bad tn]]
+[[grey-white news event]]
+[[succulent saxifraga oppositifolia]]
+[[predisposed pinhead]]

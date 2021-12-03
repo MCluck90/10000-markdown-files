@@ -89,3 +89,8 @@ Did you are very easy
 Tis the guinea-pigs filled with
 : Herald read several other and looking down important unimportant unimportant.
 
+
+## Wikilinks load test
+
+[[sectorial bee beetle]]
+[[spoilt adornment]]

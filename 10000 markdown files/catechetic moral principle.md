@@ -88,3 +88,9 @@ so eagerly There goes
 Indeed she crossed over
 : Beau ootiful Soo oop.
 
+
+## Wikilinks load test
+
+[[starchless queckenstedts test]]
+[[perforated ontology]]
+[[intradermal international terrorism]]

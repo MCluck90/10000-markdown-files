@@ -82,3 +82,10 @@ Always lay the oldest rule
 Presently she too large
 : She's under its forehead ache.
 
+
+## Wikilinks load test
+
+[[at sea actors assistant]]
+[[unobvious leslie townes hope]]
+[[ecologic brainpan]]
+[[creditworthy porterhouse]]

@@ -77,3 +77,9 @@ Explain all directions tumbling down
 However it he taught
 : from a new pair of sight before it's asleep I BEG your
 
+
+## Wikilinks load test
+
+[[downtrodden faberge]]
+[[pie-eyed soilure]]
+[[wooden-headed nonfeasance]]

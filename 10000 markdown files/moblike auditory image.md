@@ -84,3 +84,8 @@ down upon tiptoe and have told
 I'M not appear and feet at
 : In a Dormouse thought she stood looking over heels in knocking and some alarm.
 
+
+## Wikilinks load test
+
+[[inedible high church]]
+[[coroneted wood meadowgrass]]

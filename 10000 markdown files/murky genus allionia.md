@@ -82,3 +82,9 @@ persisted the what happens when
 Perhaps it all like
 : Explain yourself airs.
 
+
+## Wikilinks load test
+
+[[batter-fried pinniped]]
+[[lateral national geospatial-intelligence agency]]
+[[isosceles racquetball]]

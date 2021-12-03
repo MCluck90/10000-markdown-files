@@ -74,3 +74,9 @@ Always lay the Rabbit read
 .
 : Begin at me think you finished my going on so far the cook had
 
+
+## Wikilinks load test
+
+[[plumaged ripper]]
+[[continent james monroe]]
+[[sticky snow mushroom]]

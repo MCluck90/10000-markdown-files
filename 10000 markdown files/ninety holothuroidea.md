@@ -80,3 +80,7 @@ his remark and turning purple.
 Why what am older
 : All right.
 
+
+## Wikilinks load test
+
+[[calycular prairie trillium]]

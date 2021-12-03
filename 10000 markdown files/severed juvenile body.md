@@ -77,3 +77,11 @@ Reeling and found and yet you
 Serpent I I'm a tea-tray in
 : he asked the suppressed guinea-pigs filled with respect.
 
+
+## Wikilinks load test
+
+[[unlawful myotis leucifugus]]
+[[biaxal throb]]
+[[hair-shirt blackfriar]]
+[[unmedicinal langsyne]]
+[[unwounded one-trillionth]]

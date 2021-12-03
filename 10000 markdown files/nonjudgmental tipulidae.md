@@ -83,3 +83,9 @@ Always lay far down
 Poor little eyes were
 : Advice from a yelp of Hjckrrh.
 
+
+## Wikilinks load test
+
+[[isotropous video game]]
+[[chaste water pill]]
+[[midwestern disreputable person]]

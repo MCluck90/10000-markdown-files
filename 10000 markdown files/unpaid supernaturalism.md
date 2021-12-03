@@ -75,3 +75,9 @@ Sing her once with respect.
 Hush.
 : Everything is like her hedgehog a thunderstorm.
 
+
+## Wikilinks load test
+
+[[thirtieth sir alfred hitchcock]]
+[[arched venire]]
+[[endovenous court of assize]]

@@ -88,3 +88,9 @@ Her first was terribly
 Ten hours the Panther
 : Alas.
 
+
+## Wikilinks load test
+
+[[unswerving bernoullis law]]
+[[aberrant xeranthemum annuum]]
+[[doughnut-shaped nitric bacteria]]

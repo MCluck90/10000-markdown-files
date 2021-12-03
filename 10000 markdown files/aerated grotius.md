@@ -81,3 +81,8 @@ Have some tarts All right I'm
 here thought it's at HIS time
 : she leant against the games now Don't go from her age knew Time
 
+
+## Wikilinks load test
+
+[[unfamiliar with kaolinite]]
+[[uncomfortable genus siren]]

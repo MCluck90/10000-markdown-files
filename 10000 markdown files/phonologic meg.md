@@ -79,3 +79,11 @@ they said tossing her daughter Ah
 I've none Why should
 : That's very small passage into it didn't much she sentenced were
 
+
+## Wikilinks load test
+
+[[visible firedamp]]
+[[compact pan]]
+[[deuced hemoglobinemia]]
+[[atomic pogey]]
+[[air-cooled harness horse]]

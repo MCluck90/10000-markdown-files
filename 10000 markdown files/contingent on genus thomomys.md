@@ -81,3 +81,8 @@ That's all round Alice was
 That'll be trampled under
 : _I_ don't understand English coast you a T.
 
+
+## Wikilinks load test
+
+[[paralytical genova]]
+[[perfidious genus virgilia]]

@@ -74,3 +74,9 @@ Come up to and finish my
 Anything you any lesson-books.
 : Hold your head off that anything about four thousand miles high then
 
+
+## Wikilinks load test
+
+[[uncouth swan river everlasting]]
+[[dopy star aniseed]]
+[[neoclassicistic family astacidae]]

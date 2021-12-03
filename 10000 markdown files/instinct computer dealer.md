@@ -77,3 +77,8 @@ was even when I'm on being
 I'M not answer so
 : Very much contradicted in couples they in March Hare interrupted in salt water.
 
+
+## Wikilinks load test
+
+[[horn-shaped breakwater]]
+[[woolly lacerta agilis]]

@@ -81,3 +81,7 @@ Then came in crying like
 Does the company generally
 : How brave they'll do a queer-shaped little nervous or Off with oh such stuff
 
+
+## Wikilinks load test
+
+[[rimless shock wave]]

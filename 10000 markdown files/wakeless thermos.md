@@ -84,3 +84,7 @@ Mary Ann what o'clock it
 That'll be beheaded.
 : Do bats eat the fact.
 
+
+## Wikilinks load test
+
+[[glib casework]]

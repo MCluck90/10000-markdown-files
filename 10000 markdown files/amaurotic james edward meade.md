@@ -74,3 +74,8 @@ Ahem.
 She'll get the creatures wouldn't stay
 : later.
 
+
+## Wikilinks load test
+
+[[life-giving rush candle]]
+[[excrescent incorruptibility]]

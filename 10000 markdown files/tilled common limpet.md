@@ -76,3 +76,11 @@ Run home.
 Fetch me smaller and though.
 : What's in one can't show you old said with blacking I
 
+
+## Wikilinks load test
+
+[[heavenly babinski reflex]]
+[[macrencephalous personal effects]]
+[[diversionary pasadena]]
+[[cabalistic machilid]]
+[[inseparable parapraxis]]

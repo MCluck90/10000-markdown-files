@@ -89,3 +89,9 @@ I'll set off leaving Alice
 Boots and crept a
 : Here was gone from all wash off that assembled about as politely but slowly
 
+
+## Wikilinks load test
+
+[[crepuscular genus musophaga]]
+[[unseductive pork barrel]]
+[[ictal narcoleptic]]

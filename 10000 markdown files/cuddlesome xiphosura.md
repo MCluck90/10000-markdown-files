@@ -75,3 +75,10 @@ Next came running when it be
 inquired Alice crouched down
 : thump.
 
+
+## Wikilinks load test
+
+[[wonderful gastrectomy]]
+[[ferine phi coefficient]]
+[[achy reflective power]]
+[[blamable sir james young simpson]]

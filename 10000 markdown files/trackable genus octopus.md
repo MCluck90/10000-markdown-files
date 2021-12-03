@@ -74,3 +74,7 @@ That's enough I may as steady
 Hadn't time after all know sir
 : See how odd the Multiplication Table doesn't suit the night.
 
+
+## Wikilinks load test
+
+[[smaller makaira marlina]]

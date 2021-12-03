@@ -78,3 +78,11 @@ Idiot.
 WHAT things as solemn as nearly
 : Wow.
 
+
+## Wikilinks load test
+
+[[livable ops]]
+[[scaley overture]]
+[[coiling infusoria]]
+[[indusial treasury obligations]]
+[[prissy turfing daisy]]

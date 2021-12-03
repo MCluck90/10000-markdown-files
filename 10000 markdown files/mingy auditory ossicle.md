@@ -77,3 +77,10 @@ Alas.
 Suddenly she very fond
 : Serpent.
 
+
+## Wikilinks load test
+
+[[eastward rhinostenosis]]
+[[archdiocesan specialty store]]
+[[antennary tyson]]
+[[universalistic pyroxyline]]

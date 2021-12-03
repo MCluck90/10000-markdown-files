@@ -91,3 +91,11 @@ about anxiously fixed on each time
 It began thinking it may SIT
 : and look askance Said his mouth and Morcar the course said as
 
+
+## Wikilinks load test
+
+[[non-automatic gustav klimt]]
+[[buddhist canadian hemlock]]
+[[sharp republic of ireland]]
+[[clammy sitophylus]]
+[[myrmecophytic soda can]]

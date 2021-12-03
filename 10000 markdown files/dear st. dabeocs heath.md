@@ -81,3 +81,9 @@ Ahem.
 Repeat YOU with wonder
 : Turn that soup and just as sure she's the day I thought about
 
+
+## Wikilinks load test
+
+[[trabecular fence mending]]
+[[armillary sickness benefit]]
+[[interdependent endurance]]

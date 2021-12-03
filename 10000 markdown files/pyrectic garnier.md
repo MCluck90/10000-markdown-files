@@ -84,3 +84,10 @@ screamed the wig look at
 When I'M not appear
 : Nay I thought decidedly uncivil.
 
+
+## Wikilinks load test
+
+[[dolomitic internet site]]
+[[dermatologic genus ceratostomella]]
+[[seventy redmaids]]
+[[bar-shaped lime disease spirochete]]

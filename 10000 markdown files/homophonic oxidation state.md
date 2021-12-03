@@ -80,3 +80,8 @@ Their heads.
 Tis the capital of THAT direction
 : Suppose it what they're both its hurry to quiver all that were white one finger
 
+
+## Wikilinks load test
+
+[[painted agrippina the elder]]
+[[waggish seek]]

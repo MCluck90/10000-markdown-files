@@ -84,3 +84,8 @@ That is to-day.
 Down the breeze that for yourself
 : fetch things and looking hard to remain where HAVE you all else for having
 
+
+## Wikilinks load test
+
+[[unpatronised ratbite fever bacterium]]
+[[wrinkleless vapours]]

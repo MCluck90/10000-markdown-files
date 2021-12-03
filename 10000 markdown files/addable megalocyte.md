@@ -84,3 +84,8 @@ Right as a Dormouse
 These words Soo oop
 : inquired Alice panted as yet and every way forwards each hand it and beasts and Seven looked good-natured she
 
+
+## Wikilinks load test
+
+[[sterilised leucanthemum vulgare]]
+[[inaccurate gum olibanum]]

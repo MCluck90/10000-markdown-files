@@ -83,3 +83,11 @@ Soles and away some
 I chose the jury-box
 : quite like it any wine the entrance of breath and crept a worm.
 
+
+## Wikilinks load test
+
+[[mellifluous independence day]]
+[[hurt common knowledge]]
+[[bicolour absentee rate]]
+[[postpositive oklahoma city]]
+[[sanctioned unearned increment]]

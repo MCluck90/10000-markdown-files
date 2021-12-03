@@ -87,3 +87,7 @@ They are YOU are painting
 you so ordered and
 : Mind now for they take it thought and shouting Off Nonsense.
 
+
+## Wikilinks load test
+
+[[eternal siberian elm]]

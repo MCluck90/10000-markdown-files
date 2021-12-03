@@ -88,3 +88,8 @@ Where are done now my
 When we change the
 : later.
 
+
+## Wikilinks load test
+
+[[violet-flowered indian millet]]
+[[plentiful gluon]]

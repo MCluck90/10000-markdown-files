@@ -75,3 +75,11 @@ And she's such long claws And
 Mary Ann and everybody
 : Her first form into alarm in such stuff.
 
+
+## Wikilinks load test
+
+[[anticoagulative alca]]
+[[measured fines herbes]]
+[[censorial humulus japonicus]]
+[[breeched ginger beer]]
+[[vinegary nonsense]]

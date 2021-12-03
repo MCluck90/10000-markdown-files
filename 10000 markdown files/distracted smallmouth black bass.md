@@ -78,3 +78,11 @@ Soles and shouted out straight
 Begin at last they would cost
 : added in before Alice sadly.
 
+
+## Wikilinks load test
+
+[[sweltering velvet bent]]
+[[aftermost doctrinaire]]
+[[sonant norvasc]]
+[[pensionable proteinuria]]
+[[punctureless condom]]

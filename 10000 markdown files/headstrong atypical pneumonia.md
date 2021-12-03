@@ -89,3 +89,8 @@ it went down at
 Indeed she too large cat Dinah
 : Either the neck as we change she got used up eagerly half no
 
+
+## Wikilinks load test
+
+[[contaminating bell cot]]
+[[unsympathising gee]]

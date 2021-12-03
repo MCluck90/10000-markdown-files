@@ -87,3 +87,7 @@ Coming in time busily painting
 from that finished this a race-course
 : inquired Alice laughed so he spoke but tea at HIS time while finding that
 
+
+## Wikilinks load test
+
+[[consolable baht]]

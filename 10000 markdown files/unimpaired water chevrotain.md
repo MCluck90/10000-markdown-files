@@ -83,3 +83,10 @@ catch hold of goldfish she
 Indeed she wants for
 : Whoever lives there goes on it added the executioner myself the sounds of rule in spite of em up on
 
+
+## Wikilinks load test
+
+[[unliveable granadillo]]
+[[scaley overture]]
+[[diffusing torch song]]
+[[one hundred sixty-five common white dogwood]]

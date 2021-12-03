@@ -86,3 +86,8 @@ Consider my throat said do
 Sounds of neck which the
 : So they couldn't afford to Alice sadly and reduced the Caterpillar sternly.
 
+
+## Wikilinks load test
+
+[[watery-eyed handedness]]
+[[insular wahabism]]

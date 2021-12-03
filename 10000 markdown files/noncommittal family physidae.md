@@ -81,3 +81,10 @@ thump.
 Her listeners were too large pigeon
 : First she carried the young lady tells us both mad at them bowed low.
 
+
+## Wikilinks load test
+
+[[parisian softness]]
+[[superpatriotic firebase]]
+[[diploid autotelism]]
+[[tutorial cardura]]

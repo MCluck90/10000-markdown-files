@@ -75,3 +75,10 @@ That would you tell it
 Idiot.
 : CHORUS.
 
+
+## Wikilinks load test
+
+[[sensorial delicacy]]
+[[slippy genus araucaria]]
+[[napoleonic bullock block]]
+[[kitty-corner dail]]

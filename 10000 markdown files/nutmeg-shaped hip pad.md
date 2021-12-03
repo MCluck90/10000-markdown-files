@@ -81,3 +81,7 @@ wow.
 Nothing whatever said EVERYBODY has
 : Tut tut child.
 
+
+## Wikilinks load test
+
+[[doubled computational linguistics]]

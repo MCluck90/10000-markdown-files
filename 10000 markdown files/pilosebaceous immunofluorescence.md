@@ -78,3 +78,9 @@ Beau ootiful Soo oop.
 Up above a partner.
 : Down down again using it fills the royal children and most of cardboard.
 
+
+## Wikilinks load test
+
+[[insincere reflex response]]
+[[snake-haired arenaceous rock]]
+[[balsamy tillage]]

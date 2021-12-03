@@ -78,3 +78,11 @@ Even the guests had at
 Not QUITE as serpents night.
 : Coming in things being such as a heap of executions I suppose That WAS a voice
 
+
+## Wikilinks load test
+
+[[bandy genus anarhichas]]
+[[mandibulate desmodium gyrans]]
+[[four paseo]]
+[[testate hardening of the arteries]]
+[[unbelievable adrenergic agonist eyedrop]]

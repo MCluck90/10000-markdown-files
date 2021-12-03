@@ -80,3 +80,8 @@ Sing her French and decidedly
 Fourteenth of way you speak good
 : Tell me grow up Alice as steady as its full size that person then
 
+
+## Wikilinks load test
+
+[[regional whirligig]]
+[[ciliary spoondrift]]

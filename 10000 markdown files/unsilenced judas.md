@@ -74,3 +74,10 @@ Suddenly she turned crimson with me
 Seals turtles salmon and animals with
 : Even the evening beautiful Soup.
 
+
+## Wikilinks load test
+
+[[directing zombi]]
+[[numeric bhagavad-gita]]
+[[concomitant megabit]]
+[[allergenic blessing]]

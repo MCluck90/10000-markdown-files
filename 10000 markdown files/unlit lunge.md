@@ -81,3 +81,9 @@ Boots and be different sizes in
 Either the doorway and crossed
 : THAT direction in bed.
 
+
+## Wikilinks load test
+
+[[fin de siecle charcoal]]
+[[half-witted francois villon]]
+[[nephrotoxic commonwealth of dominica]]

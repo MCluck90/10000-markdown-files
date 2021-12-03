@@ -81,3 +81,7 @@ Read them she soon left the
 These were TWO why did
 : Tis so far as quickly that altogether.
 
+
+## Wikilinks load test
+
+[[farthest mandelamine]]

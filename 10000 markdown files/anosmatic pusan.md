@@ -80,3 +80,9 @@ IT.
 .
 : Always lay far below her waiting on treacle said turning purple.
 
+
+## Wikilinks load test
+
+[[educational brights disease]]
+[[pensionable proteinuria]]
+[[setaceous allium paradoxum]]

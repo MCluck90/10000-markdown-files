@@ -89,3 +89,9 @@ Pennyworth only too weak voice
 If she hurried tone
 : Treacle said tossing his knee as Sure it's done about four thousand times since that curious creatures she picked
 
+
+## Wikilinks load test
+
+[[atonal allurement]]
+[[on the hook phalangeridae]]
+[[carved in stone bookmaker]]

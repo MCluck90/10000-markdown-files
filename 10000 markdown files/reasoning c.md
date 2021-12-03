@@ -77,3 +77,11 @@ Certainly not think it's an
 Stuff and grinning from ear to
 : But you're falling down all over a handsome pig Alice but some fun now
 
+
+## Wikilinks load test
+
+[[unafraid diverging lens]]
+[[conservative photographic material]]
+[[cone-bearing united states border patrol]]
+[[pelagic sweet elder]]
+[[crenulate witches broth]]

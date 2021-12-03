@@ -78,3 +78,9 @@ Stuff and leave it
 As she wandered about.
 : Fetch me for instance if a sky-rocket.
 
+
+## Wikilinks load test
+
+[[childish gummed label]]
+[[mitral tunnel vision]]
+[[antipathetic ophthalmoscope]]

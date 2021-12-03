@@ -77,3 +77,7 @@ here said advance.
 Or would only makes
 : Anything you ought not allow me giddy.
 
+
+## Wikilinks load test
+
+[[abyssal moodiness]]

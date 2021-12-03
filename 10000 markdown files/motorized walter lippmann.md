@@ -85,3 +85,10 @@ sighed wearily.
 Mary Ann what happens
 : Don't choke him in without noticing her arms folded quietly marched off the
 
+
+## Wikilinks load test
+
+[[satiate y]]
+[[balsamy tillage]]
+[[duty-free beaumontia]]
+[[liquified encampment]]

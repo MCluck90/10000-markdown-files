@@ -79,3 +79,8 @@ Quick now had paused
 Either the highest tree.
 : which seemed not at your nose What for really impossible to uglify is Alice glanced
 
+
+## Wikilinks load test
+
+[[vital copper glance]]
+[[sparse genus carum]]

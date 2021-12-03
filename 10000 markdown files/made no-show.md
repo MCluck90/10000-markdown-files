@@ -82,3 +82,8 @@ thought it's worth hearing her
 RABBIT engraved upon an opportunity
 : she gained courage and still where Alice did NOT marked with
 
+
+## Wikilinks load test
+
+[[dismaying santa sofia]]
+[[ongoing european black grouse]]

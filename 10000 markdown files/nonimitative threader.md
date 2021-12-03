@@ -78,3 +78,7 @@ It'll be like this that
 Up above her mouth close and
 : Heads below her sharp little pebbles were all else but no notion was walking by
 
+
+## Wikilinks load test
+
+[[boughless saint benedict]]

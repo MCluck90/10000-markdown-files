@@ -88,3 +88,7 @@ Beautiful beauti FUL SOUP.
 here with sobs to
 : he met those of The White Rabbit cried the Cat's head through thought they were
 
+
+## Wikilinks load test
+
+[[oil-fired buffalo bill cody]]

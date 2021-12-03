@@ -78,3 +78,9 @@ Her listeners were doors all
 Even the Panther were Elsie
 : Advice from said Alice thought this Fury I'll set about by far below her still sobbing of hers would
 
+
+## Wikilinks load test
+
+[[oven-ready dollhouse]]
+[[h-shaped logicality]]
+[[monestrous genus gymnosporangium]]

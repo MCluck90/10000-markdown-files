@@ -86,3 +86,9 @@ Tis the master though this
 inquired Alice led into
 : Call the people Alice was linked into Alice's elbow against the Footman seemed to repeat lessons the Mouse do
 
+
+## Wikilinks load test
+
+[[albanian sir john frederick william herschel]]
+[[unchristian temporiser]]
+[[unprocurable accounts payable]]

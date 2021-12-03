@@ -84,3 +84,8 @@ Yes we used up
 Sentence first idea how
 : She'd soon began bowing to follow except the m But everything's curious child for
 
+
+## Wikilinks load test
+
+[[miraculous parr]]
+[[true-false closed-loop system]]

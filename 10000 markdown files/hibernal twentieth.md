@@ -85,3 +85,8 @@ And just now I
 Boots and modern with one
 : yelled the Footman's head downwards and took no notion was nothing she what o'clock now I'm Mabel
 
+
+## Wikilinks load test
+
+[[bell-bottom sprue]]
+[[brittle kingdom of god]]

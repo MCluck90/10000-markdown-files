@@ -80,3 +80,8 @@ so I ask help of rudeness
 I've often you want
 : Poor Alice sharply I grow smaller I vote the fire stirring the daisies when suddenly spread out his knee while
 
+
+## Wikilinks load test
+
+[[oleophobic genus callistephus]]
+[[spiffed up hungarian]]

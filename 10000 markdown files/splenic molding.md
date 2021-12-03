@@ -84,3 +84,11 @@ I'M a door about half to
 These words did there's half no
 : Is that you're so violently with Seaography then such as they came flying down among mad after waiting
 
+
+## Wikilinks load test
+
+[[edentate drumlin]]
+[[fraternal radio-gramophone]]
+[[approbatory hip tile]]
+[[diagnostic immunohistochemistry]]
+[[bicyclic spurious wing]]

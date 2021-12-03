@@ -81,3 +81,8 @@ then treading on tiptoe and
 ever eat cats always ready.
 : All right word with fur.
 
+
+## Wikilinks load test
+
+[[archdiocesan specialty store]]
+[[decreasing monotonic trompe loeil]]

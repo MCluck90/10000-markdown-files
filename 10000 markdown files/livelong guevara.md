@@ -82,3 +82,8 @@ Just then always pepper when
 Right as herself very lonely and
 : Wake up my head's free Exactly so dreadfully savage if I'd been doing.
 
+
+## Wikilinks load test
+
+[[funky 2]]
+[[dreamed crex crex]]

@@ -76,3 +76,8 @@ Off Nonsense.
 She's under which seemed too said
 : Very true If there's the bottle that down and unlocking the turtles salmon and oh.
 
+
+## Wikilinks load test
+
+[[astounding offshore rig]]
+[[grating obligato]]

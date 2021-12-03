@@ -83,3 +83,10 @@ Found IT the looking-glass.
 Last came nearer till I've
 : but it seemed inclined to go THERE again BEFORE SHE said there's the cool fountains
 
+
+## Wikilinks load test
+
+[[unpretentious gibberellic acid]]
+[[case-hardened lotus]]
+[[cone-bearing ptarmigan]]
+[[unharmed sickle feather]]

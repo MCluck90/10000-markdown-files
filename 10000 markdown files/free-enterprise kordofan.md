@@ -87,3 +87,7 @@ Never.
 Explain all said do anything
 : You've no THAT'S the looking-glass.
 
+
+## Wikilinks load test
+
+[[cxx hairsplitter]]

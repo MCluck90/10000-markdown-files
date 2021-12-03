@@ -84,3 +84,10 @@ the judge would said
 you needn't be listening
 : it exclaimed.
 
+
+## Wikilinks load test
+
+[[differential uraninite]]
+[[anisometric common scurvy grass]]
+[[proven biological warfare defence]]
+[[cathodic gentleness]]

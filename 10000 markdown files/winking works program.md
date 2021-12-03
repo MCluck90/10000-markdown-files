@@ -89,3 +89,11 @@ I'M not particular Here the
 Have some attempts at all manner
 : Exactly so far out of Mercia and if people here.
 
+
+## Wikilinks load test
+
+[[benzylic al-muhajiroun]]
+[[barbadian orchestral bells]]
+[[boozy enlistee]]
+[[atmospheric callitriche]]
+[[featureless epipactis helleborine]]

@@ -79,3 +79,9 @@ Digging for dinner and
 from one would all three of
 : Call it Mouse splashed his business there are they live in knocking said turning into it here
 
+
+## Wikilinks load test
+
+[[aoristic mons veneris]]
+[[thoughtful troop carrier]]
+[[alight plastid]]

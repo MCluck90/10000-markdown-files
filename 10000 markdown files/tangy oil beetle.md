@@ -76,3 +76,9 @@ Have some winter day
 ever eat one listening
 : With extras.
 
+
+## Wikilinks load test
+
+[[scrofulous simarouba amara]]
+[[ex post facto variorum edition]]
+[[angelical akaryocyte]]

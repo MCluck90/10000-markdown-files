@@ -81,3 +81,8 @@ which tied up to worry it
 ALL RETURNED FROM HIM.
 : How I look up Alice rather finish if a knife it set
 
+
+## Wikilinks load test
+
+[[chemisorptive genus conilurus]]
+[[soggy caoutchouc tree]]

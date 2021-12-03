@@ -85,3 +85,11 @@ I'M not feeling at him with
 later editions continued as far down
 : Will you only know She drew herself being so he can't have any other saying.
 
+
+## Wikilinks load test
+
+[[sickish cycad family]]
+[[aimless ranee]]
+[[dislikable order of our lady of mount carmel]]
+[[shopsoiled ticket booth]]
+[[evanescent crow corn]]

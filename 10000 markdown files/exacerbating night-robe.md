@@ -83,3 +83,10 @@ was said advance twice set to
 Poor little glass table was a
 : Soup.
 
+
+## Wikilinks load test
+
+[[driving banded rudderfish]]
+[[otherwise sea trifoly]]
+[[transitive vascularization]]
+[[dorian plaster]]

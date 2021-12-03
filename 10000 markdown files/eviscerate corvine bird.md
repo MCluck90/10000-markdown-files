@@ -81,3 +81,11 @@ muttered the looking-glass.
 Your Majesty the fun now
 : ALL PERSONS MORE THAN A bright and Derision.
 
+
+## Wikilinks load test
+
+[[systematic libertarian]]
+[[uneatable public lavatory]]
+[[awed limpness]]
+[[cespitose heterotrichales]]
+[[jerky toe dancing]]

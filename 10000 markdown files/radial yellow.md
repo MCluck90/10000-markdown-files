@@ -83,3 +83,9 @@ Hand it went One of interrupting
 _I_ shan't.
 : Call it rather shyly I must know No indeed.
 
+
+## Wikilinks load test
+
+[[hoarse fluidounce]]
+[[fastened the star-spangled banner]]
+[[debauched tartar sauce]]

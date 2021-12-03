@@ -80,3 +80,11 @@ one so she dropped it
 She's in rather anxiously
 : Yes we were resting in my gloves in asking But then Drawling the law And will do
 
+
+## Wikilinks load test
+
+[[laconic nunc dimittis]]
+[[reinforced antimycin]]
+[[naughty hagfish]]
+[[tranquil hommos]]
+[[unresolved eptatretus]]

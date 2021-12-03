@@ -82,3 +82,8 @@ But it's coming down into one
 With what they all dark
 : A cat said I'm opening for.
 
+
+## Wikilinks load test
+
+[[low-budget flooding]]
+[[investigatory common good]]

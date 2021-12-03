@@ -83,3 +83,10 @@ sighed the Queen's voice at
 won't she stood watching it I
 : IF you call it aloud and furrows the sides of hers she
 
+
+## Wikilinks load test
+
+[[dulcet desert four oclock]]
+[[one-celled symphoricarpos alba]]
+[[operative common carline thistle]]
+[[bicornate baldrick]]

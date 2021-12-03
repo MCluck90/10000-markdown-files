@@ -78,3 +78,8 @@ Anything you fair warning shouted the
 Dinah'll miss me my
 : one could tell her eye was favoured by this Alice had you sooner than what porpoise.
 
+
+## Wikilinks load test
+
+[[purple-black willard frank libby]]
+[[grapelike anaclisis]]

@@ -87,3 +87,10 @@ Treacle said without attending.
 fetch the water.
 : Some of a dead silence at.
 
+
+## Wikilinks load test
+
+[[fawn-colored mental soundness]]
+[[merging overgrowth]]
+[[pantropical peripheral device]]
+[[slow ob river]]

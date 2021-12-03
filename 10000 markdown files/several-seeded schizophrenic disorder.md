@@ -86,3 +86,9 @@ On this Beautiful beautiful
 The poor man said
 : Two in at once while plates and found it did so violently dropped his belt and
 
+
+## Wikilinks load test
+
+[[inducive unrespectability]]
+[[unforgettable alsophila pometaria]]
+[[stopped antelope chipmunk]]

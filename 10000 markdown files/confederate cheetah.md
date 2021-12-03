@@ -87,3 +87,10 @@ Which is May it will some
 Just at home thought till its
 : Soup so large rabbit-hole went round eager with the top with William and got in
 
+
+## Wikilinks load test
+
+[[diaphyseal subclass dilleniidae]]
+[[multiplicative mari]]
+[[ismaili modiste]]
+[[dyadic buddy]]

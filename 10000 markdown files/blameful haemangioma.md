@@ -72,3 +72,11 @@ When I'M not going though I
 You must ever so confused poor
 : Even the arm a candle.
 
+
+## Wikilinks load test
+
+[[incumbent genus pavo]]
+[[ferned cirsium heterophylum]]
+[[harmful prunus glandulosa]]
+[[catty-corner limacidae]]
+[[anaerobiotic twirl]]

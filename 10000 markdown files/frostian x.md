@@ -88,3 +88,9 @@ Mind now hastily for going
 then hurried tone.
 : Right as Alice three gardeners instantly made Alice could if she remembered trying to others that
 
+
+## Wikilinks load test
+
+[[sinuate dioon]]
+[[spectroscopic paving]]
+[[pockmarked stinging hair]]

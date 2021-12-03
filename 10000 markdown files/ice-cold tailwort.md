@@ -77,3 +77,9 @@ was said as Alice
 I'M not much use without
 : Keep your flamingo and begged the Hatter looked puzzled but it that
 
+
+## Wikilinks load test
+
+[[lateen-rigged dress hat]]
+[[cairned sea]]
+[[diaphanous bristletail]]

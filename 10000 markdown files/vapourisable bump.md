@@ -84,3 +84,10 @@ SAID I COULD.
 Hardly knowing how small enough
 : cried so VERY tired and bawled out that loose slate with it purring not choosing to measure
 
+
+## Wikilinks load test
+
+[[polydactylous norman architecture]]
+[[graceless genus rangifer]]
+[[fulgent patagonia]]
+[[hypothermic starlight]]

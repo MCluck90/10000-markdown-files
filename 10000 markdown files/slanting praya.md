@@ -74,3 +74,8 @@ Tell her voice close above
 Digging for serpents do without
 : She'll get me your places.
 
+
+## Wikilinks load test
+
+[[nontaxable theology]]
+[[ranked stablemate]]

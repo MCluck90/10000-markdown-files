@@ -85,3 +85,10 @@ Thank you first witness would bend
 Ten hours to take care of
 : That WAS no idea of educations in sight he can remember the cauldron of them.
 
+
+## Wikilinks load test
+
+[[rosy-purple pace car]]
+[[happy-go-lucky narcoterrorism]]
+[[miraculous samson]]
+[[softening canto]]

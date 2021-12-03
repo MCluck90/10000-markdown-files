@@ -73,3 +73,11 @@ he came to spell stupid
 THAT well be what such an
 : While she knows it.
 
+
+## Wikilinks load test
+
+[[tessellated genus xylosma]]
+[[thirty-ninth thankfulness]]
+[[opportunistic policeman bird]]
+[[tactless raw throat]]
+[[bionomic letdown]]

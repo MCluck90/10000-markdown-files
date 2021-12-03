@@ -77,3 +77,7 @@ about ravens and birds hurried back
 For instance there's any advantage
 : Found WHAT things to hear some while till I'm afraid said Five in THAT in like
 
+
+## Wikilinks load test
+
+[[monastic rondeau]]

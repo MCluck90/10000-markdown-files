@@ -77,3 +77,10 @@ Poor Alice recognised the pepper
 It's the loveliest garden
 : thump.
 
+
+## Wikilinks load test
+
+[[uninterested haematoxylum campechianum]]
+[[trilateral bellow]]
+[[fingered toy box]]
+[[laureate sedulity]]

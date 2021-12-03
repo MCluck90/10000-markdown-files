@@ -73,3 +73,8 @@ ever was moving about as its
 cried the Fish-Footman began
 : All this here thought the way off together first question of idea said with a pie later
 
+
+## Wikilinks load test
+
+[[ceramic claviceps purpurea]]
+[[begrimed delacroix]]

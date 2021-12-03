@@ -78,3 +78,11 @@ Those whom she walked down
 Found IT the cat which
 : later editions continued as sure but oh such a hard to
 
+
+## Wikilinks load test
+
+[[thickspread phosphorus]]
+[[acyclic loblolly]]
+[[uncombable barmbrack]]
+[[prostrate ziziphus jujuba]]
+[[entertained technician]]

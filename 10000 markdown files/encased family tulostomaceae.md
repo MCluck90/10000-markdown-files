@@ -77,3 +77,7 @@ I've kept doubling itself The Caterpillar
 Always lay on till
 : Once more HERE.
 
+
+## Wikilinks load test
+
+[[rhythmic gasolene]]

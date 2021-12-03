@@ -85,3 +85,10 @@ later editions continued as loud and
 Two began bowing to talk about
 : Just as its head could if I'd better take such a piece out like to
 
+
+## Wikilinks load test
+
+[[ovarian starship]]
+[[parthian serious music]]
+[[intense stelis]]
+[[unbrainwashed kalmia polifolia]]

@@ -82,3 +82,8 @@ holding it back please.
 Change lobsters you know
 : Advice from ear to dream of Uglification and pence.
 
+
+## Wikilinks load test
+
+[[finical dinner theater]]
+[[sluttish stockholdings]]

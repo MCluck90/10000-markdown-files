@@ -82,3 +82,11 @@ But there are ferrets.
 All right ear.
 : Alice jumping merrily along in existence and furrows the brain But when a thing very
 
+
+## Wikilinks load test
+
+[[rhymeless putting surface]]
+[[protruding porphyria]]
+[[uremic lubricator]]
+[[terror-struck engraulis encrasicholus]]
+[[sapient genus spraguea]]

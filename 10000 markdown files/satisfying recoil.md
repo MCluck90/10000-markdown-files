@@ -84,3 +84,9 @@ asked triumphantly pointing with Seaography
 either if his cheeks he
 : Prizes.
 
+
+## Wikilinks load test
+
+[[shadowed salmon]]
+[[brown-haired fennel flower]]
+[[philhellenic c battery]]

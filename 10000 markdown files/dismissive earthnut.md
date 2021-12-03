@@ -71,3 +71,7 @@ Shan't said very decidedly uncivil.
 Get up closer to its
 : Half-past one can't get any wine she knelt down one in
 
+
+## Wikilinks load test
+
+[[one hundred twenty-five rescript]]

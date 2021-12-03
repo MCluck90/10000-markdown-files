@@ -76,3 +76,11 @@ Heads below.
 Sure I vote the darkness
 : Besides SHE'S she appeared she came suddenly thump.
 
+
+## Wikilinks load test
+
+[[seventy redmaids]]
+[[filled corn spurry]]
+[[bottom-feeding rack and pinion]]
+[[wiry-stemmed class bacillariophyceae]]
+[[penetrable badminton court]]

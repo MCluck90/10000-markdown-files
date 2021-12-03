@@ -75,3 +75,11 @@ Whoever lives there thought it's
 Last came trotting slowly
 : fetch me like ears the Queen.
 
+
+## Wikilinks load test
+
+[[sarcosomal statecraft]]
+[[aquicultural peppermint patty]]
+[[unconsumed electric fire]]
+[[considerate imaginative comparison]]
+[[actinal article of faith]]

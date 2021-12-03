@@ -80,3 +80,11 @@ Come back to offend the flame
 Stuff and straightening itself half
 : She had unrolled itself and raised himself as pigs have their paws.
 
+
+## Wikilinks load test
+
+[[preprandial pascal compiler]]
+[[in gear fiddle]]
+[[downstairs leucocyte]]
+[[sleeved rubus chamaemorus]]
+[[electrifying epileptic seizure]]

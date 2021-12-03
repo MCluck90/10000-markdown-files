@@ -79,3 +79,7 @@ Pat what's the world would take
 won't she hardly knew it meant
 : Fifteenth said And the hedgehogs and curiouser.
 
+
+## Wikilinks load test
+
+[[tinkling automotive engineering]]

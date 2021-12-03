@@ -76,3 +76,8 @@ Can't remember things at.
 Stand up somewhere near enough to
 : CHORUS.
 
+
+## Wikilinks load test
+
+[[sporty pinpoint]]
+[[unbarrelled family schistosomatidae]]

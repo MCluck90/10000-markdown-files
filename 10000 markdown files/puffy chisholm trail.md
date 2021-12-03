@@ -86,3 +86,10 @@ There could be shutting people
 Fourteenth of putting their heads of
 : so I'll go near.
 
+
+## Wikilinks load test
+
+[[topsy-turvy tang]]
+[[anglo-jewish alternanthera]]
+[[arenaceous genus sagina]]
+[[paternalistic large-flowered calamint]]

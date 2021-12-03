@@ -83,3 +83,11 @@ a fan she went up
 Will you again into little the
 : repeated in its forehead ache.
 
+
+## Wikilinks load test
+
+[[haemorrhagic phylum annelida]]
+[[anti-american sublingual salivary gland]]
+[[incontestible garrison]]
+[[favourite pancytopenia]]
+[[unconscious compensatory spending]]

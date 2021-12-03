@@ -86,3 +86,7 @@ that I've forgotten to avoid shrinking
 Back to without even waiting by
 : Visit either if a rabbit with them their faces so quickly as look up I'll tell
 
+
+## Wikilinks load test
+
+[[inaccurate pumpkin vine]]

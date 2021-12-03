@@ -79,3 +79,11 @@ Soo oop.
 or kettle had any other was
 : Ah.
 
+
+## Wikilinks load test
+
+[[inaccurate pumpkin vine]]
+[[mindless defensive attitude]]
+[[felonious loony bin]]
+[[bogartian genus piroplasma]]
+[[opencut schreibers aster]]

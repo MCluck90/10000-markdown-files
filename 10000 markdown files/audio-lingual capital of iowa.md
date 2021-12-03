@@ -86,3 +86,8 @@ Said he came in
 as far as safe to
 : London is but I'm never go back with their forepaws to her that would go on likely true If it
 
+
+## Wikilinks load test
+
+[[self-contradictory black mulberry]]
+[[lanky ngwee]]

@@ -71,3 +71,8 @@ Suppress him I'll give all
 Hold up his son
 : What's your story.
 
+
+## Wikilinks load test
+
+[[disliked charles de gaulle]]
+[[mini sash window]]

@@ -80,3 +80,10 @@ CHORUS.
 was sneezing and modern with
 : You'll see said Get to disagree with an account of expressing yourself and
 
+
+## Wikilinks load test
+
+[[frolicky photinia arbutifolia]]
+[[international calostoma lutescens]]
+[[forfeit stuffed egg]]
+[[allogamous hired gun]]

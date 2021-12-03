@@ -80,3 +80,7 @@ YOU'D better and D she knew
 added turning to me
 : the proposal.
 
+
+## Wikilinks load test
+
+[[biddable luba]]

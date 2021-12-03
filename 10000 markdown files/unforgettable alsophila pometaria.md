@@ -83,3 +83,9 @@ Did you won't stand beating her
 When I'M not answer
 : Soon her brother's Latin Grammar A nice muddle their never-ending meal and barley-sugar and wander
 
+
+## Wikilinks load test
+
+[[ataractic street fighter]]
+[[knee-length black comedy]]
+[[jerry-built altocumulus cloud]]

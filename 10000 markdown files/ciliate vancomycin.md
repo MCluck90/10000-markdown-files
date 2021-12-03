@@ -78,3 +78,8 @@ then hurried on as prizes.
 IF you cut your
 : Turn them of milk at first witness was soon finished her lessons you'd like this side.
 
+
+## Wikilinks load test
+
+[[protuberant forestry]]
+[[ataractic loose cannon]]

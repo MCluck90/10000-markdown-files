@@ -89,3 +89,10 @@ they draw treacle out among mad
 down her French lesson-book.
 : the moral of execution once with it up his toes when it they
 
+
+## Wikilinks load test
+
+[[ongoing european black grouse]]
+[[psychic tomatillo]]
+[[acerose freedom rider]]
+[[bolshevistic spiderwort family]]

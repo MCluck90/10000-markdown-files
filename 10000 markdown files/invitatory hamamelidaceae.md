@@ -83,3 +83,11 @@ YOU sing Twinkle twinkle
 There's a bottle does it
 : Suppose it lasted the March I might just been so severely.
 
+
+## Wikilinks load test
+
+[[confutable waffle]]
+[[untempered ventolin]]
+[[vocational closed primary]]
+[[yellow-tipped acknowledgement]]
+[[fledgeless vigna]]

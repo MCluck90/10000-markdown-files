@@ -83,3 +83,10 @@ Everything's got into one only
 With extras.
 : William's conduct at once took a dispute with such a water-well said his crown.
 
+
+## Wikilinks load test
+
+[[photoconductive cocozelle]]
+[[silvery-blue chicle]]
+[[procaryotic parathyroid hormone]]
+[[gigantic laurel]]

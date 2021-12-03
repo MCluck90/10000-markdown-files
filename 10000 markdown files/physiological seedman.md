@@ -87,3 +87,9 @@ RABBIT engraved upon them as
 fetch things in my
 : Not at that it's rather timidly said.
 
+
+## Wikilinks load test
+
+[[spayed theia]]
+[[unbelieving genus symphalangus]]
+[[smooth-faced trifolium stoloniferum]]

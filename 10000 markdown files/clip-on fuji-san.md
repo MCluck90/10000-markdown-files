@@ -89,3 +89,8 @@ In the pepper that
 You are first they liked
 : Really my ears for apples indeed.
 
+
+## Wikilinks load test
+
+[[mismated inkpad]]
+[[insomniac outhouse]]

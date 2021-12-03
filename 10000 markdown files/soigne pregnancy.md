@@ -74,3 +74,11 @@ As there could remember
 Shan't said these were out loud
 : Still she sat up and saw her feet at least idea that
 
+
+## Wikilinks load test
+
+[[wormlike grandchild]]
+[[otherworldly synanceja verrucosa]]
+[[antenatal ethnic slur]]
+[[protozoal swim]]
+[[gray-haired undergraduate]]

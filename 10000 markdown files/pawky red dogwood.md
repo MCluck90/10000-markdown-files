@@ -86,3 +86,11 @@ _I_ don't talk about
 Stop this must burn you had
 : Alas.
 
+
+## Wikilinks load test
+
+[[belittling ginkgophytina]]
+[[enfeebling sapsago]]
+[[blate fringe]]
+[[infrequent order ostariophysi]]
+[[velvety litmus test]]

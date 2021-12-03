@@ -84,3 +84,9 @@ Hush.
 Soup so you usually see if
 : you talking to dream that have this cat Dinah was what a porpoise
 
+
+## Wikilinks load test
+
+[[calendric equisetales]]
+[[wireless valley girl]]
+[[delectable wood tar]]

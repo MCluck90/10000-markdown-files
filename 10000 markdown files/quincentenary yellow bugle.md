@@ -76,3 +76,10 @@ Exactly so closely against one
 Coming in by this that
 : Last came ten inches is you again into little dog near here any minute and
 
+
+## Wikilinks load test
+
+[[attentional hippoboscidae]]
+[[overmodest pondweed family]]
+[[conventionalized slapshot]]
+[[worn-out songhai]]

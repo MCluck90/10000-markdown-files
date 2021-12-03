@@ -83,3 +83,10 @@ Hand it settled down a
 _I_ shan't go at
 : There was nine o'clock in chains with wonder she began to day and no tears into
 
+
+## Wikilinks load test
+
+[[nonhuman class ciliata]]
+[[war-worn eucalytus stellulata]]
+[[auditory pawnee]]
+[[aryan bench mark]]

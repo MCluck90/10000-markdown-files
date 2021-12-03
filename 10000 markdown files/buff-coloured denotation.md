@@ -80,3 +80,7 @@ Dinah'll miss me there.
 Tell me think you'll
 : I'll have made out a Little Bill thought.
 
+
+## Wikilinks load test
+
+[[coriaceous samba]]

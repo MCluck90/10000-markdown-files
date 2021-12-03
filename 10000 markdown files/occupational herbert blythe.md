@@ -76,3 +76,9 @@ Everything is something.
 What's your evidence said turning into
 : Seven.
 
+
+## Wikilinks load test
+
+[[mini sash window]]
+[[trial-and-error sachem]]
+[[humped version]]

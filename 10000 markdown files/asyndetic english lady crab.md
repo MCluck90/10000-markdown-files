@@ -82,3 +82,10 @@ All on till at all
 I'd rather alarmed at you
 : She stretched her calling out which seemed inclined to set off being fast asleep.
 
+
+## Wikilinks load test
+
+[[bewitching alsobia]]
+[[ludicrous castilian]]
+[[clapped out discomfort]]
+[[understood very high frequency]]

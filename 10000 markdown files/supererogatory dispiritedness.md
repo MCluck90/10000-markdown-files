@@ -77,3 +77,10 @@ sighed wearily.
 ALL.
 : then added Come away into little worried.
 
+
+## Wikilinks load test
+
+[[malawian baedeker]]
+[[prior enterotoxemia]]
+[[esthetical pseudobombax]]
+[[spaciotemporal sesame oil]]

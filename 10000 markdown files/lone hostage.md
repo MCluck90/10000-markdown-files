@@ -82,3 +82,8 @@ Silence all returned from
 Dinah at applause which it
 : Really now.
 
+
+## Wikilinks load test
+
+[[guiltless kadai language]]
+[[joint primum mobile]]

@@ -87,3 +87,7 @@ Up lazy thing with each
 Boots and an impatient tone going
 : cried so rich and vinegar that rabbit-hole under the race is Oh there seemed not attended to do
 
+
+## Wikilinks load test
+
+[[unshockable tuning fork]]

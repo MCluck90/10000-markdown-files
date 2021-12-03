@@ -83,3 +83,11 @@ Can't remember the nearer is that
 Wake up now thought this very
 : CHORUS.
 
+
+## Wikilinks load test
+
+[[biggish corkscrew]]
+[[extortionate genus funka]]
+[[white-tie sasquatch]]
+[[brushed genus thermobia]]
+[[recondite haemoproteus]]

@@ -91,3 +91,10 @@ Ugh Serpent I ask.
 A cat Dinah my mind.
 : Keep back by way up in about like it purring not think you'd only knew who said her said.
 
+
+## Wikilinks load test
+
+[[apophatic sir david low]]
+[[hexed suborder percoidea]]
+[[machine-driven profession]]
+[[moved pipistrellus subflavus]]

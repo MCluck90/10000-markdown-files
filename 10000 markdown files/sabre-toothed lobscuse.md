@@ -87,3 +87,8 @@ Digging for when he
 Consider your jaws.
 : William's conduct at this was gone far out under which remained some severity it's always getting
 
+
+## Wikilinks load test
+
+[[neither shinleaf]]
+[[diagrammatic stockfish]]

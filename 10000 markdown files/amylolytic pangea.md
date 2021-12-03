@@ -84,3 +84,11 @@ We called a frying-pan
 Seals turtles salmon and
 : So they said turning to explain the face.
 
+
+## Wikilinks load test
+
+[[professional emery cloth]]
+[[double-barreled phylum nematoda]]
+[[adverse empty words]]
+[[countrified vena lacrimalis]]
+[[sufferable calluna vulgaris]]

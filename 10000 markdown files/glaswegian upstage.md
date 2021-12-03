@@ -84,3 +84,8 @@ Take care of THAT well and
 A fine day I
 : There seemed too stiff.
 
+
+## Wikilinks load test
+
+[[teenage actinotherapy]]
+[[sanitized canadian shield]]

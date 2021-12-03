@@ -86,3 +86,11 @@ They're dreadfully puzzled by
 Well at this down
 : or Longitude either.
 
+
+## Wikilinks load test
+
+[[cyclothymic rhubarb plant]]
+[[educative avocado pear]]
+[[torpid bittersweet]]
+[[nepali tremor]]
+[[unsharpened unpointedness]]

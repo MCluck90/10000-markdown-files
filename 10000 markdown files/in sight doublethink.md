@@ -82,3 +82,9 @@ When they don't speak.
 Digging for ten inches is
 : sh.
 
+
+## Wikilinks load test
+
+[[free-enterprise kordofan]]
+[[electronegative hemipode]]
+[[contemporaneous jacques louis david]]

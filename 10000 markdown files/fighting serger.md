@@ -79,3 +79,11 @@ Beau ootiful Soo oop.
 Why there's an ignorant
 : for apples indeed.
 
+
+## Wikilinks load test
+
+[[shouldered chronic myelocytic leukemia]]
+[[needless sterility]]
+[[theological blood count]]
+[[balsamy tillage]]
+[[through with allamanda cathartica]]

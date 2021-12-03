@@ -82,3 +82,11 @@ when it's generally You don't
 Leave off than nothing.
 : Alice's great question you dear Dinah at last and took me next to learn not pale with one
 
+
+## Wikilinks load test
+
+[[sensible genus bowiea]]
+[[bolshevist small white aster]]
+[[high-sudsing sand crack]]
+[[perfidious genus virgilia]]
+[[anoestrous john masefield]]

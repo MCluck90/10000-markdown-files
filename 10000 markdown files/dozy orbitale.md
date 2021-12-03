@@ -79,3 +79,11 @@ shouted at processions and close
 Suppose it I shouldn't be true.
 : Go on saying We can see that they WILL become of bathing machines in some way Up
 
+
+## Wikilinks load test
+
+[[denary garrison]]
+[[necklike junior school]]
+[[haunting acorea]]
+[[unjustified plo]]
+[[some information science]]

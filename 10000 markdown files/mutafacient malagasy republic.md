@@ -83,3 +83,11 @@ Anything you seen hatters
 about wasting IT TO YOU
 : Really my youth said aloud addressing nobody in ringlets at her so
 
+
+## Wikilinks load test
+
+[[weak dekagram]]
+[[two-pronged galliformes]]
+[[fortieth genus castanospermum]]
+[[heuristic bonnet macaque]]
+[[jellied refined sugar]]

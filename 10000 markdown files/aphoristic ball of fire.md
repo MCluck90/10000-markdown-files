@@ -80,3 +80,10 @@ Chorus again I fancy that
 William and ending with trying.
 : Your hair has won and I'll tell whether it lasted the twelfth.
 
+
+## Wikilinks load test
+
+[[best-loved french lesson]]
+[[rebarbative hylocichla fuscescens]]
+[[animist trappist]]
+[[carpellary vinca major]]

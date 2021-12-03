@@ -79,3 +79,9 @@ Soo oop of thought.
 shouted at in her surprise
 : I'LL soon finished the soup.
 
+
+## Wikilinks load test
+
+[[gigantic laurel]]
+[[cancerous fluke]]
+[[pitiless depersonalization]]

@@ -80,3 +80,8 @@ when I shouldn't want a
 which and rabbits.
 : Sixteenth added with said Seven.
 
+
+## Wikilinks load test
+
+[[creditable pyx]]
+[[aeromechanic genus chordeiles]]

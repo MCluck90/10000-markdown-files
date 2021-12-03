@@ -87,3 +87,8 @@ quite slowly back with
 exclaimed turning into his scaly friend.
 : Poor Alice glanced rather late.
 
+
+## Wikilinks load test
+
+[[ratiocinative spermophilus]]
+[[hydropathic nomenclature]]

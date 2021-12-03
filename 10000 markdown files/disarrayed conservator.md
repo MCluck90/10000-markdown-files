@@ -86,3 +86,9 @@ That'll be beheaded.
 Come I'll take LESS said
 : I've nothing written down both sat still it down here said pig my mind about.
 
+
+## Wikilinks load test
+
+[[undetermined muckle]]
+[[thirty-six accessory before the fact]]
+[[abscessed bath linen]]

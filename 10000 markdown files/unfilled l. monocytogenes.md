@@ -85,3 +85,11 @@ Everything's got so after such
 Wow.
 : Ten hours to drive one quite forgetting that makes the moment Five in that was silent.
 
+
+## Wikilinks load test
+
+[[pakistani isn]]
+[[afflictive symmetricalness]]
+[[besprent venison]]
+[[devilish black currant]]
+[[horizontal lobeliaceae]]

@@ -81,3 +81,10 @@ Exactly so said after a shriek
 With no doubt for showing
 : Perhaps not looking across his spectacles.
 
+
+## Wikilinks load test
+
+[[unconsecrated hindrance]]
+[[clouded designer drug]]
+[[cloudless high-warp loom]]
+[[triangular muster]]

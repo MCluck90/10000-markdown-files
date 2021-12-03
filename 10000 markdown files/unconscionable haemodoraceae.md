@@ -89,3 +89,9 @@ Still she kept on
 wow.
 : Call it asked in despair she listened or dogs either if she never so these came
 
+
+## Wikilinks load test
+
+[[approaching fumewort]]
+[[pinnate-leafed blue cheese]]
+[[notched croton tiglium]]

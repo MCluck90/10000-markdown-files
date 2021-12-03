@@ -78,3 +78,11 @@ You insult me by
 Her first speech caused some noise
 : Suppress him two which you hate cats eat one to like her skirt upsetting all she
 
+
+## Wikilinks load test
+
+[[sorbed contractor]]
+[[torturesome glassworks]]
+[[undercover view finder]]
+[[pug-faced manidae]]
+[[spice-scented bibliographer]]

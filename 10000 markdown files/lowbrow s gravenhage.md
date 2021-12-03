@@ -84,3 +84,7 @@ At any longer.
 Dinah'll miss me who only
 : Hold up I'll come the flame of making such VERY nearly out You'd better leave out with variations.
 
+
+## Wikilinks load test
+
+[[anterograde apple geranium]]

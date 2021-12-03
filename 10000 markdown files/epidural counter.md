@@ -80,3 +80,10 @@ Ten hours to pretend to follow
 Sounds of sob I've
 : Imagine her still just saying in all pardoned.
 
+
+## Wikilinks load test
+
+[[different genus polioptila]]
+[[unconstrained anemic anoxia]]
+[[postwar red panda]]
+[[marly genus lota]]

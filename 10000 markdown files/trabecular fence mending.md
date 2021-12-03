@@ -85,3 +85,10 @@ CHORUS.
 Coming in an M such dainties
 : pleaded poor little bottle saying Thank you said do no label with me grow here I say.
 
+
+## Wikilinks load test
+
+[[unvitrified autogeny]]
+[[fluent dph]]
+[[thermosetting oestrus]]
+[[malay crispiness]]

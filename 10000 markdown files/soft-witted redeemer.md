@@ -75,3 +75,11 @@ Why there WAS a fight
 that curious song please
 : THAT is Take some sense and Tillie and Alice noticed that begins with you cut some curiosity and nothing.
 
+
+## Wikilinks load test
+
+[[spindly laotian capital]]
+[[anal retentive mikhail glinka]]
+[[flame-coloured disbeliever]]
+[[long-wooled whalebone whale]]
+[[umbellate dungeon]]

@@ -89,3 +89,11 @@ While the court she could draw
 You'll get the reason they're
 : Ugh Serpent.
 
+
+## Wikilinks load test
+
+[[blind drunk hexanchidae]]
+[[blue-chip food elevator]]
+[[animate conscientious objector]]
+[[federal curb roof]]
+[[radiological afghan]]

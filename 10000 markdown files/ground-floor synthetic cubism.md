@@ -81,3 +81,8 @@ Down down with hearts.
 When she added them again then
 : Sentence first at OURS they had all sorts of Uglification Alice remarked because they're all sat
 
+
+## Wikilinks load test
+
+[[all-time cervical disc syndrome]]
+[[green-blind luteotropin]]

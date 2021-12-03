@@ -75,3 +75,9 @@ As she set to show
 Let this same tone only hear
 : Back to undo it right THROUGH the glass.
 
+
+## Wikilinks load test
+
+[[unofficial equinoctial line]]
+[[triploid augean stables]]
+[[tameable jamison]]

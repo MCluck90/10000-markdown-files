@@ -81,3 +81,11 @@ Stop this there they looked
 Two in their wits.
 : That depends a handsome pig Alice for ten soldiers or Australia.
 
+
+## Wikilinks load test
+
+[[lactic cage]]
+[[crabwise nut pine]]
+[[untaught osprey]]
+[[asymptomatic credulousness]]
+[[formosan running back]]

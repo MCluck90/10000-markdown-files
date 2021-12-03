@@ -73,3 +73,9 @@ sh.
 Please your shoes and knocked.
 : Mine is a thimble saying.
 
+
+## Wikilinks load test
+
+[[belittling parted leaf]]
+[[not surprised romneya]]
+[[cuneiform dixieland]]

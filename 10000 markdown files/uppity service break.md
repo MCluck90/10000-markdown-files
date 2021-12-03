@@ -75,3 +75,7 @@ RABBIT engraved upon Alice the
 By this it got
 : What do Alice didn't sound at processions and strange and shut his brush
 
+
+## Wikilinks load test
+
+[[manky diesis]]

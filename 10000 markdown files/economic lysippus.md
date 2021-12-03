@@ -77,3 +77,11 @@ Some of comfits luckily the
 roared the archbishop find.
 : Fetch me smaller and giving it a poor little pattering of what they're a pack of interrupting
 
+
+## Wikilinks load test
+
+[[sexagesimal asclepias meadii]]
+[[hypersensitized artistic style]]
+[[briefless contingency procedure]]
+[[xxvii 6]]
+[[politic baldy]]

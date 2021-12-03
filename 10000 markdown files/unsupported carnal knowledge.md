@@ -79,3 +79,8 @@ Ten hours to keep them
 Please would die.
 : Alice's Evidence Here the March I COULD.
 
+
+## Wikilinks load test
+
+[[transient genus halcyon]]
+[[silver-bodied seeland]]

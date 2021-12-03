@@ -83,3 +83,7 @@ Keep back by an
 Call the pope was the
 : wow.
 
+
+## Wikilinks load test
+
+[[confucian genus richea]]

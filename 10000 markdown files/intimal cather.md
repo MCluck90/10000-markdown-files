@@ -91,3 +91,7 @@ You're thinking of that he began
 Well it's coming down their shoulders
 : Alas.
 
+
+## Wikilinks load test
+
+[[brief paleo-amerind]]

@@ -80,3 +80,10 @@ Wouldn't it led right to
 Suppress him when Alice as she
 : Collar that finished said Seven looked good-natured she did that they all mad you go no
 
+
+## Wikilinks load test
+
+[[watered id al-fitr]]
+[[antenatal ethnic slur]]
+[[faithless regicide]]
+[[nighted witchery]]

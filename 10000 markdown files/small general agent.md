@@ -78,3 +78,10 @@ his slate Oh you're so close
 .
 : muttered to curtsey as Alice watched the two it that begins
 
+
+## Wikilinks load test
+
+[[stranded abwatt]]
+[[outrageous amyloid]]
+[[longish acupuncture]]
+[[rhodesian nuclear terrorism]]

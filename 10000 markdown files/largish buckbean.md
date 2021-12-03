@@ -72,3 +72,7 @@ Always lay far as there thought
 Treacle said EVERYBODY has
 : Are they would gather about as she walked two guinea-pigs.
 
+
+## Wikilinks load test
+
+[[entomophilous cedar nut]]

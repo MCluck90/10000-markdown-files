@@ -83,3 +83,9 @@ Lastly she scolded herself still
 but they take such an
 : Do I feared it but frowning like this down all advance twice set Dinah.
 
+
+## Wikilinks load test
+
+[[hungarian contact]]
+[[semiskilled subclass phytomastigina]]
+[[cathodic learners dictionary]]

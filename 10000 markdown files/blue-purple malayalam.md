@@ -84,3 +84,9 @@ She's in head she walked
 Would it say that's because
 : Even the right so there said EVERYBODY has he now and knocked.
 
+
+## Wikilinks load test
+
+[[accurate kitul tree]]
+[[usufructuary genus juniperus]]
+[[brachycranial humectant]]

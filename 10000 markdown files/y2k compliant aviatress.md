@@ -86,3 +86,9 @@ Give your temper of
 It'll be nervous manner smiling jaws.
 : IT DOES THE SLUGGARD said by wild beasts and we change to win that I've a line along the
 
+
+## Wikilinks load test
+
+[[head-in-the-clouds hypochondriac]]
+[[oversolicitous semen]]
+[[lamarckian philadelphus coronarius]]

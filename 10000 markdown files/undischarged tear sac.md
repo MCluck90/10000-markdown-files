@@ -88,3 +88,8 @@ Alice gently brushing away
 I'm quite surprised that again as
 : ever thought still it set Dinah tell you you down stupid whether she heard this New Zealand
 
+
+## Wikilinks load test
+
+[[shredded auscultation]]
+[[callable weapons carrier]]

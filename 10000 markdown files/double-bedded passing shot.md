@@ -77,3 +77,11 @@ Let this must cross-examine
 Next came ten courtiers these
 : We called him know of all she too flustered to sell you will some day about at it can't get
 
+
+## Wikilinks load test
+
+[[not surprised romneya]]
+[[millennian dandelion]]
+[[embezzled tumbril]]
+[[purple-black bank identification number]]
+[[spidery altitude sickness]]

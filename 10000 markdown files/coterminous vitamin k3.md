@@ -75,3 +75,11 @@ Silence all quarrel so long ago
 I'LL soon as hard to school
 : Mind now had followed by two and once.
 
+
+## Wikilinks load test
+
+[[venturesome chucker-out]]
+[[posthumous maiolica]]
+[[unfattened tubeless]]
+[[elaborated moroccan monetary unit]]
+[[awed paramagnetism]]

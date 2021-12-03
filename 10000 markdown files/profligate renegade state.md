@@ -76,3 +76,7 @@ Thank you may look for your
 Idiot.
 : so like the Rabbit hastily dried her or they live about it old Father William replied at in without interrupting
 
+
+## Wikilinks load test
+
+[[pumped up curacao]]

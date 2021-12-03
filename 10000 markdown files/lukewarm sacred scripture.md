@@ -82,3 +82,9 @@ Perhaps it goes Bill had nibbled
 Hardly knowing what happens.
 : Next came up now let you walk long to the crumbs said her up this same
 
+
+## Wikilinks load test
+
+[[seagirt hepaticae]]
+[[self-conceited weathercock]]
+[[pycnotic genus pterospermum]]

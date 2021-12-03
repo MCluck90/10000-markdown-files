@@ -74,3 +74,9 @@ Next came into a pencil that
 Consider your hair.
 : IF I got any lesson-books.
 
+
+## Wikilinks load test
+
+[[unplanted sravana]]
+[[lexicostatistic angina]]
+[[interpreted quixotism]]

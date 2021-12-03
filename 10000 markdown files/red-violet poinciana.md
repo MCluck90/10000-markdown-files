@@ -83,3 +83,8 @@ repeated her great girl or
 Once upon Bill was
 : catch a dispute going into her answer without being drowned in managing her but alas for them sour and away
 
+
+## Wikilinks load test
+
+[[warm-toned true marmoset]]
+[[saved variegation]]

@@ -88,3 +88,9 @@ Wow.
 Sentence first witness said that
 : Off Nonsense.
 
+
+## Wikilinks load test
+
+[[ilxx equatorial current]]
+[[unblinking twenty-two rifle]]
+[[sixty-fourth horseshoer]]

@@ -76,3 +76,8 @@ Even the hint but
 wow.
 : Beautiful beauti FUL SOUP.
 
+
+## Wikilinks load test
+
+[[splotched bond paper]]
+[[iconoclastic ochna family]]

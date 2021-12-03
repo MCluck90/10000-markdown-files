@@ -84,3 +84,9 @@ Even the Dormouse's place
 Beautiful beauti FUL SOUP.
 : Dinah here lad.
 
+
+## Wikilinks load test
+
+[[adscript life eternal]]
+[[fawn-colored mental soundness]]
+[[addled flatbed]]

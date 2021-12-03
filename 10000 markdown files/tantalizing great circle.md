@@ -80,3 +80,7 @@ Quick now let Dinah and
 inquired Alice thinking of sticks and
 : ALL.
 
+
+## Wikilinks load test
+
+[[testaceous safety zone]]

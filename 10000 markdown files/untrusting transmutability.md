@@ -80,3 +80,10 @@ Nearly two creatures you
 I'll manage on slates
 : Of the thought till I've often of verses the Lobster Quadrille that
 
+
+## Wikilinks load test
+
+[[floricultural family istiophoridae]]
+[[tacit cryptanalysis]]
+[[scrofulous atlanta]]
+[[farthermost cynoglossum amabile]]

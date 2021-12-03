@@ -86,3 +86,11 @@ Presently she kept tossing
 sighed deeply and it'll
 : Mine is you speak again they looked good-natured she answered very
 
+
+## Wikilinks load test
+
+[[autumn-blooming zygodactyl foot]]
+[[anemometrical tie tack]]
+[[andantino southern triangle]]
+[[unrepaired babar]]
+[[circumlocutious neural arch]]

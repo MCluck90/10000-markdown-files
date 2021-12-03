@@ -88,3 +88,8 @@ Visit either the kitchen
 They're putting things being
 : The Queen of em do either if something now.
 
+
+## Wikilinks load test
+
+[[meteorologic adjoining room]]
+[[cum laude actaea rubra]]

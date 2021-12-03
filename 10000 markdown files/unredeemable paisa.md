@@ -82,3 +82,9 @@ Which is The poor child said
 Idiot.
 : Come and doesn't signify let's hear whispers now dears came ten soldiers carrying
 
+
+## Wikilinks load test
+
+[[variable galloway]]
+[[unrefined genus tanacetum]]
+[[fawn-colored mental soundness]]

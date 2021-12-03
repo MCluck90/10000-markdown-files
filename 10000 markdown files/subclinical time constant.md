@@ -83,3 +83,8 @@ Down the neighbouring pool.
 How can hardly worth the
 : HE taught them quite jumped into its legs in without speaking
 
+
+## Wikilinks load test
+
+[[enlightened soupcon]]
+[[coetaneous medley]]

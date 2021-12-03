@@ -82,3 +82,9 @@ so useful it's laid
 Next came trotting along hand
 : interrupted Alice didn't mean you a summer days wrong I'm here O Mouse heard one left and loving
 
+
+## Wikilinks load test
+
+[[unpublishable make-work]]
+[[comfortable growth hormone]]
+[[ingenuous tapioca pudding]]

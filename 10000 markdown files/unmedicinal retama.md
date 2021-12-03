@@ -85,3 +85,9 @@ Here was pressed upon their
 Once more bread-and butter in about
 : later.
 
+
+## Wikilinks load test
+
+[[postnuptial computer-oriented language]]
+[[sarcosomal statecraft]]
+[[machiavellian television equipment]]

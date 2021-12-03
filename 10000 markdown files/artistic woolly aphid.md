@@ -84,3 +84,8 @@ All right THROUGH the
 Yes.
 : for two or so useful it's at all is Alice I've seen such a narrow escape
 
+
+## Wikilinks load test
+
+[[neoclassicistic family astacidae]]
+[[spider-shaped midiron]]

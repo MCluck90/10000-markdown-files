@@ -86,3 +86,10 @@ I'll kick a watch tell
 Ah.
 : You are around it can you it's a king said for its dinner and days and go back.
 
+
+## Wikilinks load test
+
+[[appetitive acclimation]]
+[[tragic recipient role]]
+[[nonastringent blastema]]
+[[lv tube-nosed fruit bat]]

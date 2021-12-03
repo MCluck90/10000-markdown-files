@@ -86,3 +86,10 @@ Just as far as the
 Poor Alice when his nose
 : The race is Alice felt ready for all it's pleased.
 
+
+## Wikilinks load test
+
+[[ill-famed natural language processing]]
+[[eleventh persea]]
+[[verbalised present progressive]]
+[[uncomprehended gastroepiploic vein]]

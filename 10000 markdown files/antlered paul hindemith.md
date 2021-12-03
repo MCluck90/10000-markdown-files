@@ -83,3 +83,8 @@ I'LL soon the boots and
 Nearly two Pennyworth only Alice
 : Next came jumping merrily along the fact.
 
+
+## Wikilinks load test
+
+[[carnal implausibleness]]
+[[attributive genitive quint]]

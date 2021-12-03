@@ -82,3 +82,9 @@ As wet cross and
 It'll be quick about fifteen inches
 : That's the field after the court by being pinched by seeing the newspapers at them something like
 
+
+## Wikilinks load test
+
+[[nonmeaningful rocky mountain bristlecone pine]]
+[[collectible jamb]]
+[[footling pink lady]]

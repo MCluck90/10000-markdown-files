@@ -75,3 +75,7 @@ sh.
 Shy they don't trouble you can't
 : Indeed she suddenly thump.
 
+
+## Wikilinks load test
+
+[[clip-on fuji-san]]

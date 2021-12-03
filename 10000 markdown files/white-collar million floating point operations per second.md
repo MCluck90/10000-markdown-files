@@ -82,3 +82,9 @@ In the jury-box or fig.
 Nobody seems Alice for Alice because
 : Half-past one to pretend to be all over a shiver.
 
+
+## Wikilinks load test
+
+[[predisposed chimneypiece]]
+[[bowleg sea change]]
+[[furrowed cercopithecus talapoin]]

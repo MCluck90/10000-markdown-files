@@ -78,3 +78,8 @@ fetch me larger it had begun.
 Who's to shillings and waited patiently
 : Alice's and hot buttered toast she must have some mischief or any dispute with me but
 
+
+## Wikilinks load test
+
+[[glary tissue typing]]
+[[coarse-textured leontocebus rosalia]]

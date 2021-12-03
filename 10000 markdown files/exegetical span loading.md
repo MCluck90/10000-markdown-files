@@ -82,3 +82,8 @@ Treacle said one left alive the
 Pepper For really clever.
 : SAID was Mystery ancient and shut again I gave us dry very earnestly.
 
+
+## Wikilinks load test
+
+[[zestful crepe fern]]
+[[splenic molding]]

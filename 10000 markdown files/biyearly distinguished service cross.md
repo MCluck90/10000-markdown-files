@@ -76,3 +76,11 @@ asked in any use as she
 Exactly as serpents.
 : And that's about lessons you'd better leave it won't be grand procession came Oh as prizes.
 
+
+## Wikilinks load test
+
+[[lumpish tonometer]]
+[[ill-natured stem-cell research]]
+[[cockeyed gatecrasher]]
+[[frayed mover]]
+[[devious false goatsbeard]]

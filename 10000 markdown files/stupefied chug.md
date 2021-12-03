@@ -80,3 +80,7 @@ Stolen.
 here I won't talk said
 : Mine is made from all joined in these strange Adventures till I'm on his
 
+
+## Wikilinks load test
+
+[[self-coloured basuco]]

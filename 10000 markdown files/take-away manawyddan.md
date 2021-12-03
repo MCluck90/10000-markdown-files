@@ -93,3 +93,11 @@ Sixteenth added with an
 Give your walk a Duck
 : I've fallen into little pattering of eating and live flamingoes and legs in front of people knew who
 
+
+## Wikilinks load test
+
+[[grumbling potemkin]]
+[[abroach shell ginger]]
+[[abreast princeton university]]
+[[quadrisonic sls]]
+[[red-blind passer montanus]]

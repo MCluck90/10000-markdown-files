@@ -89,3 +89,9 @@ Mind now run in dancing.
 CHORUS.
 : When the eleventh day.
 
+
+## Wikilinks load test
+
+[[double-geared battle of guadalcanal]]
+[[deaf degenerate]]
+[[cool-white venae centrales hepatis]]

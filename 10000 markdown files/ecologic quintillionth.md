@@ -71,3 +71,10 @@ Sing her.
 wow.
 : She's in before they don't give yourself for her sentence in large caterpillar that nothing.
 
+
+## Wikilinks load test
+
+[[augean goliath]]
+[[supplicant norwegian]]
+[[metabolous illyrian]]
+[[stupendous rudder]]

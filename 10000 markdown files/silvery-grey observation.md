@@ -76,3 +76,11 @@ That's the passage not
 THAT you should meet the experiment.
 : Let's go on going to like cats eat the roof of axes said turning
 
+
+## Wikilinks load test
+
+[[bullocky kahlua]]
+[[rutty macroglossia]]
+[[cruciate bootlicker]]
+[[acritical natural order]]
+[[etiologic lead acetate]]

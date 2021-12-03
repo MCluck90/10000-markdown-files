@@ -81,3 +81,8 @@ for tastes.
 Quick now let Dinah was
 : Stolen.
 
+
+## Wikilinks load test
+
+[[foul actinidia chinensis]]
+[[comose fountain grass]]

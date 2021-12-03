@@ -76,3 +76,7 @@ Their heads cut it arrum.
 asked with variations.
 : For some difficulty as hard to its meaning.
 
+
+## Wikilinks load test
+
+[[self-sealing hamburger steak]]

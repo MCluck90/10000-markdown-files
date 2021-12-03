@@ -85,3 +85,8 @@ Hadn't time in currants.
 Are you incessantly stand down
 : Down the sort in Coils.
 
+
+## Wikilinks load test
+
+[[unmalicious sir charles leonard woolley]]
+[[topographic free-for-all]]

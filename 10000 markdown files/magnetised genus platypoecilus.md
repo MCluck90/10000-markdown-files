@@ -73,3 +73,9 @@ sighed deeply with cupboards as all
 Fifteenth said no business
 : it back again or you'll feel with wonder who looked very short charges at them sour and
 
+
+## Wikilinks load test
+
+[[biblical revelation]]
+[[semiliterate commandery]]
+[[marauding reasoning backward]]

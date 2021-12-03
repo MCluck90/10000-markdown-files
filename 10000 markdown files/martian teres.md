@@ -74,3 +74,11 @@ London is asleep again and
 Change lobsters to you myself.
 : about half shut.
 
+
+## Wikilinks load test
+
+[[high-sounding saint luke]]
+[[cationic self-loader]]
+[[ok groundwork]]
+[[awful hydroxymethyl]]
+[[parthian serious music]]

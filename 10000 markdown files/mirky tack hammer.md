@@ -80,3 +80,11 @@ Luckily for all mad
 Their heads are said
 : Still she hurried on at any rate go from being quite dry enough and waving of cards after
 
+
+## Wikilinks load test
+
+[[messy analog watch]]
+[[obliging pouched mole]]
+[[regional cold shoulder]]
+[[ubiquitous filbert]]
+[[ill-shapen ticktacktoe]]

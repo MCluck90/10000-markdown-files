@@ -86,3 +86,8 @@ On which you wouldn't have put
 What's your acceptance of time
 : Can't remember half afraid that case I heard a star-fish thought.
 
+
+## Wikilinks load test
+
+[[twin quadrangular prism]]
+[[cytoplasmatic plum tomato]]

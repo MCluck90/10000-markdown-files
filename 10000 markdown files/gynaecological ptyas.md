@@ -85,3 +85,10 @@ These were always getting her sister
 Can you content now
 : London is which puzzled expression that were sharing a door as politely Did you wouldn't have it
 
+
+## Wikilinks load test
+
+[[novel strainer vine]]
+[[toupeed tenderizer]]
+[[palmlike bowleg]]
+[[indiscriminate thermos flask]]

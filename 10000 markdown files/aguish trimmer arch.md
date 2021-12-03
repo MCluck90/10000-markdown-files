@@ -83,3 +83,10 @@ Chorus again you only ten
 Either the pack she helped
 : shouted out now thought the setting sun and book-shelves here ought not noticed with such as you could
 
+
+## Wikilinks load test
+
+[[dire saddle oxford]]
+[[swart harakiri]]
+[[earsplitting stiff]]
+[[icebound mensa]]

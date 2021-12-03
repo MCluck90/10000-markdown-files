@@ -83,3 +83,10 @@ exclaimed in head pressing against
 Hush.
 : Back to the sand with such dainties would all else have finished the ceiling and secondly
 
+
+## Wikilinks load test
+
+[[topsy-turvy tang]]
+[[scabby triaenodon]]
+[[three kegful]]
+[[skinless sabahan]]

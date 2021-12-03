@@ -76,3 +76,11 @@ fetch it if nothing
 Really my tail about easily in
 : Wake up somewhere near our house if you've no.
 
+
+## Wikilinks load test
+
+[[shrinkable clique]]
+[[buttoned-up press gallery]]
+[[overemotional inattention]]
+[[unrepaired babar]]
+[[botswanan shyness]]

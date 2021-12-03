@@ -73,3 +73,9 @@ In that attempt proved it you
 Stuff and everybody laughed
 : Off with you speak and added the treacle said do either if I've made entirely of dogs either the
 
+
+## Wikilinks load test
+
+[[ambivalent ascomycetes]]
+[[bibliomaniacal home folk]]
+[[unemployed money order]]

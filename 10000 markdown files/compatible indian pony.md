@@ -83,3 +83,9 @@ Stolen.
 IF you fond of footsteps in
 : Once more sounds of tears.
 
+
+## Wikilinks load test
+
+[[dicey 24-karat gold]]
+[[impure ash cake]]
+[[irrecoverable wonderer]]

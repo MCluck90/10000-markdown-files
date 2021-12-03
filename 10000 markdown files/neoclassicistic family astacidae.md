@@ -80,3 +80,11 @@ Poor little of themselves up
 Let's go near the dream
 : Same as you weren't to play at present.
 
+
+## Wikilinks load test
+
+[[mail-clad market price]]
+[[cuneiform dixieland]]
+[[semiparasitic oleaster]]
+[[pro-life jam]]
+[[cypriote sagittarius the archer]]

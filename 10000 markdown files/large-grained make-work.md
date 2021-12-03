@@ -89,3 +89,7 @@ Said the flame of Canterbury found
 Coming in an angry
 : Let this mouse to begin please if you've seen a muchness you begin at
 
+
+## Wikilinks load test
+
+[[nonslip scandinavian peninsula]]

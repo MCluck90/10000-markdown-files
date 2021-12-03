@@ -75,3 +75,8 @@ William replied what's that
 Imagine her favourite word I
 : Have you coward.
 
+
+## Wikilinks load test
+
+[[amerindic edible-podded pea]]
+[[rousing vittariaceae]]

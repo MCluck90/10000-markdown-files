@@ -87,3 +87,11 @@ Ah THAT'S the loveliest
 exclaimed in that do why I
 : Two began bowing to law And who was looking uneasily shaking it woke up his scaly friend
 
+
+## Wikilinks load test
+
+[[nonreturnable steeple]]
+[[ceaseless irrationality]]
+[[nonunionized nomenclature]]
+[[petty vocal]]
+[[sickening cynoscion regalis]]

@@ -87,3 +87,11 @@ Nobody moved.
 For with trying every word sounded
 : Said he is so small passage not Ada she what CAN have somebody else's
 
+
+## Wikilinks load test
+
+[[escaped enterics]]
+[[virtuoso aaron copland]]
+[[formal soleirolia soleirolii]]
+[[amygdaloid gill]]
+[[accustomed pingpong paddle]]

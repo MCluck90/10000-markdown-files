@@ -81,3 +81,10 @@ Perhaps not come wrong
 Keep back for this
 : Ahem.
 
+
+## Wikilinks load test
+
+[[dexter full-wave rectifier]]
+[[paleontological european wood mouse]]
+[[subjacent california allspice]]
+[[ill-tempered pediatrician]]

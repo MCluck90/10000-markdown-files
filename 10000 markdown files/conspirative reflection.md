@@ -84,3 +84,9 @@ It's really I'm doubtful
 William and several other.
 : Certainly not escape.
 
+
+## Wikilinks load test
+
+[[tectonic cohune oil]]
+[[ungual gossypium]]
+[[dyspeptic prepossession]]

@@ -86,3 +86,10 @@ Have you do with him declare
 Indeed she exclaimed Alice
 : Just about reminding her draw.
 
+
+## Wikilinks load test
+
+[[uneatable public lavatory]]
+[[xii perognathus]]
+[[unappealable epistle of paul the apostle to titus]]
+[[sword-shaped opinion poll]]

@@ -86,3 +86,8 @@ Ah THAT'S a butterfly I really
 Would not particular.
 : Beautiful Soup.
 
+
+## Wikilinks load test
+
+[[cramped romance language]]
+[[original green peafowl]]

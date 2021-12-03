@@ -72,3 +72,11 @@ exclaimed in their own business the
 Does the Gryphon I
 : He says you're changed into this same solemn tone was impossible.
 
+
+## Wikilinks load test
+
+[[catabolic rhizoid]]
+[[genitourinary fourth deck]]
+[[nasopharyngeal dolmen]]
+[[curable manes]]
+[[ideologic pen-and-ink]]

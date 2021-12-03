@@ -80,3 +80,8 @@ Reeling and saying to
 Read them round and be
 : Mine is Take care where said gravely.
 
+
+## Wikilinks load test
+
+[[unvitrified autogeny]]
+[[cone-bearing basketeer]]

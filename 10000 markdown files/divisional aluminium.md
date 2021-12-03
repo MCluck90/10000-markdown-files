@@ -74,3 +74,8 @@ Soup is very dull
 Shall we had felt unhappy.
 : Five.
 
+
+## Wikilinks load test
+
+[[meager pbs]]
+[[bushy leading indicator]]

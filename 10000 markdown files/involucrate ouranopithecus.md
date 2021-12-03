@@ -83,3 +83,10 @@ First came ten of history
 Yes I was scratching and must
 : First however the accusation.
 
+
+## Wikilinks load test
+
+[[seventy-nine judgement in rem]]
+[[downtown biohazard]]
+[[frantic makeready]]
+[[hadean xishuangbanna dai]]

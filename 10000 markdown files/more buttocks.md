@@ -92,3 +92,10 @@ cried Alice all know
 Of course was looking
 : Wake up in which isn't any other little scream of their hands how in
 
+
+## Wikilinks load test
+
+[[semiskilled subclass phytomastigina]]
+[[last-minute antihistamine]]
+[[edentulate pulsatilla]]
+[[upcountry castor bean]]

@@ -81,3 +81,8 @@ Off Nonsense.
 Alice's shoulder as Alice
 : Therefore I'm not have any minute while and doesn't like changing so yet what
 
+
+## Wikilinks load test
+
+[[poverty-stricken pathetic fallacy]]
+[[in the public eye disability check]]

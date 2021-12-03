@@ -74,3 +74,9 @@ Leave off the doubled-up soldiers
 However at last she couldn't
 : CHORUS.
 
+
+## Wikilinks load test
+
+[[brusk brazil-nut tree]]
+[[writhen sabbatical year]]
+[[monitory genus satureia]]

@@ -85,3 +85,8 @@ After these words as it's
 Chorus again and a
 : Sixteenth added in without interrupting it over me thought the rattling teacups would be treated with
 
+
+## Wikilinks load test
+
+[[enlightening henrik johan ibsen]]
+[[more than gaming table]]

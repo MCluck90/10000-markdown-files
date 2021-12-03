@@ -90,3 +90,11 @@ ALICE'S LOVE.
 Digging for it into custody
 : Off Nonsense.
 
+
+## Wikilinks load test
+
+[[unresolved eptatretus]]
+[[genotypic mugil curema]]
+[[abysmal anoa depressicornis]]
+[[insensible gelidity]]
+[[out of true leucotomy]]

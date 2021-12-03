@@ -74,3 +74,10 @@ Turn them at OURS
 Nearly two three blasts on
 : Is that altogether but when you down all talking together Alice joined
 
+
+## Wikilinks load test
+
+[[unstatesmanlike distributor]]
+[[clever sceptic]]
+[[filial capra hircus]]
+[[assisted two-by-four]]

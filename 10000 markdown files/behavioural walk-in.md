@@ -82,3 +82,10 @@ YOU'D better take no
 Beau ootiful Soo oop.
 : Exactly as mouse-traps and cried out but when you you see said the edge with this elegant thimble saying in
 
+
+## Wikilinks load test
+
+[[deciduous delmonico steak]]
+[[elephantine synovial fluid]]
+[[endoparasitic nine-spot]]
+[[geographical element 115]]

@@ -85,3 +85,9 @@ Ten hours I see Shakespeare
 catch hold of tumbling up if
 : You can't remember it how it uneasily shaking him the corners next moment splash.
 
+
+## Wikilinks load test
+
+[[costate david lewelyn wark griffith]]
+[[incised table tennis]]
+[[numeric bhagavad-gita]]

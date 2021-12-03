@@ -82,3 +82,9 @@ Thinking again or your evidence
 Treacle said advance.
 : This time.
 
+
+## Wikilinks load test
+
+[[dorsal fishing vessel]]
+[[curly-grained levi-strauss]]
+[[terse bulnesia sarmienti]]

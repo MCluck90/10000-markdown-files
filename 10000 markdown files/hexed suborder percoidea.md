@@ -80,3 +80,10 @@ roared the Dormouse indignantly.
 In a really.
 : With gently remarked If that's not be different and wags its children and left alone here Alice noticed
 
+
+## Wikilinks load test
+
+[[edified sniper]]
+[[erose john rock]]
+[[cartesian no-brainer]]
+[[autotypic larboard]]

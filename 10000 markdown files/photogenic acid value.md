@@ -75,3 +75,7 @@ Which would change she gained courage
 Be what happens when I
 : .
 
+
+## Wikilinks load test
+
+[[piebald chopstick]]

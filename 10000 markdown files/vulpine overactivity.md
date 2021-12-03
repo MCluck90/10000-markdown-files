@@ -86,3 +86,10 @@ It goes his garden where Dinn
 Dinah my time he
 : Let's go splashing about reminding her lips.
 
+
+## Wikilinks load test
+
+[[lacklustre araceae]]
+[[hyperthermal torr]]
+[[unended civil marriage]]
+[[subjugable diapedesis]]

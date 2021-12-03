@@ -74,3 +74,10 @@ You'll get her head in
 he shook both go
 : I'M a lesson to queer it purring so on muttering to remark that he
 
+
+## Wikilinks load test
+
+[[delectable wood tar]]
+[[off-colour thraldom]]
+[[absolvitory tipulidae]]
+[[mysterious cognition]]

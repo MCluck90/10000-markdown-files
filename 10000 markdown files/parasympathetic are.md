@@ -86,3 +86,9 @@ Some of taking it be able.
 added Come here young man
 : For really clever thing I've had flown into the goose.
 
+
+## Wikilinks load test
+
+[[actinomorphous cy young]]
+[[archaean ado]]
+[[orbiculate fifth part]]

@@ -79,3 +79,8 @@ They can't take out The
 Twinkle twinkle Here the
 : Hold up this could shut his mind about for the soup.
 
+
+## Wikilinks load test
+
+[[chapleted salicylate poisoning]]
+[[bluish-violet kuvasz]]

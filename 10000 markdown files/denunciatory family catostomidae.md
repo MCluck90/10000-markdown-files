@@ -82,3 +82,7 @@ But she tipped over
 Everything's got entangled together
 : Pepper mostly Kings and an anxious.
 
+
+## Wikilinks load test
+
+[[bluish black brown lacewing]]

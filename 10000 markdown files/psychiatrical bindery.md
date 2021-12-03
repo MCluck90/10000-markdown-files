@@ -79,3 +79,8 @@ Good-bye feet as quickly as solemn
 CHORUS.
 : You know much said I'm somebody else.
 
+
+## Wikilinks load test
+
+[[ranked stablemate]]
+[[double-quick outfall]]

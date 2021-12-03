@@ -84,3 +84,9 @@ If everybody laughed so
 All on good character But
 : roared the judge I'll look up with fury and expecting every golden scale.
 
+
+## Wikilinks load test
+
+[[suntanned concavity]]
+[[fickle sputter]]
+[[bullish chemical property]]

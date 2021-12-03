@@ -81,3 +81,7 @@ If everybody executed.
 IF you ask the
 : wow.
 
+
+## Wikilinks load test
+
+[[cathodic five-finger]]

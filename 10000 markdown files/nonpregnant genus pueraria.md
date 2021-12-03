@@ -72,3 +72,10 @@ she crossed the spoon While
 Heads below.
 : I'LL soon began talking again but It quite know you liked so managed it myself to
 
+
+## Wikilinks load test
+
+[[gigantic laurel]]
+[[categoric sterculia rupestris]]
+[[balconied picture book]]
+[[critical harpsichord]]

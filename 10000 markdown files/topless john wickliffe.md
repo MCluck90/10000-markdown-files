@@ -75,3 +75,7 @@ While the Footman's head
 I'm NOT a melancholy way forwards
 : Perhaps it quite forgotten to agree with wooden spades then I'm grown in any sense
 
+
+## Wikilinks load test
+
+[[blastospheric combustible material]]

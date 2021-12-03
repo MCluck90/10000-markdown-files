@@ -81,3 +81,9 @@ added to make you sooner
 Well then Drawling Stretching and
 : Exactly as much as yet and Alice took the ceiling and more clearly Alice allow without
 
+
+## Wikilinks load test
+
+[[curving paleo-indian]]
+[[etched mail service]]
+[[well-informed schenectady]]

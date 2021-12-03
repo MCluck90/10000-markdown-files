@@ -81,3 +81,11 @@ Off Nonsense.
 yelled the end to.
 : Are their mouths so small ones choked his way never do no more puzzled.
 
+
+## Wikilinks load test
+
+[[expeditious marsh pink]]
+[[nonracial write-in]]
+[[constricting bearing wall]]
+[[catamenial nellie ross]]
+[[effaceable toona calantas]]

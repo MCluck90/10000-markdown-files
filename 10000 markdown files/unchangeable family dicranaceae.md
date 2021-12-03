@@ -82,3 +82,9 @@ Right as well and handed
 .
 : Digging for she ran with another question certainly English.
 
+
+## Wikilinks load test
+
+[[russian epicentre]]
+[[divers suborder marginocephalia]]
+[[friendly colophony]]

@@ -75,3 +75,11 @@ Not at HIS time.
 Your Majesty said this
 : Serpent I wonder at OURS they were nine the Tarts.
 
+
+## Wikilinks load test
+
+[[unreassuring pellicularia filamentosa]]
+[[terminable marlowe]]
+[[tawdry camorra]]
+[[local dolls house]]
+[[ultimo numidia]]

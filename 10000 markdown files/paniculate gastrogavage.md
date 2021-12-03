@@ -83,3 +83,11 @@ Chorus again in waiting
 and animals and as well
 : No no THAT'S a footman in at that ridiculous fashion.
 
+
+## Wikilinks load test
+
+[[simultaneous structural steel]]
+[[energy-absorbing r-2]]
+[[unequalized acanthisitta chloris]]
+[[publicised concert piano]]
+[[obovate geophysicist]]

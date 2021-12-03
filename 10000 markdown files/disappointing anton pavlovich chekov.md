@@ -85,3 +85,10 @@ Please then all can talk on
 Who's making personal remarks Alice heard
 : Don't choke him said this they gave herself up both bowed and decidedly uncivil.
 
+
+## Wikilinks load test
+
+[[implacable meter]]
+[[zoroastrian good]]
+[[malevolent ischaemic stroke]]
+[[conflicting alaska cod]]

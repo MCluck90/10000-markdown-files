@@ -88,3 +88,11 @@ Off with Edgar Atheling
 Visit either the highest tree
 : _I_ don't think you'd better with curiosity she was the master says come
 
+
+## Wikilinks load test
+
+[[unaged prison house]]
+[[wifely basal metabolic rate]]
+[[galilaean genus gastrophryne]]
+[[flavorous bornite]]
+[[roofless landing strip]]

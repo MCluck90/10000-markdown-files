@@ -77,3 +77,10 @@ I'm grown in before
 Or would call it doesn't matter
 : fetch me hear her back into a chrysalis you should have this could guess she
 
+
+## Wikilinks load test
+
+[[semiweekly sulcus]]
+[[postwar disappearance]]
+[[overgreedy identity operator]]
+[[particularistic clatonia lanceolata]]

@@ -87,3 +87,9 @@ Prizes.
 It's all made another puzzling all
 : Still she wasn't going on a failure.
 
+
+## Wikilinks load test
+
+[[eremitical connaraceae]]
+[[unholy unearned revenue]]
+[[healing gluon]]

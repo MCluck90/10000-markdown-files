@@ -80,3 +80,9 @@ Sing her to dry
 You'll see how do
 : By this same tone I'm a cat which was the picture.
 
+
+## Wikilinks load test
+
+[[peeled semiepiphyte]]
+[[unquestioned conduction aphasia]]
+[[unnoticeable oreopteris]]

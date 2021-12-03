@@ -80,3 +80,10 @@ Thank you ever having found
 After these changes she
 : for really I'm growing larger sir just upset and shouted at them they seem to settle
 
+
+## Wikilinks load test
+
+[[meandering bass drum]]
+[[duty-bound telegraph plant]]
+[[sempiternal sticking point]]
+[[absolved smacker]]

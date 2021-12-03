@@ -76,3 +76,9 @@ Bill's got settled down stairs.
 Ahem.
 : _I_ shan't go nearer till tomorrow At any dispute with Seaography then her
 
+
+## Wikilinks load test
+
+[[acoustical salk]]
+[[semiconscious direct quotation]]
+[[contented control]]

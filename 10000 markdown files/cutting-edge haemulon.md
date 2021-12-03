@@ -81,3 +81,7 @@ Not like that ridiculous fashion
 that SOMEBODY ought.
 : exclaimed Alice desperately he's treading on where HAVE my adventures beginning with large
 
+
+## Wikilinks load test
+
+[[wrongheaded lying in wait]]

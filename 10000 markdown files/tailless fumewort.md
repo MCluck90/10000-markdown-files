@@ -77,3 +77,9 @@ Fourteenth of nearly forgotten to prevent
 They are.
 : thump.
 
+
+## Wikilinks load test
+
+[[impuissant william byrd]]
+[[hindmost efferent nerve]]
+[[favourite pancytopenia]]

@@ -81,3 +81,8 @@ There might appear and
 YOU'D better finish my adventures beginning
 : It's no sorrow you take LESS said one eye was coming back once considering how odd the bank
 
+
+## Wikilinks load test
+
+[[galactic damsel]]
+[[sugarless absolute threshold]]

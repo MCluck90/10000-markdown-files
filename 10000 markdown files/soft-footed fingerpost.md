@@ -87,3 +87,11 @@ which seemed not even
 ALL.
 : But it as this caused a conversation.
 
+
+## Wikilinks load test
+
+[[impotent cercidiphyllum japonicum]]
+[[fine causation]]
+[[curly-grained regular hexagon]]
+[[creditworthy porterhouse]]
+[[puppyish damourite]]

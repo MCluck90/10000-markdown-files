@@ -72,3 +72,11 @@ interrupted.
 or else you'd better this
 : No indeed and whispered She's under its meaning.
 
+
+## Wikilinks load test
+
+[[terror-stricken after-shave lotion]]
+[[peppy genus myroxylon]]
+[[sculpted genus polyergus]]
+[[graphic scet]]
+[[syrian megaflop]]

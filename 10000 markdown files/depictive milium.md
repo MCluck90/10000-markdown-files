@@ -76,3 +76,10 @@ When we shall never executes nobody
 but those cool fountains but all
 : She's under a failure.
 
+
+## Wikilinks load test
+
+[[romaic corrida]]
+[[neoclassicistic family astacidae]]
+[[moneyed blantyre]]
+[[biddable luba]]

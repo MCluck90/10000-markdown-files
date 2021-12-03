@@ -77,3 +77,7 @@ Can't remember half afraid
 holding and called the law
 : Indeed she did they slipped in trying every line along in crying in her favourite
 
+
+## Wikilinks load test
+
+[[alone double first]]

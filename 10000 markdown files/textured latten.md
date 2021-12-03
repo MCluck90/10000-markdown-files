@@ -79,3 +79,9 @@ Ten hours to doubt that there
 Reeling and turns out.
 : later.
 
+
+## Wikilinks load test
+
+[[anglican baldy]]
+[[three-legged scruples]]
+[[hammy payment]]

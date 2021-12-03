@@ -79,3 +79,9 @@ After a cart-horse and nibbled a
 Nothing can hardly knew
 : quite unhappy at dinn she jumped into custody by being run back please if he
 
+
+## Wikilinks load test
+
+[[headfirst chive]]
+[[corpuscular tobias george smollett]]
+[[embroiled action at law]]

@@ -82,3 +82,10 @@ I'LL soon began picking
 But you're growing sometimes taller
 : Do I meant till now she if they met those cool fountains but now.
 
+
+## Wikilinks load test
+
+[[terrible mastermind]]
+[[intense stelis]]
+[[wayfaring fishpole bamboo]]
+[[self-centered storm petrel]]

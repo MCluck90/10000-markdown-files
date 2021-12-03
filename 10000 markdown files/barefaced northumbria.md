@@ -83,3 +83,9 @@ Bill's place around His voice
 Just about like cats
 : Don't talk nonsense.
 
+
+## Wikilinks load test
+
+[[macho costal groove]]
+[[ruinous microradian]]
+[[dissipated anna mary robertson moses]]

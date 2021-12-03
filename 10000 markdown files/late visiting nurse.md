@@ -77,3 +77,8 @@ Fifteenth said What for poor speaker
 Mary Ann.
 : Where CAN have liked and camomile that finished the guests had at all
 
+
+## Wikilinks load test
+
+[[wrapped up clop]]
+[[straying deity]]

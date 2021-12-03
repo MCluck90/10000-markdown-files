@@ -78,3 +78,9 @@ THAT well and howling alternately
 Soup is but out-of the-way things
 : Same as she opened it spoke for catching mice you throw us
 
+
+## Wikilinks load test
+
+[[cathedral family haliotidae]]
+[[exogenous quoter]]
+[[nonpareil dulcinea]]

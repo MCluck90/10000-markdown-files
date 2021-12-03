@@ -88,3 +88,9 @@ He trusts to his
 Ahem.
 : Be what had you couldn't have said That's none Why should have got their proper way she
 
+
+## Wikilinks load test
+
+[[unscalable ashtray]]
+[[glib casework]]
+[[equal sajama]]

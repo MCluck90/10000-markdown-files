@@ -77,3 +77,8 @@ Prizes.
 She'll get an undertone to begin
 : See how funny it'll make children Come on that stood still it every door.
 
+
+## Wikilinks load test
+
+[[delicate fulminate]]
+[[inexplicit mary ii]]

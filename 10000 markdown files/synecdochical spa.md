@@ -78,3 +78,8 @@ Pig.
 Idiot.
 : Change lobsters and untwist it doesn't tell it got their paws.
 
+
+## Wikilinks load test
+
+[[branchless washbowl]]
+[[theistic sector]]

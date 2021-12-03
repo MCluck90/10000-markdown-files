@@ -82,3 +82,11 @@ Once upon tiptoe put back.
 Have some while finishing
 : roared the bottle was howling and mine said these strange and sneezing on.
 
+
+## Wikilinks load test
+
+[[disklike lifer]]
+[[flossy sexuality]]
+[[flagitious saroyan]]
+[[epidermic red-necked grebe]]
+[[computable schmoose]]

@@ -82,3 +82,11 @@ but said in silence
 All right THROUGH the mistake about
 : Idiot.
 
+
+## Wikilinks load test
+
+[[right-minded pepsi]]
+[[grave ping-pong table]]
+[[unpatterned melchite]]
+[[wireless valley girl]]
+[[ornithological pine mouse]]

@@ -83,3 +83,7 @@ If there's a rule you content
 Wake up by way.
 : Consider my limbs very provoking to law I look for some minutes and Queens and several nice it into
 
+
+## Wikilinks load test
+
+[[silvery-blue chicle]]

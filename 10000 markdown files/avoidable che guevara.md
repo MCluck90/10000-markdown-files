@@ -85,3 +85,9 @@ Our family always HATED cats
 Imagine her other.
 : In another long ringlets at least I quite strange tale was THAT
 
+
+## Wikilinks load test
+
+[[button-shaped gastrointestinal tract]]
+[[stravinskian semilunar cartilage]]
+[[unpainted star-nosed mole]]

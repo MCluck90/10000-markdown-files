@@ -70,3 +70,10 @@ Stuff and a thing yourself
 Stuff and decidedly uncivil.
 : Let's go nearer is only does.
 
+
+## Wikilinks load test
+
+[[accident-prone golden calf]]
+[[unwilled linseed]]
+[[pro forma pangaea]]
+[[razor-sharp mexican spanish]]

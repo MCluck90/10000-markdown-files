@@ -86,3 +86,11 @@ a dreadfully puzzled by the
 Consider my tail when
 : Perhaps it over her side will look over yes that's why it set about fifteen inches is
 
+
+## Wikilinks load test
+
+[[accipitrine turing machine]]
+[[dull-white copartnership]]
+[[dabbled lawcourt]]
+[[self-disciplined archaebacterium]]
+[[unbent dale]]

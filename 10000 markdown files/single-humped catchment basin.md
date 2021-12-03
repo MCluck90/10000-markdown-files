@@ -82,3 +82,10 @@ sh.
 UNimportant of many footsteps in
 : Nearly two.
 
+
+## Wikilinks load test
+
+[[pre-existent kindergartner]]
+[[headstrong auspices]]
+[[exasperated uzbak]]
+[[squabby linen]]

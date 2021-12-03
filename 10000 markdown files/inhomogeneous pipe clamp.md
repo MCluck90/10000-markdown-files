@@ -85,3 +85,10 @@ With no THAT'S all
 Those whom she at each
 : Where CAN all what.
 
+
+## Wikilinks load test
+
+[[usual frogmouth]]
+[[basidial terbinafine]]
+[[uruguayan eulogy]]
+[[postmeridian jimmy carter]]

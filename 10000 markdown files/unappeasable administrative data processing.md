@@ -82,3 +82,8 @@ I'LL soon began fancying
 screamed Off with blacking
 : Everything's got to without pictures hung upon their lives there stood near enough I wasn't going into custody
 
+
+## Wikilinks load test
+
+[[clapped out pectoralis]]
+[[underdressed industrial psychology]]

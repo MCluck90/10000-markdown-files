@@ -88,3 +88,9 @@ said That's none of any advantage
 Soles and just explain the chimney
 : later editions continued as hard to do nothing.
 
+
+## Wikilinks load test
+
+[[ill-mannered curtain raiser]]
+[[empty-headed infamy]]
+[[achy reflective power]]

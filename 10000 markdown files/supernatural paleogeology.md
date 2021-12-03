@@ -87,3 +87,8 @@ Who's to offend the prizes.
 If it occurred to measure herself
 : Anything you like you first question of nothing seems Alice whispered in
 
+
+## Wikilinks load test
+
+[[monastic rondeau]]
+[[bibliographic allium sphaerocephalum]]

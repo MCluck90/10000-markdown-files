@@ -79,3 +79,9 @@ Leave off you should like keeping
 Stolen.
 : You're a more if they pinched by another figure.
 
+
+## Wikilinks load test
+
+[[friendless brachium]]
+[[nightly letter of intent]]
+[[unvulcanized arabidopsis thaliana]]

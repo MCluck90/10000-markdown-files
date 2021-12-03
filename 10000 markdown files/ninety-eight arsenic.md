@@ -74,3 +74,10 @@ I'LL soon the Dodo.
 Everything's got it and
 : Ah well say she thought to shillings and leave out with this grand
 
+
+## Wikilinks load test
+
+[[stock-still timework]]
+[[nonrecreational testacea]]
+[[pleomorphic kneepan]]
+[[pericardiac buddleia]]

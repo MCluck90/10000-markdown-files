@@ -81,3 +81,9 @@ Alas.
 Chorus again the best plan done
 : Cheshire cats nasty low.
 
+
+## Wikilinks load test
+
+[[ferial carpinus caroliniana]]
+[[previous one-hitter]]
+[[two-footed lepidopterist]]

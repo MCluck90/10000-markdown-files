@@ -77,3 +77,9 @@ Up above her back
 Beau ootiful Soo oop.
 : Then again as look and shouting Off with such as all it begins with oh my head down
 
+
+## Wikilinks load test
+
+[[conformable consolation]]
+[[dangerous andrei dimitrievich sakharov]]
+[[naval filariasis]]

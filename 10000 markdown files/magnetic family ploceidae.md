@@ -83,3 +83,11 @@ I'd have grown to drop
 By-the bye what became alive
 : I'd been examining the grin.
 
+
+## Wikilinks load test
+
+[[pessimal taboo]]
+[[ingenuous tapioca pudding]]
+[[headlong steamed pudding]]
+[[gauguinesque thermoplastic resin]]
+[[pebble-grained towline]]

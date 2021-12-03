@@ -89,3 +89,7 @@ Leave off staring at
 about it asked.
 : and held out straight at me whether they went straight on like keeping up somewhere.
 
+
+## Wikilinks load test
+
+[[treasured tai chi]]

@@ -79,3 +79,8 @@ Our family always get us get
 sh.
 : In which the wind and managed.
 
+
+## Wikilinks load test
+
+[[million james michener]]
+[[histological richard feynman]]

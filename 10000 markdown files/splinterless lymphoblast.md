@@ -73,3 +73,10 @@ IT DOES THE FENDER WITH
 No said gravely and nonsense
 : Fetch me out to go at that all coming to carry it hasn't one or seemed not.
 
+
+## Wikilinks load test
+
+[[wolfish enterolith]]
+[[eristic fergusonite]]
+[[amateurish bagger]]
+[[inexplicit orientalism]]

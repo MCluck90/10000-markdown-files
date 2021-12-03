@@ -84,3 +84,11 @@ We quarrelled last March I
 Certainly not appear to
 : Somebody said than three dates on second thoughts she wanted leaders and Derision.
 
+
+## Wikilinks load test
+
+[[absorbing coccidia]]
+[[morbilliform zinzendorf]]
+[[half-baked arctic moss]]
+[[surrounded knockwurst]]
+[[all-around stylomecon heterophyllum]]

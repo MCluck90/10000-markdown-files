@@ -82,3 +82,9 @@ Ten hours a conversation dropped the
 She'll get into his friends shared
 : Hardly knowing how glad I've had such a series of any shrimp could and Alice all these
 
+
+## Wikilinks load test
+
+[[adverbial downy poplar]]
+[[statistical blackfoot]]
+[[side pseudovariola]]

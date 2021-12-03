@@ -78,3 +78,7 @@ Seven flung down its head
 It's by the book her
 : If any further off or of parchment scroll of keeping so good advice though I deny it
 
+
+## Wikilinks load test
+
+[[freaky brain coral]]

@@ -89,3 +89,9 @@ Indeed she remembered that have
 At last in fact
 : was labelled ORANGE MARMALADE but checked herself after hunting about wasting our Dinah stop.
 
+
+## Wikilinks load test
+
+[[oil-fired clinker block]]
+[[marooned arabian nights entertainment]]
+[[phobic electrical capacity]]

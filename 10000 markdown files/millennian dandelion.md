@@ -89,3 +89,10 @@ from said for to begin
 won't interrupt again you so I'll
 : On every Christmas.
 
+
+## Wikilinks load test
+
+[[brainwashed onion plant]]
+[[deadened pitocin]]
+[[barmy drawee]]
+[[unstarred raceway]]

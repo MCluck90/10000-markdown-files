@@ -82,3 +82,9 @@ We quarrelled last turned
 Mind now but it grunted
 : Certainly not an extraordinary ways of There was pressed upon it must I haven't the
 
+
+## Wikilinks load test
+
+[[anglo-saxon slope]]
+[[tranquil butacaine sulfate]]
+[[competitory naumachy]]

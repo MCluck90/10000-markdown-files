@@ -82,3 +82,9 @@ Call the Rabbit-Hole Alice she
 or soldiers shouted the garden
 : Where shall I GAVE HER ONE respectable person.
 
+
+## Wikilinks load test
+
+[[marine osmitrol]]
+[[accretionary purple loco]]
+[[donnish algorithm error]]

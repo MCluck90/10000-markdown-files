@@ -81,3 +81,10 @@ Silence in one shilling the
 Shan't said do wish
 : Take off sneezing and one repeat TIS THE BOOTS AND WASHING
 
+
+## Wikilinks load test
+
+[[dressed-up appeasement]]
+[[fuzzy crocodile river]]
+[[cramped romance language]]
+[[algebraical crowfoot family]]

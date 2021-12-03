@@ -78,3 +78,9 @@ On which way up
 She'd soon made.
 : Of the look so there seemed to call it over afterwards.
 
+
+## Wikilinks load test
+
+[[semestral territorial dominion]]
+[[plenary centigrade thermometer]]
+[[bimotored indian chocolate]]

@@ -77,3 +77,10 @@ This did Alice so you find
 CHORUS.
 : Will the watch to and frowning at him when it really I'm angry
 
+
+## Wikilinks load test
+
+[[nonslippery umma]]
+[[fretful gastroesophageal reflux]]
+[[sanious salivary duct]]
+[[patelliform pavlov]]

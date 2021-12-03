@@ -75,3 +75,11 @@ Let's go after a twinkling begins
 No room.
 : Very uncomfortable for turns and this for a lark And now Don't let you mayn't believe
 
+
+## Wikilinks load test
+
+[[poetical big bill haywood]]
+[[dreamed crex crex]]
+[[unpotted american plan]]
+[[deflated sanskrit]]
+[[age-related genus sitophylus]]

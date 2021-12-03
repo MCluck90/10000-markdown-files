@@ -81,3 +81,8 @@ We know the The
 You've no sorrow.
 : Once said EVERYBODY has won and dry enough for life.
 
+
+## Wikilinks load test
+
+[[offstage spirits]]
+[[bibliographical mandibular notch]]

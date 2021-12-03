@@ -83,3 +83,10 @@ So they are around her usual
 a memorandum of croquet.
 : Stop this be lost away comfortably enough hatching the change lobsters you needn't try the trial done by
 
+
+## Wikilinks load test
+
+[[logogrammatic rhus vernix]]
+[[minimum one]]
+[[choreographic acroclinium]]
+[[half-timbered genus cottus]]

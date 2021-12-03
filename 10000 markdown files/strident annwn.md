@@ -86,3 +86,8 @@ Go on both mad after that
 Even the pair of
 : Beautiful beauti FUL SOUP.
 
+
+## Wikilinks load test
+
+[[shredded auscultation]]
+[[preferred creel]]

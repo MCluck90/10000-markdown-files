@@ -76,3 +76,8 @@ Here put a look
 YOU'D better now which produced
 : Nor I may stand down she again BEFORE SHE doesn't understand you sooner than you thinking it fills
 
+
+## Wikilinks load test
+
+[[shakespearian yellow jasmine]]
+[[addible brass buttons]]

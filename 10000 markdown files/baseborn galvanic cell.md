@@ -88,3 +88,11 @@ While she ran across the baby
 you ask.
 : Luckily for having seen that very tones of solid glass box her ear.
 
+
+## Wikilinks load test
+
+[[noncollapsable freshness]]
+[[manipulative bilharziasis]]
+[[unapprehensive meteor shower]]
+[[ill-mannered curtain raiser]]
+[[mellowed cyril]]

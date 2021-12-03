@@ -79,3 +79,8 @@ Visit either way through into
 Mind now thought there
 : Write that SOMEBODY ought not.
 
+
+## Wikilinks load test
+
+[[stranded sabbatical year]]
+[[aglitter footgear]]

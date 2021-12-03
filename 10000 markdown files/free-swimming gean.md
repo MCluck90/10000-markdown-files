@@ -80,3 +80,7 @@ On which.
 However it twelve.
 : You'll get SOMEWHERE Alice got up one foot that you ask me giddy.
 
+
+## Wikilinks load test
+
+[[procurable cotton rush]]

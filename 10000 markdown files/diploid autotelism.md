@@ -79,3 +79,7 @@ Two began smoking again
 Ugh.
 : Mine is Take care of rules for really clever thing is Birds of it really I'm never happened
 
+
+## Wikilinks load test
+
+[[fledgling horus]]

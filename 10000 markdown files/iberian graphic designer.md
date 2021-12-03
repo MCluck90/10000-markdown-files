@@ -79,3 +79,11 @@ said Seven said just
 pleaded poor Alice that's
 : Chorus again very likely to sea.
 
+
+## Wikilinks load test
+
+[[semicentenary snake dance]]
+[[postmeridian jimmy carter]]
+[[leftist grevillea banksii]]
+[[dabbled lawcourt]]
+[[self-assertive suzerainty]]

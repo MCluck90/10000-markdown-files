@@ -78,3 +78,11 @@ WHAT things to swallow
 Silence.
 : And here to trouble enough about something.
 
+
+## Wikilinks load test
+
+[[conceptual rosa eglanteria]]
+[[one hundred fifty soiree]]
+[[outcaste rudderfish]]
+[[penetrable badminton court]]
+[[conceptive xenon]]

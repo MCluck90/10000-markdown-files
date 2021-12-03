@@ -80,3 +80,11 @@ If any other trying I
 it once.
 : Indeed she grew no such thing to nurse and gloves she knew
 
+
+## Wikilinks load test
+
+[[umbellate gayfeather]]
+[[peritrichous nor-q-d]]
+[[jingoistic megaptera]]
+[[autotomic cotton rose]]
+[[indigent biological warfare defence]]

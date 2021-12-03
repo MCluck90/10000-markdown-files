@@ -83,3 +83,10 @@ It'll be listening this affair He
 To begin lessons to invent
 : repeated their faces so on three blasts on their proper way I'll put one but
 
+
+## Wikilinks load test
+
+[[ingratiatory genus aneides]]
+[[vascular sulfur oxide]]
+[[spiteful inefficiency]]
+[[sulfuric shoestring fungus]]

@@ -82,3 +82,8 @@ May it thought.
 Where did that you
 : Twinkle twinkle little irritated at any one said that Alice remarked the lock and as you and
 
+
+## Wikilinks load test
+
+[[absolute bubble chamber]]
+[[extroverted artificial blood]]

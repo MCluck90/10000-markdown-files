@@ -81,3 +81,7 @@ Thank you were birds
 They were silent and
 : Tis so small cake.
 
+
+## Wikilinks load test
+
+[[burnished war to end war]]

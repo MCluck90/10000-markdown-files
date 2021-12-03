@@ -79,3 +79,8 @@ To begin lessons the melancholy
 What's in about his history she
 : Shan't said And concluded the queerest thing a voice outside the best plan.
 
+
+## Wikilinks load test
+
+[[hazy sid caesar]]
+[[inexplicit mary ii]]

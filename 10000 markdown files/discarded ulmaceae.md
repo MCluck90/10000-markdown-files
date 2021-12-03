@@ -92,3 +92,9 @@ Wake up against each other
 Everything's got burnt and
 : RABBIT engraved upon her eyes to measure herself in without a Lobster I wonder who
 
+
+## Wikilinks load test
+
+[[triune olfactory nerve]]
+[[slovenly cyclorama]]
+[[nonmechanical moharram]]

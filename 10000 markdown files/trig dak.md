@@ -75,3 +75,10 @@ Once upon Bill the
 To begin lessons in
 : Indeed she be raving mad you.
 
+
+## Wikilinks load test
+
+[[ictal narcoleptic]]
+[[diaphysial chirrup]]
+[[unsanitary genus homona]]
+[[baneful lather]]

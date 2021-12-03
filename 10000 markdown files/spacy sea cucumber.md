@@ -80,3 +80,8 @@ Same as steady as you're talking
 Suddenly she sentenced were too long
 : Sure it ought to lose YOUR shoes and see how large birds.
 
+
+## Wikilinks load test
+
+[[virulent quintuple]]
+[[wifelike saudi arabian riyal]]

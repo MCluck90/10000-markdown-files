@@ -78,3 +78,9 @@ Ten hours the corner
 I've nothing to write it just
 : wow.
 
+
+## Wikilinks load test
+
+[[virtuoso aaron copland]]
+[[copper-bottomed sorceress]]
+[[on the hook straight arrow]]

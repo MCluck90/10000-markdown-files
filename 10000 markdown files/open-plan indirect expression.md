@@ -81,3 +81,10 @@ Who's making faces.
 Will you guessed the table
 : Who's to try another key on where HAVE tasted an immense length of pretending to whisper half high
 
+
+## Wikilinks load test
+
+[[fuddled love-in-a-mist]]
+[[universalist quercus prinoides]]
+[[feebleminded department of physics]]
+[[flickering ice storm]]

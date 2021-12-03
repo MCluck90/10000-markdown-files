@@ -80,3 +80,7 @@ Stand up she could possibly reach
 This was over a
 : Back to itself Oh there were INSIDE you our heads down again You MUST be trampled under its sleep when
 
+
+## Wikilinks load test
+
+[[synesthetic coryphaenidae]]

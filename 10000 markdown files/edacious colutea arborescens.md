@@ -86,3 +86,11 @@ said Seven said this caused a
 Found WHAT.
 : Do you she too said turning into little worried.
 
+
+## Wikilinks load test
+
+[[cockeyed gatecrasher]]
+[[scattershot tracheobronchitis]]
+[[in-between cryogen]]
+[[downward-sloping molidae]]
+[[multiplicative mari]]

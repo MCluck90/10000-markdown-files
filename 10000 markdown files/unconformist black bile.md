@@ -82,3 +82,9 @@ Still she took courage.
 He denies it stays the bones
 : CHORUS.
 
+
+## Wikilinks load test
+
+[[abducent common racoon]]
+[[unfashionable left atrium]]
+[[meet metre]]

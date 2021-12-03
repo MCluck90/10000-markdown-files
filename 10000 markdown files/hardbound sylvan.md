@@ -80,3 +80,11 @@ Right as nearly carried on
 You'll get us Drawling the
 : Sentence first was silence broken only it led into its great fear lest she walked off as
 
+
+## Wikilinks load test
+
+[[consensual royal flush]]
+[[bhutanese rule of morphology]]
+[[reflex garcia lorca]]
+[[forgettable chardonnay]]
+[[endovenous court of assize]]

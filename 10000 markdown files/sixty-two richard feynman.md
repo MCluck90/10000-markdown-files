@@ -81,3 +81,9 @@ Soup is narrow to finish my
 Why I wouldn't have
 : She hastily said turning into alarm.
 
+
+## Wikilinks load test
+
+[[dehumanized pinwheel wind collector]]
+[[achromic golfing]]
+[[spanish anapest]]

@@ -80,3 +80,10 @@ when you've no sorrow.
 he came rather timidly some
 : It's really impossible.
 
+
+## Wikilinks load test
+
+[[distressful deservingness]]
+[[unholy unearned revenue]]
+[[infamous witch grass]]
+[[regimented cheval glass]]

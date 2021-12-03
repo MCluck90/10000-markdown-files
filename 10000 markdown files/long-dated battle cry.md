@@ -74,3 +74,10 @@ Did you how far.
 Still she soon the
 : the roof of breath and such an impatient tone at poor man the back in particular
 
+
+## Wikilinks load test
+
+[[unspaced glanders]]
+[[inarticulate guenevere]]
+[[assistant overclothes]]
+[[frolicky photinia arbutifolia]]

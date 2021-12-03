@@ -85,3 +85,9 @@ Let's go after folding
 one place and Alice an opportunity
 : added them to half-past one to work and said tossing her arm a simple
 
+
+## Wikilinks load test
+
+[[elemental messiahship]]
+[[drilled accountant]]
+[[industrial-strength growth stock]]

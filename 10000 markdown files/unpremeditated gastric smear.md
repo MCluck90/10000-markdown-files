@@ -80,3 +80,9 @@ Good-bye feet I may stand
 Hand it directed at dinn
 : Off Nonsense.
 
+
+## Wikilinks load test
+
+[[unpaired cursorius cursor]]
+[[prizewinning russula]]
+[[variable galloway]]

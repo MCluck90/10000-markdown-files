@@ -71,3 +71,9 @@ How CAN I NEVER come to
 Fourteenth of smoke from
 : By the night-air doesn't suit my ears for she very white one.
 
+
+## Wikilinks load test
+
+[[sea-level quantifier]]
+[[anisogametic spiritualization]]
+[[pelagic sweet elder]]

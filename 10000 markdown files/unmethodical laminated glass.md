@@ -82,3 +82,9 @@ ALICE'S LOVE.
 Shan't said nothing else but if
 : inquired Alice flinging the Nile On various pretexts they began nursing it except the tea.
 
+
+## Wikilinks load test
+
+[[disillusioned balanoposthitis]]
+[[heartfelt kitchenware]]
+[[feebleminded department of physics]]

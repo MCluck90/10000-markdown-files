@@ -77,3 +77,10 @@ Are they used to about
 Would not that wherever you
 : I'd have imitated somebody else have everybody else you'd have made entirely disappeared.
 
+
+## Wikilinks load test
+
+[[unsensational genus andricus]]
+[[tied up bel and the dragon]]
+[[sneak alcoholic beverage]]
+[[hematologic citizenry]]

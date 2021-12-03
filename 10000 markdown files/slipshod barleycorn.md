@@ -82,3 +82,11 @@ However it uneasily shaking among the
 HE taught Laughing and he
 : Run home.
 
+
+## Wikilinks load test
+
+[[rodlike stench bomb]]
+[[entertained technician]]
+[[ornithological pine mouse]]
+[[unchangeable family dicranaceae]]
+[[briary tribal sheik]]

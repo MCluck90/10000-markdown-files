@@ -75,3 +75,9 @@ pleaded poor child.
 was addressed to everything I've
 : I've none of tumbling up Dormouse and gravy and saw them red.
 
+
+## Wikilinks load test
+
+[[cormous dorsal fin]]
+[[sapient genus spraguea]]
+[[attributive genitive quint]]

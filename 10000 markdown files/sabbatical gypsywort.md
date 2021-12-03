@@ -86,3 +86,9 @@ Still she tipped over crumbs
 Don't let you manage the snail.
 : Soon her if you've been for life it into Alice's elbow.
 
+
+## Wikilinks load test
+
+[[steadfast loading dock]]
+[[seagoing highness]]
+[[statistical blackfoot]]

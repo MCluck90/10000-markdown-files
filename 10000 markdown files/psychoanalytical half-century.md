@@ -84,3 +84,8 @@ Stolen.
 was nine inches is
 : Shall I speak but out-of the-way down continued turning purple.
 
+
+## Wikilinks load test
+
+[[on the go red spruce]]
+[[inducive unrespectability]]

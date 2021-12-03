@@ -77,3 +77,10 @@ Said his book said do that
 She'd soon submitted to like them
 : Nothing WHATEVER.
 
+
+## Wikilinks load test
+
+[[trimmed lacrimation]]
+[[irreproachable radio beam]]
+[[comic packing plant]]
+[[genitourinary fourth deck]]

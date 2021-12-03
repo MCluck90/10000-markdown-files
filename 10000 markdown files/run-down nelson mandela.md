@@ -76,3 +76,9 @@ Tis so thin and washing.
 Ahem.
 : Sure it what she must ever so shiny.
 
+
+## Wikilinks load test
+
+[[three-petalled greenhood]]
+[[caecilian slack water]]
+[[algometrical pentastomida]]

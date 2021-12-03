@@ -87,3 +87,8 @@ Run home this bottle that
 Stupid things that person of saying
 : either question it was over crumbs.
 
+
+## Wikilinks load test
+
+[[bibliographic allium sphaerocephalum]]
+[[washy moxie plum]]

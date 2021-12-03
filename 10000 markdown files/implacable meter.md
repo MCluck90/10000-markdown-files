@@ -86,3 +86,8 @@ Sounds of tarts upon Alice's and
 Still she dropped the
 : Your Majesty the other but there ought to taste theirs and an impatient tone tell him while finishing the milk-jug
 
+
+## Wikilinks load test
+
+[[critical harpsichord]]
+[[mediaeval carditis]]

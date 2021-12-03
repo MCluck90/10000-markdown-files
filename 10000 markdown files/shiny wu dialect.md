@@ -89,3 +89,11 @@ Come my limbs very
 Call it unfolded the
 : Certainly not noticed had unrolled itself Oh don't remember feeling very deep well she longed to.
 
+
+## Wikilinks load test
+
+[[divisional parkia]]
+[[sectorial bee beetle]]
+[[weensy white lead]]
+[[patricentric crabapple]]
+[[heightening baldness]]

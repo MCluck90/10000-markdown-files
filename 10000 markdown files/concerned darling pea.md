@@ -78,3 +78,11 @@ Said the jelly-fish out
 A secret kept on slates when
 : Ugh.
 
+
+## Wikilinks load test
+
+[[augean tourniquet]]
+[[impelling arborescent plant]]
+[[awful relativity]]
+[[ecologic stingaree-bush]]
+[[loath zirconium]]

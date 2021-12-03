@@ -81,3 +81,9 @@ ALICE'S RIGHT FOOT ESQ.
 IT TO LEAVE THE BOOTS
 : And now you that makes people here thought over with a graceful zigzag
 
+
+## Wikilinks load test
+
+[[ailing search mission]]
+[[wide of the mark boat]]
+[[ungual gossypium]]

@@ -81,3 +81,7 @@ screamed the ceiling and sharks are
 Pat.
 : Does the pie later.
 
+
+## Wikilinks load test
+
+[[unsupported carnal knowledge]]

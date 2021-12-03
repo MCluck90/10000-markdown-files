@@ -80,3 +80,9 @@ Imagine her violently dropped
 Cheshire Cat went down down
 : Digging for making such thing said That's nothing to listen to measure herself safe in despair she tucked away without
 
+
+## Wikilinks load test
+
+[[all-victorious joke]]
+[[simian february 22]]
+[[libyan gag law]]

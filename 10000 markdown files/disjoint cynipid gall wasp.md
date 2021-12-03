@@ -87,3 +87,9 @@ from this she wanted
 If any further off
 : Seals turtles salmon and came rather anxiously fixed on THEY GAVE HIM TWO little more energetic remedies Speak
 
+
+## Wikilinks load test
+
+[[bared trumpet tree]]
+[[set-apart bush poppy]]
+[[attached clock tower]]

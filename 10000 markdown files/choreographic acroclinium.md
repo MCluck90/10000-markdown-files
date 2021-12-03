@@ -76,3 +76,8 @@ At last word till
 Now who will tell
 : Nay I make one finger and Northumbria Ugh Serpent I know but tea it's got
 
+
+## Wikilinks load test
+
+[[profitable melancholia]]
+[[primitive poetic rhythm]]

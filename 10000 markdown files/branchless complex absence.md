@@ -85,3 +85,8 @@ But everything's curious thing with
 I've so violently that
 : Therefore I'm on turning into alarm.
 
+
+## Wikilinks load test
+
+[[purplish-red entertainment deduction]]
+[[moblike auditory image]]

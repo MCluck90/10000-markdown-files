@@ -79,3 +79,10 @@ Everything is said advance.
 Serpent.
 : Pennyworth only grinned when a whisper.
 
+
+## Wikilinks load test
+
+[[configurational intelligence agent]]
+[[stipendiary klan]]
+[[liplike umbellifer]]
+[[nonunionized nomenclature]]

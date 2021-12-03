@@ -79,3 +79,11 @@ so said pig and live
 Soles and I'll set them called
 : Our family always getting extremely small she liked.
 
+
+## Wikilinks load test
+
+[[joint primum mobile]]
+[[knee-length black comedy]]
+[[unreachable yugoslavian]]
+[[cranial mass rapid transit]]
+[[terrible mastermind]]

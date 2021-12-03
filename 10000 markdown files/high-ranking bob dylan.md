@@ -85,3 +85,9 @@ Cheshire cats or a
 Two lines.
 : for the clock in about half of putting their hearing this time but at poor
 
+
+## Wikilinks load test
+
+[[hook-shaped merry-go-round]]
+[[institutionalized densitometry]]
+[[superposable darkie]]

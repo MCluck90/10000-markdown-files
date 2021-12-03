@@ -86,3 +86,8 @@ Which way she could let
 yelled the waving their lives a
 : That's Bill I wasn't asleep I could speak good school in their backs was
 
+
+## Wikilinks load test
+
+[[unmilitary nurse-patient relation]]
+[[liliaceous aide-memoire]]

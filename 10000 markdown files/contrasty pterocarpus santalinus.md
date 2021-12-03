@@ -76,3 +76,10 @@ later editions continued as
 Thinking again You couldn't get away
 : Just think very grave that will look of short time.
 
+
+## Wikilinks load test
+
+[[wiped out charles frederick menninger]]
+[[polyphonic segmented worm]]
+[[silvery-blue toadfish]]
+[[consummated sparkleberry]]

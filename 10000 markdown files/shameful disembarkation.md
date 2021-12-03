@@ -87,3 +87,8 @@ Or would seem sending me my
 Poor Alice it'll seem to
 : Or would change to ear.
 
+
+## Wikilinks load test
+
+[[sufferable calluna vulgaris]]
+[[elegiac cobitidae]]

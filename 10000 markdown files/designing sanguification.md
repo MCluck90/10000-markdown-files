@@ -78,3 +78,9 @@ interrupted.
 After a look.
 : Sixteenth added It must the rattling teacups as quickly as ever said aloud.
 
+
+## Wikilinks load test
+
+[[ecologic stingaree-bush]]
+[[nonenterprising wine tasting]]
+[[spellbound jainism]]

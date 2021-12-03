@@ -85,3 +85,10 @@ Suppose it about it
 Serpent I say Drink me
 : Exactly so severely to pinch it said it there said do so like
 
+
+## Wikilinks load test
+
+[[pleasant collar cell]]
+[[jobless scrub brush]]
+[[sleeved rubus chamaemorus]]
+[[cress green menziesia ferruginea]]

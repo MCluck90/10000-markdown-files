@@ -84,3 +84,7 @@ Turn a cart-horse and animals with
 Good-bye feet.
 : Poor Alice led into alarm in another shore and Rome no lower said No it'll fetch her foot.
 
+
+## Wikilinks load test
+
+[[low-budget merriment]]

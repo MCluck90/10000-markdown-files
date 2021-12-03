@@ -79,3 +79,8 @@ later editions continued in curving it
 As soon make me
 : Hush.
 
+
+## Wikilinks load test
+
+[[meritable genus encyclia]]
+[[cacogenic brassica oleracea gongylodes]]

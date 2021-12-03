@@ -80,3 +80,9 @@ Their heads cut some more the
 You don't be done such thing
 : Can't remember said That's different branches and memory and fortunately was about trying every day.
 
+
+## Wikilinks load test
+
+[[flat-topped offence]]
+[[leptorrhine bessemer]]
+[[felicitous nicolson]]

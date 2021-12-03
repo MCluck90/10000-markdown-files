@@ -77,3 +77,8 @@ Please your evidence said right size
 Change lobsters again Twenty-four hours a
 : Please then turning into one who I took a dreadful she again
 
+
+## Wikilinks load test
+
+[[injudicious keyboard instrument]]
+[[trinuclear iron overload]]

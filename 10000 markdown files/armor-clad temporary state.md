@@ -80,3 +80,8 @@ sighed the Dormouse denied so
 Here.
 : Five.
 
+
+## Wikilinks load test
+
+[[energy-absorbing r-2]]
+[[made-to-order crystal]]

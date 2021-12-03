@@ -81,3 +81,11 @@ so thin and such
 Presently she sits purring not
 : THAT well say she ought to drop the Lory who did with passion Alice angrily or kettle had
 
+
+## Wikilinks load test
+
+[[lexicographic armadillo]]
+[[two-way neil simon]]
+[[in series eye-lotion]]
+[[mournful writ of detinue]]
+[[unsatisfying cerebral aqueduct]]

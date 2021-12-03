@@ -85,3 +85,8 @@ Who for fish would
 These were seated on at school
 : Nay I BEG your flamingo.
 
+
+## Wikilinks load test
+
+[[unsoluble colombo]]
+[[semiweekly symphytum]]

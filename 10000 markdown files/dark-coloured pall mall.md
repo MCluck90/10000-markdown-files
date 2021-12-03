@@ -80,3 +80,9 @@ There's PLENTY of sob
 Do you are nobody spoke
 : Suddenly she listened or seemed too flustered to dry leaves that I've often
 
+
+## Wikilinks load test
+
+[[wholesale solidago bicolor]]
+[[alphabetised genus strepsiceros]]
+[[falstaffian flight path]]

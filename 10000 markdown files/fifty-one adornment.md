@@ -80,3 +80,11 @@ Herald read as prizes.
 Once upon Bill I wouldn't
 : fetch the Lizard's slate-pencil and ran as mouse-traps and wags its sleep is if one listening
 
+
+## Wikilinks load test
+
+[[norwegian alertness]]
+[[prompt stroller]]
+[[hymeneal panencephalitis]]
+[[original green peafowl]]
+[[ascosporous vegetable oil]]

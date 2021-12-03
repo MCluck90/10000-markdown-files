@@ -76,3 +76,10 @@ Dinah'll miss me said It
 persisted.
 : Found IT.
 
+
+## Wikilinks load test
+
+[[permanent ancestor]]
+[[blasting towing rope]]
+[[chthonic menstrual blood]]
+[[monandrous daniel morgan]]

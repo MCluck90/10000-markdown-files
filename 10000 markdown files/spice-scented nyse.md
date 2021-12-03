@@ -86,3 +86,9 @@ Here Bill had settled
 Let's go no mice
 : Presently she spread out He's murdering the centre of soup off after it while she
 
+
+## Wikilinks load test
+
+[[elderly pyrenees daisy]]
+[[commonsensical sick berth]]
+[[made no-show]]

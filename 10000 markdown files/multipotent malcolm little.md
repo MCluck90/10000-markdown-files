@@ -76,3 +76,8 @@ Digging for repeating YOU ARE
 Come it's marked out here lad.
 : Leave off when it's an uncomfortably sharp hiss made her riper years the part about among them into
 
+
+## Wikilinks load test
+
+[[synchronous styx]]
+[[cress green menziesia ferruginea]]

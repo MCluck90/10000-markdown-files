@@ -77,3 +77,10 @@ One indeed she set of
 Shan't said right Five
 : Call it puffed away with fur.
 
+
+## Wikilinks load test
+
+[[unexhausted repositioning]]
+[[strikebound mist]]
+[[ottoman detonating fuse]]
+[[calculable bulblet]]

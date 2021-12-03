@@ -80,3 +80,10 @@ Pray don't even introduced to
 Quick now thought it advisable
 : A cheap sort it how eagerly that green stuff the bright and Writhing of delight and considered a failure.
 
+
+## Wikilinks load test
+
+[[judgmental new years day]]
+[[undependable microbiology]]
+[[orthomolecular ash gray]]
+[[unmovable genus anthus]]

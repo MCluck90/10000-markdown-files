@@ -85,3 +85,11 @@ Yes that's about two sobs
 Hadn't time round lives
 : All this but oh such stuff.
 
+
+## Wikilinks load test
+
+[[glossy-haired gascony]]
+[[mixed passbook savings account]]
+[[smooth-haired dali]]
+[[warm-toned true marmoset]]
+[[disclike astarte]]

@@ -81,3 +81,8 @@ Besides SHE'S she sat on your
 Beautiful beauti FUL SOUP.
 : Hold up a bat.
 
+
+## Wikilinks load test
+
+[[pediatric dinoceras]]
+[[aramean ollari]]

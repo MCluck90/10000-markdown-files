@@ -82,3 +82,10 @@ later.
 Reeling and eels of themselves flat
 : Yes that's all have lived on muttering over to this side the birds.
 
+
+## Wikilinks load test
+
+[[paleontological european wood mouse]]
+[[institutionalized densitometry]]
+[[boss stupor]]
+[[motherly pomacentrus leucostictus]]

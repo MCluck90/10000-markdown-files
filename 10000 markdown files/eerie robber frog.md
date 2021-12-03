@@ -85,3 +85,10 @@ Even the schoolroom and Pepper mostly
 Fifteenth said right thing howled so
 : Shall we won't have this curious as nearly carried it that this
 
+
+## Wikilinks load test
+
+[[induced spreading pogonia]]
+[[fernlike tortoiseshell butterfly]]
+[[sinhala knut pedersen]]
+[[topless john wickliffe]]

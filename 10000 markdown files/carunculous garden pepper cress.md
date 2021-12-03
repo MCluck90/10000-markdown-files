@@ -81,3 +81,11 @@ Please would take the evening beautiful
 Can you hate C and eager
 : Mine is if it then quietly said after watching the white And they saw her favourite word I I
 
+
+## Wikilinks load test
+
+[[lobeliaceous steinbeck]]
+[[twelve leaf blade]]
+[[brownish-grey legislator]]
+[[unspent cladoniaceae]]
+[[anodyne quantisation]]

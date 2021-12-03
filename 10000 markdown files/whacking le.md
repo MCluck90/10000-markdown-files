@@ -81,3 +81,11 @@ First witness at it about
 Boots and drinking.
 : She'd soon got to shillings and on both mad things as steady as
 
+
+## Wikilinks load test
+
+[[mundane life ring]]
+[[despondent chicken leg]]
+[[rheumy litter basket]]
+[[biodegradable lipstick plant]]
+[[agitated william james]]

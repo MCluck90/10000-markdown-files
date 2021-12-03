@@ -84,3 +84,8 @@ A bright and there is something
 Treacle said Seven jogged my
 : won't.
 
+
+## Wikilinks load test
+
+[[divisional aluminium]]
+[[unindustrialised plumbers helper]]

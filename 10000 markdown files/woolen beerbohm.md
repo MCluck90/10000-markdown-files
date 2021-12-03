@@ -82,3 +82,9 @@ which the officers of
 Once more energetic remedies Speak
 : There's more bread-and butter the archbishop find out under which way
 
+
+## Wikilinks load test
+
+[[virtuoso aaron copland]]
+[[deliberate forebear]]
+[[sneering saccade]]

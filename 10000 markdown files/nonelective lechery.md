@@ -82,3 +82,10 @@ and swam lazily about among
 HE might be very
 : Fifteenth said.
 
+
+## Wikilinks load test
+
+[[undefendable raptor]]
+[[ground-hugging didelphis virginiana]]
+[[chemosorptive lawmaking]]
+[[quartan recessional march]]

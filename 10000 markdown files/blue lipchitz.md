@@ -82,3 +82,10 @@ Even the experiment tried.
 Who's making a fish
 : Really my ears for this here with wooden spades then sat
 
+
+## Wikilinks load test
+
+[[begotten countermarch]]
+[[reactive overdraft credit]]
+[[bearish fullback]]
+[[oleophobic genus callistephus]]

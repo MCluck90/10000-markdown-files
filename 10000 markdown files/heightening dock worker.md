@@ -81,3 +81,7 @@ but sit here any other.
 Down down his brush and
 : Found IT.
 
+
+## Wikilinks load test
+
+[[affirmable knitwear]]

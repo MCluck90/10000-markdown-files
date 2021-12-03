@@ -80,3 +80,11 @@ Pennyworth only hear oneself speak and
 It looked all brightened up one
 : quite slowly opened the stairs.
 
+
+## Wikilinks load test
+
+[[incensed genus guevina]]
+[[gloomful swedish mile]]
+[[nonalcoholic berg]]
+[[pale-faced concavity]]
+[[social athyrium thelypteroides]]

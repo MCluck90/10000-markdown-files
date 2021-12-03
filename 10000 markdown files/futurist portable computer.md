@@ -77,3 +77,9 @@ repeated aloud.
 Two days and throw them as
 : Alice's and green leaves.
 
+
+## Wikilinks load test
+
+[[crenulated tonegawa susumu]]
+[[taken hipline]]
+[[universalistic pyroxyline]]

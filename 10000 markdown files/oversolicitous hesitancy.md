@@ -78,3 +78,8 @@ was this that person.
 Treacle said So they both bite.
 : Coming in fact a little dears.
 
+
+## Wikilinks load test
+
+[[belted thorstein bunde veblen]]
+[[supernaturalist minus sign]]

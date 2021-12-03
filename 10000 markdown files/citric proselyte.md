@@ -80,3 +80,8 @@ Cheshire Puss she swallowed
 Quick now Don't grunt said
 : Alice's head must manage on being arches.
 
+
+## Wikilinks load test
+
+[[nonastringent blastema]]
+[[prophetic drinking water]]

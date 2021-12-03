@@ -75,3 +75,10 @@ Right as we try
 Always lay sprawling about me
 : Yes said gravely.
 
+
+## Wikilinks load test
+
+[[interrogatory issue]]
+[[adrenocortical aristotelian]]
+[[ongoing power meter]]
+[[related to operand]]

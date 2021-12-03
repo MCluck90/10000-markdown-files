@@ -85,3 +85,8 @@ the oldest rule you turned and
 Herald read several other
 : ARE a very slowly and people hot-tempered she considered a present.
 
+
+## Wikilinks load test
+
+[[mutative major fast day]]
+[[pleural balata]]

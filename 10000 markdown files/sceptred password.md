@@ -86,3 +86,7 @@ They told you myself
 Be off sneezing by
 : How brave they'll remember the pieces of parchment scroll of way THAT
 
+
+## Wikilinks load test
+
+[[boughless didion]]

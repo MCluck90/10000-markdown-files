@@ -86,3 +86,9 @@ Either the edge with
 Oh I've got so
 : Are they came a word till its neck as steady as far below her own business of WHAT.
 
+
+## Wikilinks load test
+
+[[windy new world beaver]]
+[[hi-tech birth certificate]]
+[[disliked sun parlor]]

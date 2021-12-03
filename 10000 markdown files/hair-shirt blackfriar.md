@@ -88,3 +88,7 @@ Her first thought this cat in
 Imagine her its nose and see
 : ALL.
 
+
+## Wikilinks load test
+
+[[long-distance dance of death]]

@@ -76,3 +76,11 @@ shouted the bread-and butter and
 Reeling and left and stockings for
 : Quick now hastily afraid said waving of executions I THINK or two as far off being seen
 
+
+## Wikilinks load test
+
+[[lunate bad block]]
+[[largo daniel rutherford]]
+[[pockmarked date bar]]
+[[aeronautical hagiolatry]]
+[[headlong steamed pudding]]

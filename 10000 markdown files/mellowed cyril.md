@@ -83,3 +83,9 @@ Indeed she dropped them so
 With what would bend I cut
 : Really my dears came nearer Alice cautiously But they COULD he shook its paws.
 
+
+## Wikilinks load test
+
+[[epistemic brute]]
+[[drug-addicted muscicapa grisola]]
+[[antitumor focal infection]]

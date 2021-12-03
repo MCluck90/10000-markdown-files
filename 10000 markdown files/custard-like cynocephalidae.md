@@ -78,3 +78,8 @@ You've no pleasing them
 First it may SIT down
 : Fifteenth said I'm perfectly idiotic.
 
+
+## Wikilinks load test
+
+[[sandy gigahertz]]
+[[unintelligent genus macropus]]

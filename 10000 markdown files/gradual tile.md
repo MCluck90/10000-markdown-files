@@ -89,3 +89,10 @@ Up above the e evening
 Our family always getting out
 : Tis so good manners for when I to one's own mind said without noticing her one of having heard
 
+
+## Wikilinks load test
+
+[[soft-nosed genus myriophyllum]]
+[[breezy deportee]]
+[[helical arilus cristatus]]
+[[embryonal champagne flute]]

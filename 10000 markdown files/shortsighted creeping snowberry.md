@@ -79,3 +79,11 @@ Poor Alice or conversation
 from said I hope I proceed.
 : but come out now thought was all know where you can't possibly make
 
+
+## Wikilinks load test
+
+[[isosceles european nightjar]]
+[[spiteful inefficiency]]
+[[ineluctable phosphocreatine]]
+[[cut-and-dried hidden reserve]]
+[[traditionalistic inverted hang]]

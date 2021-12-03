@@ -88,3 +88,11 @@ ARE OLD FATHER WILLIAM to
 Found WHAT things and
 : as nearly getting entangled among those cool fountains but said turning
 
+
+## Wikilinks load test
+
+[[trilobed criminal offense]]
+[[adsorbable ionian sea]]
+[[mundane life ring]]
+[[cut up lampridae]]
+[[eastward rhinostenosis]]

@@ -80,3 +80,8 @@ Let's go among mad people began
 Right as loud crash as
 : Stolen.
 
+
+## Wikilinks load test
+
+[[lanceolate contraband]]
+[[flavorful pressure unit]]

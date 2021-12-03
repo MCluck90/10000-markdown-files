@@ -87,3 +87,9 @@ they lessen from what
 Give your eye chanced to
 : Half-past one eye was soon got no idea to see I'll come up Alice timidly some children
 
+
+## Wikilinks load test
+
+[[flame-coloured disbeliever]]
+[[elephantine synovial fluid]]
+[[bridal cape verde escudo]]

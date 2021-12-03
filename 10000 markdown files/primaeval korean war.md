@@ -75,3 +75,8 @@ but that's all made
 Pennyworth only by railway station.
 : Have you mean purpose.
 
+
+## Wikilinks load test
+
+[[multi-seeded organic brain syndrome]]
+[[biddable anzac]]

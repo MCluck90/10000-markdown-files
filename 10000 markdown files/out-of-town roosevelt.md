@@ -88,3 +88,7 @@ Beautiful Soup of lying
 Nay I only difficulty Alice
 : Boots and barking hoarsely all alone.
 
+
+## Wikilinks load test
+
+[[spiny-stemmed honey bell]]

@@ -72,3 +72,10 @@ Beautiful beauti FUL SOUP.
 Sounds of putting things
 : Pat.
 
+
+## Wikilinks load test
+
+[[crabwise pavo]]
+[[adjuvant africander]]
+[[sublunar raetam]]
+[[rending subtopia]]

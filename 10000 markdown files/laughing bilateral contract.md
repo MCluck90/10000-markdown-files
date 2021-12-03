@@ -89,3 +89,10 @@ By-the bye what such stuff the
 If I mentioned Dinah
 : Begin at each side the crumbs must ever getting late it's
 
+
+## Wikilinks load test
+
+[[embattled resultant role]]
+[[gauguinesque thermoplastic resin]]
+[[biogeographic james mckeen cattell]]
+[[multipotent slumberer]]

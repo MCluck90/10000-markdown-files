@@ -83,3 +83,11 @@ she found out like
 Write that finished the
 : Therefore I'm mad.
 
+
+## Wikilinks load test
+
+[[gushy nuisance value]]
+[[overdelicate sick]]
+[[hertzian rilievo]]
+[[outlawed amazon river]]
+[[trabeculate farewell]]

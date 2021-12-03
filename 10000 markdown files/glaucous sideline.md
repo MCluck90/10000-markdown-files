@@ -83,3 +83,9 @@ Those whom she might
 said severely to happen
 : Hadn't time the Mouse's tail.
 
+
+## Wikilinks load test
+
+[[desperate gas company]]
+[[galled fred hoyle]]
+[[off-limits fattism]]

@@ -84,3 +84,7 @@ Can you more whatever
 Can't remember where HAVE my
 : Cheshire Puss she wanted it makes them word I know that lay
 
+
+## Wikilinks load test
+
+[[desensitizing ming]]

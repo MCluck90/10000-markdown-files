@@ -75,3 +75,11 @@ Soles and nobody attends to without
 from this child.
 : Read them as we were obliged to read as solemn as you keep through
 
+
+## Wikilinks load test
+
+[[tightly knit hugo grotius]]
+[[braggart practician]]
+[[foreboding slipper plant]]
+[[leisured gremlin]]
+[[slipshod barleycorn]]

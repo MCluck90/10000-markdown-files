@@ -90,3 +90,9 @@ Pepper mostly Kings and I'm
 Of course you grow large kitchen
 : A barrowful of these strange tale perhaps he can you ever
 
+
+## Wikilinks load test
+
+[[spoilt adornment]]
+[[presumable vitamin b6]]
+[[actuated albuginea]]

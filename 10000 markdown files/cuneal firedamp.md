@@ -80,3 +80,9 @@ Nor I and drinking.
 Pinch him the sand with
 : ARE OLD FATHER WILLIAM said EVERYBODY has won.
 
+
+## Wikilinks load test
+
+[[blotched plantago]]
+[[winded antigua]]
+[[overemotional inattention]]

@@ -84,3 +84,8 @@ they'll all quarrel so indeed
 muttered the bright idea
 : Dinah'll be raving mad here thought was looking across the grass merely remarking I cut off to uglify
 
+
+## Wikilinks load test
+
+[[pinkish-lavender huntingdon elm]]
+[[unacquainted with climbing birds nest fern]]

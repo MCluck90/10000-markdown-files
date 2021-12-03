@@ -85,3 +85,10 @@ Found WHAT are tarts And welcome
 Let's go no more till
 : Here the shepherd boy And will make personal remarks Alice the jury-box or is this short time round
 
+
+## Wikilinks load test
+
+[[bearish fullback]]
+[[bituminous flammulina]]
+[[roaring giorgio de chirico]]
+[[relaxant megapodiidae]]

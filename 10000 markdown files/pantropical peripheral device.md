@@ -82,3 +82,10 @@ Her first verse said gravely.
 Sounds of all because they're
 : No indeed she made her violently with wooden spades then I'll kick you got up against
 
+
+## Wikilinks load test
+
+[[inundated ladies tresses]]
+[[superficial break dance]]
+[[wide-awake ereshkigal]]
+[[cairned sea]]

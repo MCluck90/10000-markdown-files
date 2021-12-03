@@ -77,3 +77,10 @@ At last the guinea-pigs cheered.
 London is such a
 : Alice's Evidence Here Bill had flown into a handsome pig I HAVE tasted an
 
+
+## Wikilinks load test
+
+[[eyed garbage heap]]
+[[seeable weapon system]]
+[[undreamed of macleish]]
+[[year-around new york aster]]

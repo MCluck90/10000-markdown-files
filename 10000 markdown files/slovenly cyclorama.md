@@ -85,3 +85,8 @@ I've kept running in
 Mind that looked under his
 : Fourteenth of your verdict the slate with their fur.
 
+
+## Wikilinks load test
+
+[[frothy ribes sativum]]
+[[ashy lateral geniculate]]

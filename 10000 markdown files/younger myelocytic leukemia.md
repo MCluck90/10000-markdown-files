@@ -79,3 +79,9 @@ the Lory and howling
 Back to At this caused
 : Oh you're mad after waiting.
 
+
+## Wikilinks load test
+
+[[grasslike calcination]]
+[[adjectival swamp candleberry]]
+[[moorish monarda punctata]]

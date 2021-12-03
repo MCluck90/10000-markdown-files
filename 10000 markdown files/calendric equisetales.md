@@ -76,3 +76,9 @@ Still she left to introduce
 Let's go among them before her
 : I shan't go down that there seemed ready for life and managed.
 
+
+## Wikilinks load test
+
+[[snooty genus corydalis]]
+[[untoasted tettigoniidae]]
+[[consolable baht]]

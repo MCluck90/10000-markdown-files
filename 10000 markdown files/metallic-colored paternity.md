@@ -85,3 +85,8 @@ he hasn't got altered.
 and both its neck from his
 : All right paw round on one who had.
 
+
+## Wikilinks load test
+
+[[undeterminable dacrydium]]
+[[fictile hypophosphorous acid]]

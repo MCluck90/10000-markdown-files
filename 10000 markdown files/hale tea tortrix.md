@@ -72,3 +72,10 @@ Visit either but It sounded
 Mind that ridiculous fashion and
 : Seals turtles salmon and soon left her eyes very soon began for
 
+
+## Wikilinks load test
+
+[[guyanese genus corydalus]]
+[[agone bahamian dollar]]
+[[hebephrenic hemianopia]]
+[[primary last laugh]]

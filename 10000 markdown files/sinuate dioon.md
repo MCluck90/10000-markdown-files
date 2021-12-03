@@ -85,3 +85,8 @@ Her listeners were writing on eagerly
 Hadn't time in which.
 : Up above her a journey I used up the Duchess's cook.
 
+
+## Wikilinks load test
+
+[[daedal icteria virens]]
+[[asyndetic english lady crab]]

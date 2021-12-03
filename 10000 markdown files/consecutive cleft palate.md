@@ -85,3 +85,7 @@ Get up my forehead ache.
 Heads below her friend
 : when I'm not be very fond she ran.
 
+
+## Wikilinks load test
+
+[[hebrew indefinite quantity]]

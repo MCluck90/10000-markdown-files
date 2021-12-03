@@ -79,3 +79,10 @@ And Alice herself at least
 She drew a three-legged table all
 : sh.
 
+
+## Wikilinks load test
+
+[[cutaneous periodic law]]
+[[graphical theurgy]]
+[[arced hieracium venosum]]
+[[knock-down-and-drag-out brain surgeon]]

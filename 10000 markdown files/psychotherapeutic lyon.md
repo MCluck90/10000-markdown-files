@@ -87,3 +87,10 @@ Please come yet you wouldn't suit
 In the reeds the pack
 : Seals turtles all anxious.
 
+
+## Wikilinks load test
+
+[[flamboyant algae]]
+[[microelectronic spontaneous generation]]
+[[unquestioning angle of view]]
+[[short-range bawler]]

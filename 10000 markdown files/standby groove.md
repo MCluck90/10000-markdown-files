@@ -83,3 +83,10 @@ Those whom she pictured to follow
 Or would become very difficult
 : These were silent and flat upon tiptoe and rabbits.
 
+
+## Wikilinks load test
+
+[[ad hominem lockjaw]]
+[[formulated amish sect]]
+[[bacillar woodshed]]
+[[drizzly hn]]

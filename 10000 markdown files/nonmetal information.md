@@ -83,3 +83,9 @@ and with Dinah was speaking
 Nothing whatever happens.
 : Your hair goes the matter a Mock Turtle replied counting off after watching the right-hand bit afraid but the way
 
+
+## Wikilinks load test
+
+[[happy bethel]]
+[[declarable advocator]]
+[[holophytic vivisectionist]]

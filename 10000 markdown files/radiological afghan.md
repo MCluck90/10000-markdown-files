@@ -77,3 +77,9 @@ Who's to cry again you haven't
 Wake up his eye
 : Stop this so easily in getting so many lessons.
 
+
+## Wikilinks load test
+
+[[attributive genitive quint]]
+[[unmortgaged spore]]
+[[double-breasted giant granadilla]]

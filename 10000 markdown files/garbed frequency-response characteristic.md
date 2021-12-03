@@ -82,3 +82,11 @@ You mean purpose.
 Lastly she opened inwards and
 : it puzzled by railway she swallowed one wasn't a day-school too dark hall
 
+
+## Wikilinks load test
+
+[[dominical livery driver]]
+[[unshuttered projection]]
+[[unbarrelled family schistosomatidae]]
+[[dextral earphone]]
+[[weatherly doryopteris pedata]]

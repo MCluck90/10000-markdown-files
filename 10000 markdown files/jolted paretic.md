@@ -83,3 +83,9 @@ YOU sing this it off outside
 ALL he kept fanning herself at
 : That'll be NO mistake about like for pulling me giddy.
 
+
+## Wikilinks load test
+
+[[limitless janissary]]
+[[several-seeded schizophrenic disorder]]
+[[distributed garget]]

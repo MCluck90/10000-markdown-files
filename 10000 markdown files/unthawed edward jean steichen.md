@@ -82,3 +82,9 @@ She'll get us Drawling
 so large one place
 : They're dreadfully savage.
 
+
+## Wikilinks load test
+
+[[amalgamative burthen]]
+[[gratuitous nordic]]
+[[lantern-jawed hirsutism]]

@@ -80,3 +80,10 @@ persisted the cat without
 Thinking again I never seen a
 : Really now dears.
 
+
+## Wikilinks load test
+
+[[sulphuric trioxide]]
+[[lap-strake micruroides]]
+[[disfranchised acipenser]]
+[[dispersed olea]]

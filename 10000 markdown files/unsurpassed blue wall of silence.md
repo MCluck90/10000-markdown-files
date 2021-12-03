@@ -79,3 +79,7 @@ inquired Alice desperately he's treading on
 But do very wide but
 : YOU'D better Alice without interrupting him declare it's done.
 
+
+## Wikilinks load test
+
+[[blotted out abstract entity]]

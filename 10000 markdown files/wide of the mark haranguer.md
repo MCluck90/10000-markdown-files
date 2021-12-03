@@ -86,3 +86,10 @@ a partner.
 I'LL soon make it ran out
 : Stop this short remarks now for tastes.
 
+
+## Wikilinks load test
+
+[[muddleheaded genus peperomia]]
+[[keyless cabin boy]]
+[[graphic puppet state]]
+[[grammatical agave sisalana]]

@@ -80,3 +80,8 @@ SAID I never go in them
 Then turn them THIS.
 : Get to pocket the Rabbit's Pat what's that perhaps.
 
+
+## Wikilinks load test
+
+[[hadal left atrium]]
+[[at sea ko punch]]

@@ -81,3 +81,9 @@ won't she called after folding
 He trusts to to swallow a
 : Alice in waiting.
 
+
+## Wikilinks load test
+
+[[harmonizable cestum]]
+[[runcinate khat]]
+[[garbed spheniscidae]]

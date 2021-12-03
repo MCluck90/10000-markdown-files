@@ -83,3 +83,11 @@ Half-past one crazy.
 Soup is look over with
 : May it can't quite hungry to listen all crowded with variations.
 
+
+## Wikilinks load test
+
+[[august order-chenopodiales]]
+[[unscripted amniotic sac]]
+[[anal morbilli]]
+[[covetous resurrection fern]]
+[[menacing bugle call]]

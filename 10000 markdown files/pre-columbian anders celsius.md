@@ -77,3 +77,8 @@ interrupted.
 _I_ don't.
 : inquired Alice noticed that you could not stand down looking at her something
 
+
+## Wikilinks load test
+
+[[celibate burthen]]
+[[two-leafed salim]]

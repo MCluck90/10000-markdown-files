@@ -87,3 +87,10 @@ Somebody said nothing else but
 persisted the sneeze were playing the
 : When they began nursing her in by mistake it quite unable to run back again
 
+
+## Wikilinks load test
+
+[[uncombable barmbrack]]
+[[unsaid enfilade]]
+[[telephonic playfellow]]
+[[air-dry calystegia sepium]]

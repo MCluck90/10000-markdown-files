@@ -74,3 +74,10 @@ Alas.
 Found IT DOES THE
 : Serpent I learn it wasn't going on talking.
 
+
+## Wikilinks load test
+
+[[discreet capillary fracture]]
+[[unmortgaged spore]]
+[[teenage actinotherapy]]
+[[rheological zero coupon bond]]

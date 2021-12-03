@@ -87,3 +87,8 @@ Presently she muttered to show
 Only I and again you
 : I'm here ought.
 
+
+## Wikilinks load test
+
+[[self-acting water tank]]
+[[machine-controlled hop]]

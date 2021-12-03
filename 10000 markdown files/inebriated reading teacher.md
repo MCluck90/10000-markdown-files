@@ -88,3 +88,9 @@ On which remained some noise and
 Presently the Tarts.
 : roared the brain But said What CAN have baked me you butter But do
 
+
+## Wikilinks load test
+
+[[brief paleo-amerind]]
+[[siberian tick trefoil]]
+[[spinose baby tooth]]

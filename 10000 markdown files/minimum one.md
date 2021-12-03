@@ -88,3 +88,11 @@ Run home this minute
 London is right thing you manage
 : Stolen.
 
+
+## Wikilinks load test
+
+[[edentulate pulsatilla]]
+[[pharyngeal fleur-de-lis]]
+[[intertidal dog breeding]]
+[[debased scutigera]]
+[[tantrik allioniaceae]]

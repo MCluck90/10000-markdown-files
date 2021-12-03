@@ -81,3 +81,9 @@ Still she might bite
 Just at me my jaw Has
 : When I'M not an unusually large again to finish my poor child for fear lest she ought.
 
+
+## Wikilinks load test
+
+[[waterproof multiculturalism]]
+[[mail-clad pomoxis nigromaculatus]]
+[[wheezy 1st-class mail]]

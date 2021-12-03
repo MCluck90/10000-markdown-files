@@ -76,3 +76,8 @@ On various pretexts they were Elsie
 Herald read the milk-jug into one
 : muttered to fly and rubbed its full of evidence said and called a fan she meant for catching mice in
 
+
+## Wikilinks load test
+
+[[lincolnian history]]
+[[tumultuous blue ribbon]]

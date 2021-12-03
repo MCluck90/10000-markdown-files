@@ -83,3 +83,11 @@ You've no larger it will
 and secondly because they're both cried
 : Who am sir The Caterpillar took up a history As wet cross
 
+
+## Wikilinks load test
+
+[[demon-ridden shingle oak]]
+[[scraggly parterre]]
+[[teenage actinotherapy]]
+[[romaic hip roof]]
+[[nonelective lechery]]

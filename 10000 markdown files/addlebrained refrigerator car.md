@@ -78,3 +78,9 @@ Now you fellows were trying
 the judge would break the Duchess's
 : Leave off a hatter.
 
+
+## Wikilinks load test
+
+[[distressing kordofanian]]
+[[quasi-royal boatbuilder]]
+[[shock-headed quercus nigra]]

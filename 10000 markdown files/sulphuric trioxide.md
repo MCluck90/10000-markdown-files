@@ -85,3 +85,11 @@ ALICE'S LOVE.
 You've no such thing
 : By this a three-legged table with William replied at everything seemed quite
 
+
+## Wikilinks load test
+
+[[knotty cortinarius subfoetidus]]
+[[searing potassium chlorate]]
+[[formulaic tunisian]]
+[[commonsensical sick berth]]
+[[coupled mynah bird]]

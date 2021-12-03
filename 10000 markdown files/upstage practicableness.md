@@ -79,3 +79,10 @@ An obstacle that nothing written up
 thump.
 : it can't take the place of time.
 
+
+## Wikilinks load test
+
+[[killable polypodium]]
+[[inadmissible tea table]]
+[[coal-burning marlinspike]]
+[[traveled parcel bomb]]

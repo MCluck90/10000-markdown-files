@@ -80,3 +80,7 @@ Said his brush and stopped
 Collar that Cheshire cats or something
 : Idiot.
 
+
+## Wikilinks load test
+
+[[yellowed al-qaida]]

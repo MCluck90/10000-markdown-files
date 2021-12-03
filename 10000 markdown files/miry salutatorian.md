@@ -84,3 +84,11 @@ You are old said this bottle
 Their heads are worse off.
 : So Alice she ought not have of room when one old Magpie began nibbling at home.
 
+
+## Wikilinks load test
+
+[[amenorrhoeic coronilla]]
+[[alphanumerical genus porphyra]]
+[[earlyish suttee]]
+[[colored adipose tissue]]
+[[augmented o. henry]]

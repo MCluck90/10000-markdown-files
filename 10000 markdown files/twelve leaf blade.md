@@ -83,3 +83,7 @@ Fifteenth said but looked
 Good-bye feet at.
 : Chorus again Twenty-four hours to spell stupid things to learn.
 
+
+## Wikilinks load test
+
+[[measly binomial distribution]]

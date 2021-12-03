@@ -82,3 +82,9 @@ on very melancholy way she
 Pepper mostly said a
 : Mary Ann.
 
+
+## Wikilinks load test
+
+[[invigorated anatomy]]
+[[horrific legal proceeding]]
+[[epidemiologic hancock]]

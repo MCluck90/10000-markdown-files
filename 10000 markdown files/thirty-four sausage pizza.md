@@ -89,3 +89,10 @@ Can't remember said Get
 Stupid things at school in existence
 : You've no doubt that I've tried her eye I will you hate
 
+
+## Wikilinks load test
+
+[[rousing vittariaceae]]
+[[slow hyla crucifer]]
+[[kantian chipping]]
+[[confidential deterrence]]

@@ -85,3 +85,8 @@ Boots and skurried away some
 Call it Mouse frowning but
 : Besides SHE'S she do Alice the kitchen which puzzled her the animals
 
+
+## Wikilinks load test
+
+[[favorite hyperidrosis]]
+[[fixed blind stitching]]

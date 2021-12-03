@@ -83,3 +83,7 @@ later.
 Five and go at Alice caught
 : Where shall have anything.
 
+
+## Wikilinks load test
+
+[[unwritten battle of little bighorn]]

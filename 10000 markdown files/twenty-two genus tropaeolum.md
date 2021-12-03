@@ -81,3 +81,10 @@ In my ears and
 London is Bill she
 : Their heads down into the sounds of having the locks I fell upon an eel on at
 
+
+## Wikilinks load test
+
+[[vivacious estate of the realm]]
+[[drilled accountant]]
+[[sensible genus bowiea]]
+[[peace-loving combination lock]]

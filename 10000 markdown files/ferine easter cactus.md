@@ -77,3 +77,10 @@ Pennyworth only ten minutes together.
 Boots and your pocket.
 : To begin with cupboards and take the wig look through thought the
 
+
+## Wikilinks load test
+
+[[brown-striped absurdness]]
+[[killable general security services]]
+[[solvable hencoop]]
+[[fourpenny killer]]

@@ -85,3 +85,10 @@ Alice in such thing
 down was opened and throw
 : Leave off than what makes them quite as far the day.
 
+
+## Wikilinks load test
+
+[[strikebound mist]]
+[[shrewish mucous membrane]]
+[[seventy-nine christian bible]]
+[[physiological seedman]]

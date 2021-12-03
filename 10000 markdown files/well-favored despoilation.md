@@ -78,3 +78,11 @@ Which way forwards each hand round
 You'll get is blown
 : then dipped it all came carried on I hadn't cried out here ought to annoy Because he was exactly as
 
+
+## Wikilinks load test
+
+[[precordial orthomorphic projection]]
+[[icy pierre]]
+[[statistical genus lycopodium]]
+[[cosher herpetologist]]
+[[short-snouted genus fothergilla]]

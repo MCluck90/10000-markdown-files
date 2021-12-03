@@ -77,3 +77,8 @@ Boots and dogs.
 Never heard it they set of
 : Beau ootiful Soo oop.
 
+
+## Wikilinks load test
+
+[[antipathetical pugilist]]
+[[abomasal tribology]]

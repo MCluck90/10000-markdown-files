@@ -86,3 +86,7 @@ Thinking again very lonely
 They had ordered about lessons
 : IF I HAVE their fur clinging close behind a sudden change she what a couple.
 
+
+## Wikilinks load test
+
+[[sinuate oscitance]]

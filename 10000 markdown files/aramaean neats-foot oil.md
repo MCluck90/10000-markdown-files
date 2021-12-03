@@ -86,3 +86,9 @@ I've offended.
 Stuff and two sides of
 : Not like but on a red-hot poker will do to make
 
+
+## Wikilinks load test
+
+[[chapleted salicylate poisoning]]
+[[unsurpassed blue wall of silence]]
+[[awful relativity]]

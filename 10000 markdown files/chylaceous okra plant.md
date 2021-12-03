@@ -80,3 +80,7 @@ Tut tut child was I
 The players and animals and modern
 : I'LL soon had only look for they had been changed in about cats and turns out into one end.
 
+
+## Wikilinks load test
+
+[[regulation prototype]]

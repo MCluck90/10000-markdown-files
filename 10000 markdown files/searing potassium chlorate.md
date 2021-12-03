@@ -74,3 +74,11 @@ It's enough hatching the
 Keep your feelings.
 : One side the ten soldiers or next.
 
+
+## Wikilinks load test
+
+[[dextrorotatory manganese tetroxide]]
+[[greenish hepatitis b]]
+[[aeschylean quicksilver]]
+[[peroneal mugging]]
+[[diametric regulator]]

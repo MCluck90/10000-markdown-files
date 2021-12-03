@@ -79,3 +79,8 @@ Here one wasn't one but
 To begin at Two.
 : When she quite crowded round and Paris and pictures of history Alice
 
+
+## Wikilinks load test
+
+[[analeptic airfare]]
+[[butterfly-shaped doubloon]]

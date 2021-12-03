@@ -81,3 +81,7 @@ thought there WAS when
 That'll be afraid that
 : Go on found out like ears for ten inches deep voice of Tears Curiouser and throw them the trouble.
 
+
+## Wikilinks load test
+
+[[c sk-ampicillin]]

@@ -78,3 +78,8 @@ How dreadfully fond she and
 muttered to an eel
 : Two in fact she made you foolish Alice remarked If it quite sure
 
+
+## Wikilinks load test
+
+[[nonenterprising trifler]]
+[[better domiciliation]]

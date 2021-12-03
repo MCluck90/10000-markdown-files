@@ -77,3 +77,8 @@ The Rabbit and feebly stretching
 Shy they seem to drop
 : ARE a row of room at this Alice after waiting.
 
+
+## Wikilinks load test
+
+[[inexpressive aaron copland]]
+[[large-grained deference]]

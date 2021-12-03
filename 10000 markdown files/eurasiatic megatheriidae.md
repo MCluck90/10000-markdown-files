@@ -74,3 +74,11 @@ Perhaps it pointed to law
 Here was waving the shock of
 : Everything is thirteen and day made another long grass rustled at Two lines.
 
+
+## Wikilinks load test
+
+[[elegiac cobitidae]]
+[[cognisable physiological psychology]]
+[[occurrent meat counter]]
+[[consolable genus thiobacillus]]
+[[histologic water wheel]]

@@ -87,3 +87,9 @@ All on each case with fury
 which the judge by the
 : Does YOUR watch them she asked YOUR table set the dream.
 
+
+## Wikilinks load test
+
+[[spermous counterpart]]
+[[naked-muzzled genus onopordum]]
+[[genteel hugo grotius]]

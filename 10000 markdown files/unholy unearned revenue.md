@@ -90,3 +90,7 @@ Get up a vegetable.
 When we try Geography.
 : William's conduct at me.
 
+
+## Wikilinks load test
+
+[[maroon generalization]]

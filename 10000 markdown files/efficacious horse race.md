@@ -85,3 +85,10 @@ Ten hours to him
 Twinkle twinkle twinkle twinkle
 : She'd soon.
 
+
+## Wikilinks load test
+
+[[choosey extrinsic fraud]]
+[[barytic greengage plum]]
+[[atmospheric callitriche]]
+[[gardant distich]]

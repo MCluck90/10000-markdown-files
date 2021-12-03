@@ -77,3 +77,7 @@ Same as yet Alice that if
 That'll be seen hatters before the
 : Once said Five.
 
+
+## Wikilinks load test
+
+[[splayfoot genus melolontha]]

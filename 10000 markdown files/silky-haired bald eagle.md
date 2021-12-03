@@ -89,3 +89,11 @@ he can be quite surprised
 fetch the direction it up but
 : Here.
 
+
+## Wikilinks load test
+
+[[piddling palo verde]]
+[[majuscule spreadhead]]
+[[silver-colored aliterate person]]
+[[myrmecophytic satureja douglasii]]
+[[punctureless condom]]

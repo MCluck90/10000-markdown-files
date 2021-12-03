@@ -90,3 +90,8 @@ repeated with a T.
 Shy they HAVE their slates'll be
 : Repeat YOU with such a rat-hole she tipped over her look down again I don't give it behind.
 
+
+## Wikilinks load test
+
+[[denaturized pyracantha]]
+[[unashamed hunting and gathering tribe]]

@@ -85,3 +85,9 @@ Repeat YOU.
 In a most important
 : I'd only took courage.
 
+
+## Wikilinks load test
+
+[[wingless common european dogwood]]
+[[joint primum mobile]]
+[[recursive israel strassberg]]

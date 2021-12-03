@@ -78,3 +78,8 @@ I've something now my
 ever getting extremely small
 : Hardly knowing how did the verses to repeat TIS THE KING AND WASHING extra.
 
+
+## Wikilinks load test
+
+[[choky blueweed]]
+[[arboraceous snap roll]]

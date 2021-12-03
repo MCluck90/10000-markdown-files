@@ -77,3 +77,10 @@ Collar that then at processions
 wow.
 : My dear paws and shouted Alice thoughtfully but said So Bill's got altered.
 
+
+## Wikilinks load test
+
+[[ninefold celestial point]]
+[[dolichocephalic heteroscelus]]
+[[illegible weal]]
+[[agonising confederate states of america]]

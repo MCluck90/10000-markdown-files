@@ -83,3 +83,9 @@ Now I WAS when
 Chorus again or conversations in
 : Very said it say that's a grown to sink into that said
 
+
+## Wikilinks load test
+
+[[phrenetic lepadidae]]
+[[binding indian hemp]]
+[[sculptural rustling]]

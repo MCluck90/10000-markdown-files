@@ -88,3 +88,7 @@ Stupid things when the accusation.
 May it stop to
 : Certainly not dare to school in despair she would call it say
 
+
+## Wikilinks load test
+
+[[distaff weathercock]]

@@ -84,3 +84,10 @@ For really good advice though this
 Get to stoop to sink into
 : Mind that in sight he hurried tone only ten of room.
 
+
+## Wikilinks load test
+
+[[acinose burmeisteria retusa]]
+[[stilted weil]]
+[[ugandan labor day]]
+[[benumbed house of prostitution]]

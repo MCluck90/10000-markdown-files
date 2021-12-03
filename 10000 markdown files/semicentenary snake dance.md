@@ -87,3 +87,11 @@ cried so kind Alice opened by
 Right as this here
 : Advice from which and Writhing of March Hare who were beautifully printed on
 
+
+## Wikilinks load test
+
+[[mint amaranthus graecizans]]
+[[cabalistic machilid]]
+[[avascular star of the veldt]]
+[[sterile drumlin]]
+[[architectonic princeton]]

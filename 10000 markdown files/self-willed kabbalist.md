@@ -80,3 +80,8 @@ Always lay far as you been
 Silence all locked and vanished.
 : A cat.
 
+
+## Wikilinks load test
+
+[[stocky line-drive single]]
+[[rotten floret]]

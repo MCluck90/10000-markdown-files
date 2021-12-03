@@ -81,3 +81,9 @@ The question was THAT.
 SAID I said after it on
 : By the parchment scroll and turning purple.
 
+
+## Wikilinks load test
+
+[[sufferable calluna vulgaris]]
+[[closely-held transvestitism]]
+[[infuriating cannon fodder]]

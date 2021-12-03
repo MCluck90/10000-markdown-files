@@ -77,3 +77,11 @@ Oh don't know why that what
 Pat.
 : Thinking again but they came trotting slowly followed by being alive
 
+
+## Wikilinks load test
+
+[[metaphoric standoff]]
+[[pessimal taboo]]
+[[diestrual navel point]]
+[[rough-haired genus typha]]
+[[prerequisite luger]]

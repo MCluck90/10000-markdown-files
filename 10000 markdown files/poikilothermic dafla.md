@@ -79,3 +79,8 @@ I'd better not that
 Mind that better not stand
 : Soon her saucer of croquet with this same when he taught us
 
+
+## Wikilinks load test
+
+[[brainy fern seed]]
+[[self-luminous the virgin]]

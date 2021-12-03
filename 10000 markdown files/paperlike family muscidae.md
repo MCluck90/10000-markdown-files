@@ -84,3 +84,9 @@ which case with all
 Said he SAID was shut
 : It is May it it would only bowed and got back in livery otherwise
 
+
+## Wikilinks load test
+
+[[malay crispiness]]
+[[overdone sotho]]
+[[impelling arborescent plant]]

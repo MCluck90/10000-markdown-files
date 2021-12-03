@@ -83,3 +83,10 @@ yelled the roses growing too
 Give your jaws.
 : Quick now dears.
 
+
+## Wikilinks load test
+
+[[capable genus orthilia]]
+[[cyrillic amicus curiae brief]]
+[[noninstitutionalised genus salicornia]]
+[[bicornate baldrick]]

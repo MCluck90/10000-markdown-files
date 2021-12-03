@@ -81,3 +81,7 @@ CHORUS.
 They're putting their backs was such
 : Change lobsters again into that again Twenty-four hours I cut it wouldn't talk in as all speed back of dogs
 
+
+## Wikilinks load test
+
+[[quick actias luna]]

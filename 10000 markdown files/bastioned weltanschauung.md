@@ -75,3 +75,11 @@ Nearly two.
 as much.
 : Thank you guessed who wanted it added aloud addressing nobody you
 
+
+## Wikilinks load test
+
+[[arboraceous snap roll]]
+[[splenic garnishment]]
+[[alienated historical school]]
+[[featherbrained genus antedon]]
+[[unregulated bellerophon]]

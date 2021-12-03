@@ -75,3 +75,9 @@ I've nothing she did they gave
 Of the sun and
 : Up above the Nile On every golden scale.
 
+
+## Wikilinks load test
+
+[[mistakable lysimachia]]
+[[missing thigh boot]]
+[[pre-emptive tughrik]]

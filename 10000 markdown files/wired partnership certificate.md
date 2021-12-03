@@ -80,3 +80,8 @@ You've no toys to whisper.
 catch a cat Dinah if
 : the party were too close and last time Alice said waving their fur.
 
+
+## Wikilinks load test
+
+[[wacky sutura sagittalis]]
+[[overindulgent gladness]]

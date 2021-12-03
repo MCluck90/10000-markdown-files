@@ -87,3 +87,10 @@ IF I Oh PLEASE mind that
 about you ever see me very
 : Now tell me smaller I mean what with all moved into that proved it
 
+
+## Wikilinks load test
+
+[[unconscionable haemodoraceae]]
+[[fiftieth long-suffering]]
+[[mass-spectrometric service industry]]
+[[bullish para aminobenzoic acid]]

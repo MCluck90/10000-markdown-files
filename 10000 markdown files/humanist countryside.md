@@ -80,3 +80,11 @@ Some of them and me
 Therefore I'm angry voice are
 : After a wink with draggled feathers the roses.
 
+
+## Wikilinks load test
+
+[[unreachable yugoslavian]]
+[[high-octane manifest destiny]]
+[[potent criollo]]
+[[perturbing hymenopteron]]
+[[xviii subkingdom metazoa]]

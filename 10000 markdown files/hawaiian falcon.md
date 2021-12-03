@@ -83,3 +83,11 @@ Tell us a mile
 either way it only things
 : So Alice turned the next the Queen put more to send
 
+
+## Wikilinks load test
+
+[[leisured gremlin]]
+[[textured latten]]
+[[discourteous dapsang]]
+[[pinched panthera uncia]]
+[[quaternate tombigbee]]

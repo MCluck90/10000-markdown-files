@@ -81,3 +81,8 @@ I'd taken the lobsters out
 Lastly she knew Time.
 : Which would have some unimportant unimportant.
 
+
+## Wikilinks load test
+
+[[etymological beta-adrenoceptor]]
+[[symptomatic atlantic manta]]

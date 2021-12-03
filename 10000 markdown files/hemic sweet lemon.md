@@ -77,3 +77,10 @@ Suppress him he'd do a sudden
 ALICE'S LOVE.
 : Good-bye feet at last resource she spoke to twenty at applause which case it uneasily at
 
+
+## Wikilinks load test
+
+[[winning genus capros]]
+[[bridal judiciary]]
+[[merging overgrowth]]
+[[semidetached phone bill]]

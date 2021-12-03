@@ -72,3 +72,7 @@ SAID I.
 sighed wearily.
 : Fifteenth said Seven.
 
+
+## Wikilinks load test
+
+[[bright-red lake tanganyika]]

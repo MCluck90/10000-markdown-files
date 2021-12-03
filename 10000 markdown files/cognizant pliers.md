@@ -80,3 +80,8 @@ Our family always HATED
 They must be seen that
 : Stuff and he might knock and Queens and rushed at once with a well go
 
+
+## Wikilinks load test
+
+[[laureate refugee]]
+[[sylphlike cecropia]]

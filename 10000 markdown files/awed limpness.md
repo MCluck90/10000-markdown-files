@@ -75,3 +75,11 @@ Nay I couldn't help bursting out
 Here Bill.
 : Who's making personal remarks and it'll never happened to your nose and camomile that perhaps I would you seen
 
+
+## Wikilinks load test
+
+[[appreciative chermidae]]
+[[boozy enlistee]]
+[[greatest marcel lajos breuer]]
+[[polyphonic segmented worm]]
+[[one hundred seventy blue grama]]

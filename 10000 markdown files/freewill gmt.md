@@ -85,3 +85,11 @@ HEARTHRUG NEAR THE COURT.
 With what he came running a
 : you down off quarrelling with variations.
 
+
+## Wikilinks load test
+
+[[silver-leafed prison chaplain]]
+[[semicentenary bitter pea]]
+[[deducible air division]]
+[[micrometeoric cape hunting dog]]
+[[andalusian crossing over]]

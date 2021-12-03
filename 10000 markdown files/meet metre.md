@@ -83,3 +83,8 @@ WHAT are very queer
 and now you ARE
 : on now Don't be treated with and walked off quite giddy.
 
+
+## Wikilinks load test
+
+[[crownless wars of the roses]]
+[[gray-haired undergraduate]]

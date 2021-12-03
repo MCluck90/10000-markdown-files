@@ -89,3 +89,8 @@ Down the chimneys were
 Either the world would in silence.
 : Heads below.
 
+
+## Wikilinks load test
+
+[[sunless tracer bullet]]
+[[effortless captaincy]]

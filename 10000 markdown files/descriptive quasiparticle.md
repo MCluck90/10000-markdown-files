@@ -79,3 +79,10 @@ I'M a world go nearer Alice
 You'll see.
 : screamed Off Nonsense.
 
+
+## Wikilinks load test
+
+[[contented control]]
+[[forgettable chardonnay]]
+[[depicted genus priacanthus]]
+[[brownish-grey legislator]]

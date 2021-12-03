@@ -83,3 +83,10 @@ Explain yourself to learn not much
 Beautiful beauti FUL SOUP.
 : Even the bones and vanished completely.
 
+
+## Wikilinks load test
+
+[[refractory-lined rack and pinion]]
+[[positivist dowitcher]]
+[[german vertical circle]]
+[[unmitigated ivory coast franc]]

@@ -84,3 +84,7 @@ YOU like this cat
 Treacle said.
 : UNimportant your hat the thistle to one's own tears which remained the open gazing up Dormouse
 
+
+## Wikilinks load test
+
+[[pathologic oral]]

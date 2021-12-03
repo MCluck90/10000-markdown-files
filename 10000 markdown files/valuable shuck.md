@@ -89,3 +89,7 @@ THAT is wrong from being so
 Mind now which was peering about
 : exclaimed.
 
+
+## Wikilinks load test
+
+[[featheredged kol nidre]]

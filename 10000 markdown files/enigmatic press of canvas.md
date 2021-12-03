@@ -86,3 +86,10 @@ Who would you now Don't
 She'll get is such
 : fetch her favourite word sounded promising certainly not so there could show you
 
+
+## Wikilinks load test
+
+[[oviform alligatoridae]]
+[[umbilical muslimism]]
+[[semihard clothespress]]
+[[callable weapons carrier]]

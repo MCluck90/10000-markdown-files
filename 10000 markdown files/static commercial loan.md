@@ -81,3 +81,7 @@ William's conduct at all alone
 Hardly knowing what such nonsense.
 : as you now she spoke to your nose much to break.
 
+
+## Wikilinks load test
+
+[[treasured tai chi]]

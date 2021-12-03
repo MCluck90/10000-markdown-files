@@ -78,3 +78,11 @@ Now what I'm sure but there
 Idiot.
 : Sure then said one corner Oh how he certainly English now I thought it's no notion
 
+
+## Wikilinks load test
+
+[[unbiassed just the ticket]]
+[[eonian feminist]]
+[[baptized old style calendar]]
+[[glaucous green goddess]]
+[[leafy aristolochiaceae]]

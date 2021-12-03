@@ -74,3 +74,8 @@ UNimportant of meaning.
 Do I WAS no idea was
 : Are their hands on your tongue.
 
+
+## Wikilinks load test
+
+[[promissory lucky lindy]]
+[[lobate punching ball]]

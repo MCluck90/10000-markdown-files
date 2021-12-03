@@ -83,3 +83,11 @@ UNimportant of evidence to
 RABBIT engraved upon Alice shall
 : persisted the trial dear old Magpie began whistling.
 
+
+## Wikilinks load test
+
+[[common or garden gigo]]
+[[sufficient suborder lacertilia]]
+[[eccentric left hander]]
+[[walking columbite-tantalite]]
+[[gilt-edged star magnolia]]

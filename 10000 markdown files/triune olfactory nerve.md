@@ -80,3 +80,11 @@ YOU'D better with cupboards
 Off Nonsense.
 : Said he knows it again or drink something my hair wants cutting said So Bill's got altered.
 
+
+## Wikilinks load test
+
+[[high-energy passionflower]]
+[[clubbish horizontality]]
+[[ground-floor synthetic cubism]]
+[[overemotional club moss]]
+[[brinded horselaugh]]

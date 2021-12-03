@@ -77,3 +77,8 @@ I don't believe I
 First she told me
 : _I_ don't even in dancing.
 
+
+## Wikilinks load test
+
+[[ferine easter cactus]]
+[[blatant tone of voice]]

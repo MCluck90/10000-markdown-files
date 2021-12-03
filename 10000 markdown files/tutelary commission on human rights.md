@@ -76,3 +76,10 @@ Wake up against a book
 Ahem.
 : Found IT DOES THE VOICE OF THE VOICE OF HEARTS.
 
+
+## Wikilinks load test
+
+[[evangelistic tickling]]
+[[antenatal ethnic slur]]
+[[dislikable order of our lady of mount carmel]]
+[[cyprinid sissoo]]

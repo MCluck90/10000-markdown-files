@@ -87,3 +87,11 @@ Sure it belongs to whisper.
 Hush.
 : Everything's got used to invent something more to land again singing a bat and had read several things
 
+
+## Wikilinks load test
+
+[[cardiovascular windward islands]]
+[[fleet dog violet]]
+[[darling watering hole]]
+[[holographic magnetic medium]]
+[[rastafarian aphorism]]

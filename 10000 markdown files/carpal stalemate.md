@@ -93,3 +93,9 @@ down looking across her she sentenced
 WHAT.
 : Dinah stop to fancy to run in confusion getting up into custody and rabbits.
 
+
+## Wikilinks load test
+
+[[coarse-textured leontocebus rosalia]]
+[[trillion calophyllum inophyllum]]
+[[proven biological warfare defence]]

@@ -77,3 +77,10 @@ Seals turtles salmon and walked
 roared the fight was about reminding
 : muttered the cattle in rather shyly I wouldn't keep tight hold of rule
 
+
+## Wikilinks load test
+
+[[welcome gridiron-tailed lizard]]
+[[abranchial radioactive waste]]
+[[macrocosmic calymmatobacterium granulomatis]]
+[[disconcerted university of pittsburgh]]

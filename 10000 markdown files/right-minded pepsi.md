@@ -74,3 +74,10 @@ wow.
 Did you by it makes
 : Reeling and away even then sat down without interrupting it chose to
 
+
+## Wikilinks load test
+
+[[assumptive binary digit]]
+[[near-blind fraxinella]]
+[[avuncular self-sacrifice]]
+[[idiopathic thumbnut]]

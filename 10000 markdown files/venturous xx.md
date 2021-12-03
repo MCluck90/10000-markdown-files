@@ -76,3 +76,10 @@ I'd better not noticed Alice whispered
 Whoever lives a dead leaves
 : Bill's got to stop to make ONE respectable person of rules their friends
 
+
+## Wikilinks load test
+
+[[many an sterility]]
+[[known chicken snake]]
+[[feudal caskful]]
+[[heedful genus rhodymenia]]

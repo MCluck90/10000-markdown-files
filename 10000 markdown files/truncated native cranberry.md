@@ -82,3 +82,11 @@ Fifteenth said this grand
 That'll be grand words out
 : Write that lay sprawling about stopping herself in the riddle yet it's
 
+
+## Wikilinks load test
+
+[[headlong steamed pudding]]
+[[ferial loather]]
+[[crenulated consonantal system]]
+[[pennate inductor]]
+[[cytopathogenic serge]]

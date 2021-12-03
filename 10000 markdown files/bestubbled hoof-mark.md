@@ -86,3 +86,10 @@ See how I ever she left
 Well I'd gone through thought
 : Soo oop.
 
+
+## Wikilinks load test
+
+[[unpublishable dead march]]
+[[referential mayan]]
+[[unrouged nominalism]]
+[[pelagic sweet elder]]

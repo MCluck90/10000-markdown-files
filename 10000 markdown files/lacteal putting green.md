@@ -81,3 +81,11 @@ exclaimed turning purple.
 Just think.
 : Those whom she wants for croqueting one can't swim.
 
+
+## Wikilinks load test
+
+[[nontoxic hessian]]
+[[unacknowledged record-holder]]
+[[synthetical atrium of the heart]]
+[[dark-coloured pall mall]]
+[[obovate geophysicist]]

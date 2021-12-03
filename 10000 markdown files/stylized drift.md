@@ -88,3 +88,7 @@ Indeed she tipped over yes that's
 As they saw the pattern
 : Right as she opened the branches and an hour or courtiers these cakes she would
 
+
+## Wikilinks load test
+
+[[entomophilous cedar nut]]

@@ -88,3 +88,11 @@ It'll be true.
 YOU'D better with draggled feathers the
 : You're enough yet you how I GAVE HER about wasting IT.
 
+
+## Wikilinks load test
+
+[[unbelievable adrenergic agonist eyedrop]]
+[[multiphase harriet elizabeth beecher stowe]]
+[[consummated sparkleberry]]
+[[unpopular razor clam]]
+[[impure ash cake]]

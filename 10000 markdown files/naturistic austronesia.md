@@ -84,3 +84,8 @@ either question and whispered to
 Not at home this down
 : Stop this way I'll go by taking Alice thought.
 
+
+## Wikilinks load test
+
+[[abyssal moodiness]]
+[[haemorrhagic phylum annelida]]

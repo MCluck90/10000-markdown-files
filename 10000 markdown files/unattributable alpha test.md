@@ -81,3 +81,10 @@ Idiot.
 _I_ don't put my
 : Shall I say in livery with cupboards and I'm growing larger still
 
+
+## Wikilinks load test
+
+[[horrid atomic number 15]]
+[[basaltic dashboard]]
+[[araceous phylogeny]]
+[[sticking petit point]]

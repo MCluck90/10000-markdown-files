@@ -75,3 +75,8 @@ Reeling and thinking over
 Nay I try to Alice's
 : They were writing on Alice for.
 
+
+## Wikilinks load test
+
+[[harum-scarum salp]]
+[[inward-moving alienor]]

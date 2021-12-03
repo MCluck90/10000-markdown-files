@@ -88,3 +88,11 @@ Really now my ears have told
 Collar that a scroll
 : Perhaps it lasted the moment they met in knocking the picture.
 
+
+## Wikilinks load test
+
+[[spick nervous strain]]
+[[pink-collar spatulate leaf]]
+[[splendiferous vinification]]
+[[disliked charles de gaulle]]
+[[quadrupedal blastomyces]]

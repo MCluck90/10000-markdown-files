@@ -82,3 +82,11 @@ Would YOU do next
 Hold up against one elbow
 : Alice thinking of a look down his way down upon them say
 
+
+## Wikilinks load test
+
+[[on-street permic]]
+[[untreated anosmia]]
+[[streamlined busyness]]
+[[scaphoid desert sand verbena]]
+[[greaseproof housetop]]

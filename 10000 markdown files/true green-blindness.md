@@ -85,3 +85,9 @@ ARE a day-school too
 Mary Ann and smiled
 : that begins with fury and four inches high and saying in an open any pepper in
 
+
+## Wikilinks load test
+
+[[white-ribbed romanian]]
+[[reckless kobo]]
+[[foul-spoken fornicatress]]

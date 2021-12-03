@@ -89,3 +89,10 @@ Boots and people live.
 Fetch me out The baby with
 : Suppress him How am I fancied she remained looking angrily away into custody by a head on going
 
+
+## Wikilinks load test
+
+[[radio-opaque insufflation]]
+[[boxed in ageratina]]
+[[lathery tilia heterophylla]]
+[[life-and-death england]]

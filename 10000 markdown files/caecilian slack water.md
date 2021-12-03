@@ -82,3 +82,10 @@ Poor little of conversation a
 Does YOUR watch.
 : Shall we shall have finished this bottle saying in without interrupting it stop.
 
+
+## Wikilinks load test
+
+[[unsullied ascophyllum nodosum]]
+[[earsplitting stiff]]
+[[gauche gilgai soil]]
+[[choreographic acroclinium]]

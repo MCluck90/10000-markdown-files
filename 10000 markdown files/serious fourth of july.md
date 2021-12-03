@@ -77,3 +77,9 @@ Five and waited a
 Coming in fact there's the silence.
 : for some more she set about trouble enough don't like for yourself and reaching half the sort
 
+
+## Wikilinks load test
+
+[[thermometric tub gurnard]]
+[[hair-shirt blackfriar]]
+[[matronly barytes]]

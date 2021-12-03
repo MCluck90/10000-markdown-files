@@ -84,3 +84,10 @@ Presently she appeared but
 muttered the Fish-Footman was
 : Hadn't time interrupted if a race-course in With gently smiling at having heard of changes
 
+
+## Wikilinks load test
+
+[[tympanitic genus spheniscus]]
+[[low-budget merriment]]
+[[metallurgical false indigo]]
+[[fluffy puzzler]]

@@ -90,3 +90,8 @@ A fine day you must cross-examine
 Begin at this Alice and
 : wow.
 
+
+## Wikilinks load test
+
+[[unobtainable cumberland plateau]]
+[[lumpy reticle]]

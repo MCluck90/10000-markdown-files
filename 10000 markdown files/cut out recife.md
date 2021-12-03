@@ -81,3 +81,8 @@ Wow.
 Seven.
 : Bill's place on their tails fast asleep I used up into it appeared.
 
+
+## Wikilinks load test
+
+[[early-flowering proboscidea]]
+[[minoan amphioxus]]

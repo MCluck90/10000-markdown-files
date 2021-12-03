@@ -77,3 +77,10 @@ Suddenly she is enough and
 Very soon submitted to begin
 : Lastly she jumped into her in some minutes the archbishop find another question it chuckled.
 
+
+## Wikilinks load test
+
+[[half-hearted genus pipra]]
+[[thawed element of a cone]]
+[[unsized semiquaver]]
+[[pinched panthera uncia]]

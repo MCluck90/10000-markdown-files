@@ -91,3 +91,10 @@ Wow.
 Change lobsters you ARE
 : Serpent.
 
+
+## Wikilinks load test
+
+[[rheumy litter basket]]
+[[requested water carpet]]
+[[metallurgical false indigo]]
+[[evaporated coat of arms]]

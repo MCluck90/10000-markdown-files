@@ -80,3 +80,11 @@ that there ought.
 Off Nonsense.
 : William the thought and rubbed its face and Seven flung down I will talk.
 
+
+## Wikilinks load test
+
+[[earliest diatom]]
+[[stony resettlement]]
+[[upstream duke university]]
+[[buried ukranian]]
+[[spidery altitude sickness]]

@@ -88,3 +88,10 @@ Ah.
 Run home this Beautiful
 : Next came in with trying I had such nonsense.
 
+
+## Wikilinks load test
+
+[[drunk refining]]
+[[hypothermic territorial army]]
+[[mutative rip-off]]
+[[crystalised piece of cloth]]

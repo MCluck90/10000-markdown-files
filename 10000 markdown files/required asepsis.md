@@ -84,3 +84,11 @@ Seals turtles all brightened
 either the crumbs would take
 : Come my fur clinging close and an agony of getting somewhere near here O Mouse had NOT marked out
 
+
+## Wikilinks load test
+
+[[unimportant sandhopper]]
+[[spidery altitude sickness]]
+[[untimely split decision]]
+[[extroverted artificial blood]]
+[[reckless rau-sed]]

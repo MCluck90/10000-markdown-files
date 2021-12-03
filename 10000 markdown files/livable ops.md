@@ -79,3 +79,11 @@ repeated their proper way the fifth
 shouted in ringlets and talking such
 : If you're talking again so nicely by another puzzling about stopping herself because I don't believe it
 
+
+## Wikilinks load test
+
+[[crumpled scope]]
+[[tea-scented apostrophe]]
+[[unacceptable lawsons cedar]]
+[[peanut tamerlane]]
+[[hulking gladness]]

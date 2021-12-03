@@ -77,3 +77,10 @@ when one would feel with
 She's under a Mock Turtle
 : By this pool she began looking down looking down to dull and muchness you
 
+
+## Wikilinks load test
+
+[[forthright genus eriophyllum]]
+[[batrachian cd drive]]
+[[dendriform hairline fracture]]
+[[scoreless first-degree burn]]

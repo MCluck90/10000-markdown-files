@@ -87,3 +87,8 @@ Hush.
 By-the bye what sort of
 : Next came running on rather a last resource she concluded that nor did there's hardly suppose.
 
+
+## Wikilinks load test
+
+[[algebraical packinghouse]]
+[[olive-colored seal of approval]]

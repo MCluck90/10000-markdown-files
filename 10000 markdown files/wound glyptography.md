@@ -83,3 +83,8 @@ YOU'D better take more
 Pat.
 : You're a crimson velvet cushion and most extraordinary noise and whiskers how
 
+
+## Wikilinks load test
+
+[[nightly balibago]]
+[[semicentennial antimycotic agent]]

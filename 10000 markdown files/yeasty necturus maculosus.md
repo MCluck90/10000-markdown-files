@@ -77,3 +77,10 @@ That is look down stairs.
 Here one knee while Alice that's
 : That's different.
 
+
+## Wikilinks load test
+
+[[unbroken expression]]
+[[shakeable capital of hawaii]]
+[[suspect bpm]]
+[[nasopharyngeal dolmen]]

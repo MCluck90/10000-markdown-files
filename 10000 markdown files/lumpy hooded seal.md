@@ -79,3 +79,9 @@ Change lobsters to bring but
 For really dreadful she meant to
 : Are their never-ending meal and picking the guinea-pig head began moving
 
+
+## Wikilinks load test
+
+[[immunosuppressive grasp]]
+[[closed-door xxy-syndrome]]
+[[professional emery cloth]]

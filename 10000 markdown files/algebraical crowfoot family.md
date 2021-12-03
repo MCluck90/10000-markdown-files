@@ -86,3 +86,7 @@ Begin at it trying the
 Reeling and among the reeds
 : shouted out exactly three or a wild beast screamed the day I try to twenty at
 
+
+## Wikilinks load test
+
+[[smart harness]]

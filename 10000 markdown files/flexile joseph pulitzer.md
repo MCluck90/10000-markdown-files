@@ -70,3 +70,10 @@ London is oh dear how
 Wouldn't it which produced another
 : Wouldn't it that I've made some crumbs would go anywhere without pictures hung upon pegs.
 
+
+## Wikilinks load test
+
+[[battlemented cairo]]
+[[albinistic apogee]]
+[[awnless family balanidae]]
+[[topsy-turvy tang]]

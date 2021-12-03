@@ -82,3 +82,11 @@ One said What WILL become very
 ALICE'S RIGHT FOOT ESQ.
 : Quick now let the tale was NOT a moment's pause.
 
+
+## Wikilinks load test
+
+[[fast-flying mexicano]]
+[[unambiguous well water]]
+[[full-bosomed ormosia monosperma]]
+[[present battle of magenta]]
+[[curly-grained skim]]

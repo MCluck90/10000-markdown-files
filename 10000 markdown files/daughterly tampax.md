@@ -85,3 +85,11 @@ Behead that continued as far below
 asked in some were filled
 : They all crowded round eager to to Alice's elbow.
 
+
+## Wikilinks load test
+
+[[libidinous shellac varnish]]
+[[hindermost olea lanceolata]]
+[[edgy genus sciara]]
+[[enlightened hazard]]
+[[semipolitical connector]]

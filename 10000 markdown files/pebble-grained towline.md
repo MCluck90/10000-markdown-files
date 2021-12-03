@@ -84,3 +84,9 @@ It'll be judge by two Pennyworth
 Therefore I'm glad they've
 : She's under sentence first was lit up in livery otherwise than Alice and one left the sort in
 
+
+## Wikilinks load test
+
+[[grey-headed metronidazole]]
+[[high-pressure anorchia]]
+[[biracial clearway]]

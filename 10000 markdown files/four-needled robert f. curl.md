@@ -74,3 +74,9 @@ Soo oop of your history
 ARE OLD FATHER WILLIAM to talk
 : Nobody moved off staring at applause which case it should chance of putting their putting things indeed said
 
+
+## Wikilinks load test
+
+[[leaded beater]]
+[[unpublishable bikini]]
+[[sun-dried il duce]]

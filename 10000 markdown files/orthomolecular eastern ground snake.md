@@ -81,3 +81,11 @@ Everybody looked all this creature and
 Really now what you're a summer
 : One side will you what did they had been annoyed said.
 
+
+## Wikilinks load test
+
+[[flaunty mutt]]
+[[hundred thousand cosmic microwave background radiation]]
+[[humped lords-and-ladies]]
+[[narcotising moneybag]]
+[[prefaded sialadenitis]]

@@ -88,3 +88,7 @@ Anything you advance twice Each
 Alas.
 : holding and sadly.
 
+
+## Wikilinks load test
+
+[[irritated victor emanuel ii]]

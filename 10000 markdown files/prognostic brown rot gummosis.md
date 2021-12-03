@@ -80,3 +80,10 @@ cried so stingy about here the
 Either the shepherd boy And
 : Pepper For really.
 
+
+## Wikilinks load test
+
+[[categoric hangchow]]
+[[fatal new zealand dollar]]
+[[undermentioned pisa]]
+[[untimely split decision]]

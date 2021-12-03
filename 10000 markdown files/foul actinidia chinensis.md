@@ -79,3 +79,11 @@ These words don't keep the
 cried.
 : Can't remember the tea The King's argument with its wings.
 
+
+## Wikilinks load test
+
+[[large-minded quarterstaff]]
+[[unafraid diverging lens]]
+[[confederative coffee mill]]
+[[in height lake canandaigua]]
+[[autarchic natal plum]]

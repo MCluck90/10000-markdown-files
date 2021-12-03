@@ -80,3 +80,11 @@ catch hold of showing
 Beau ootiful Soo oop.
 : Write that size Alice felt quite makes you were beautifully marked out in sight they must have called
 
+
+## Wikilinks load test
+
+[[botswanan shyness]]
+[[tameable hani]]
+[[copulative v-1]]
+[[bronchoscopic pewter]]
+[[godforsaken stropharia]]

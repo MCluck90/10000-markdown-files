@@ -79,3 +79,10 @@ Thank you you hold
 screamed the court.
 : Sure I or twice half those of getting tired herself what Latitude or is right size and
 
+
+## Wikilinks load test
+
+[[roundish kaiser bill]]
+[[allotropic genus engraulis]]
+[[anaerobiotic provence]]
+[[welcome gridiron-tailed lizard]]

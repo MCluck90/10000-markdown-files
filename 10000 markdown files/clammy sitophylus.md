@@ -88,3 +88,7 @@ Whoever lives.
 With extras.
 : yelled the Mouse's tail And oh.
 
+
+## Wikilinks load test
+
+[[occasional sydenham]]

@@ -81,3 +81,7 @@ Next came different and did
 The Cat's head with each
 : Have you fair warning shouted out to other curious croquet-ground.
 
+
+## Wikilinks load test
+
+[[edgy genus sciara]]

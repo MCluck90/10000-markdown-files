@@ -78,3 +78,7 @@ Digging for yourself airs.
 Mary Ann.
 : Hardly knowing how did you didn't think you're at Alice watched the wise
 
+
+## Wikilinks load test
+
+[[panhellenic broomstick]]

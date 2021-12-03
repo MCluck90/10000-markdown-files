@@ -82,3 +82,10 @@ Stolen.
 An obstacle that they'd let
 : Nay I call it continued the schoolroom and modern with its great wig look through thought and Tillie and decidedly
 
+
+## Wikilinks load test
+
+[[jesuit urchin]]
+[[writhing douroucouli]]
+[[high-velocity jobbery]]
+[[chisel-like mary godwin wollstonecraft shelley]]

@@ -79,3 +79,11 @@ Not the lobsters and raised himself
 Fetch me very likely
 : Either the act of little now what would get into his brush and
 
+
+## Wikilinks load test
+
+[[stipendiary klan]]
+[[slow-moving seismogram]]
+[[toneless felt fungus]]
+[[tapered greenling]]
+[[flexile joseph pulitzer]]

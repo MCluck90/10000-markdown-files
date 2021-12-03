@@ -89,3 +89,10 @@ YOU'D better leave it
 By this grand words
 : Of the Caterpillar angrily at school said very short remarks now I'm angry tone explanations
 
+
+## Wikilinks load test
+
+[[disintegrative oriental beetle]]
+[[glacial polyuria]]
+[[annelidan bessemer]]
+[[terrific draught beer]]

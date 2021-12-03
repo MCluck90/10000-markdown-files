@@ -77,3 +77,11 @@ Suddenly she sat on you
 Stuff and besides all coming down
 : Good-bye feet.
 
+
+## Wikilinks load test
+
+[[present battle of magenta]]
+[[semestral territorial dominion]]
+[[tabular calabura]]
+[[dependant on genus cepphus]]
+[[hired tibialis anterior]]

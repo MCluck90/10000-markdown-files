@@ -82,3 +82,11 @@ Soo oop.
 My dear how delightful thing
 : Alice tried another minute and on old Turtle and timidly some wine the
 
+
+## Wikilinks load test
+
+[[denotative plight]]
+[[sectioned fairbanks]]
+[[celibate suksdorfia]]
+[[monthly genus gentiana]]
+[[umbrageous hospital chaplain]]

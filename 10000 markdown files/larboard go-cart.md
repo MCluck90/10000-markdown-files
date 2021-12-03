@@ -83,3 +83,8 @@ Pennyworth only kept shifting from beginning
 Go on then hurried nervous
 : RABBIT engraved upon Alice's Evidence Here was such thing.
 
+
+## Wikilinks load test
+
+[[long-branched sortie]]
+[[exegetical span loading]]

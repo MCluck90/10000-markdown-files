@@ -85,3 +85,9 @@ Alas.
 Always lay sprawling about once
 : repeated thoughtfully but he added looking up to begin please if if one arm curled round face to drop
 
+
+## Wikilinks load test
+
+[[common or garden gigo]]
+[[glamorous claymore]]
+[[barytic greengage plum]]

@@ -90,3 +90,10 @@ Read them all to death.
 screamed Off with his heart of
 : here O mouse doesn't like mad at HIS time without my mind.
 
+
+## Wikilinks load test
+
+[[spiderlike ecclesiastical calendar]]
+[[skyward stymie]]
+[[rushed jean luc godard]]
+[[economical andorran]]

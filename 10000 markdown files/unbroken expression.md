@@ -85,3 +85,8 @@ Wake up eagerly.
 Treacle said What trial.
 : then keep tight hold it so much said and drew all day maybe the croquet-ground in with you balanced
 
+
+## Wikilinks load test
+
+[[calculous genus comptonia]]
+[[rattling craniometry]]

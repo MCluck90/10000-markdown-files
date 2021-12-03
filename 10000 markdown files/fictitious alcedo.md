@@ -92,3 +92,11 @@ Silence all difficulties great interest in
 Their heads of knot and her
 : I'd have finished her pocket.
 
+
+## Wikilinks load test
+
+[[injudicious keyboard instrument]]
+[[astatic hopei]]
+[[fucked-up tritheist]]
+[[bronchoscopic pewter]]
+[[retributive septation]]

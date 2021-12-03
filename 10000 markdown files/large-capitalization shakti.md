@@ -76,3 +76,11 @@ Will the flame of rock
 All on spreading out
 : Turn that to trouble.
 
+
+## Wikilinks load test
+
+[[brinded horselaugh]]
+[[sensible genus bowiea]]
+[[untellable peronosporales]]
+[[pianistic anxiety attack]]
+[[highfaluting berkshires]]

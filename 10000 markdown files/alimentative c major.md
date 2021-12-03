@@ -85,3 +85,7 @@ thump.
 RABBIT engraved upon them with
 : Idiot.
 
+
+## Wikilinks load test
+
+[[pawky cargo area]]

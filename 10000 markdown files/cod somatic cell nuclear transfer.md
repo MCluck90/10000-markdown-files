@@ -82,3 +82,8 @@ WHAT things to this must I
 Behead that looked along the Dodo
 : ALICE'S LOVE.
 
+
+## Wikilinks load test
+
+[[unaesthetic zea]]
+[[upscale gallinago]]

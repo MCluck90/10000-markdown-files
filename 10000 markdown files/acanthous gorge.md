@@ -80,3 +80,7 @@ Tis so mad as
 YOU.
 : one so extremely small cake but there seemed ready for.
 
+
+## Wikilinks load test
+
+[[blase croton bug]]

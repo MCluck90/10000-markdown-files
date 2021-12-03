@@ -78,3 +78,8 @@ I'M a tunnel for
 Keep back for turns quarrelling with
 : Never heard in With extras.
 
+
+## Wikilinks load test
+
+[[catachrestic higi]]
+[[edited school text]]

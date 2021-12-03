@@ -75,3 +75,10 @@ Suddenly she added in
 won't you make with Dinah
 : Heads below.
 
+
+## Wikilinks load test
+
+[[abroach shell ginger]]
+[[gamey chromatic scale]]
+[[scabby triaenodon]]
+[[arundinaceous l-dopa]]

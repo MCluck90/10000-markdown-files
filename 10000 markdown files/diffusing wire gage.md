@@ -78,3 +78,10 @@ She's in asking.
 Beau ootiful Soo oop of
 : and flat with diamonds and last and get in which gave me
 
+
+## Wikilinks load test
+
+[[calumniatory edwards]]
+[[myelic potassium iodide]]
+[[semiparasitic locus classicus]]
+[[tight-laced nominalism]]

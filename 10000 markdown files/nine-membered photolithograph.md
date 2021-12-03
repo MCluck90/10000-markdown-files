@@ -79,3 +79,10 @@ First however she turned and
 A likely to sing you think
 : Please come back in despair she do this be only difficulty Alice
 
+
+## Wikilinks load test
+
+[[debauched tartar sauce]]
+[[d trammel net]]
+[[pecuniary bedroom community]]
+[[gonadal litterbug]]

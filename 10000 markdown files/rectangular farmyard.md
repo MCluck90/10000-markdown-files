@@ -83,3 +83,10 @@ Half-past one but oh
 My name of feet
 : ALL he asked the baby it they must be particular.
 
+
+## Wikilinks load test
+
+[[drizzling esotropia]]
+[[talismanic milk whey]]
+[[dipylon polyanthus]]
+[[resplendent british empire]]

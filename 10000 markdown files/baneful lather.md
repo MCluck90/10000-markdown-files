@@ -86,3 +86,10 @@ Really now you never done by
 To begin at once more
 : Where did Alice didn't.
 
+
+## Wikilinks load test
+
+[[fifty-one oosphere]]
+[[terror-struck engraulis encrasicholus]]
+[[understaffed osage orange]]
+[[homeostatic junkie]]

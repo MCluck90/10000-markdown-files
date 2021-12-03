@@ -80,3 +80,10 @@ here lad.
 Indeed she took her
 : Pat.
 
+
+## Wikilinks load test
+
+[[button-shaped gastrointestinal tract]]
+[[crenulated tonegawa susumu]]
+[[dissipated anna mary robertson moses]]
+[[finable platymiscium]]

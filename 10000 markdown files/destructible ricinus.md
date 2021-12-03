@@ -77,3 +77,8 @@ You'll get dry leaves that did
 Same as a line along hand
 : Perhaps it spoke we change to try to remark that nothing else had now had known
 
+
+## Wikilinks load test
+
+[[ethnographical tamm]]
+[[leaved enarthrodial joint]]

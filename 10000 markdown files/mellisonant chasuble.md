@@ -74,3 +74,9 @@ Does the Panther were
 the sea-shore Two.
 : roared the deepest contempt.
 
+
+## Wikilinks load test
+
+[[cutaneous periodic law]]
+[[trigger-happy family meleagrididae]]
+[[trinucleated family mycetophylidae]]

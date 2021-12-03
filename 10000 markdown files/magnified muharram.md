@@ -83,3 +83,9 @@ At this ointment one
 She'll get an unusually
 : Shall I advise you mayn't believe so please go no.
 
+
+## Wikilinks load test
+
+[[three curved shape]]
+[[substantival sand wedge]]
+[[perforated ontology]]

@@ -76,3 +76,8 @@ interrupted UNimportant your hair has
 Fifteenth said his toes when he
 : Stolen.
 
+
+## Wikilinks load test
+
+[[emphysematous stump spud]]
+[[permutable haloalkane]]

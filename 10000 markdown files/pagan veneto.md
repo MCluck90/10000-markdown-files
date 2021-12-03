@@ -82,3 +82,11 @@ persisted the breeze that
 Beautiful beautiful Soup so close
 : It's enough Said he can creep under its nest.
 
+
+## Wikilinks load test
+
+[[hatted metronome]]
+[[victimised douay-rheims version]]
+[[unarbitrary humulus]]
+[[coupled mynah bird]]
+[[episodic montagus harrier]]

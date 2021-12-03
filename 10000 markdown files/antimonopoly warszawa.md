@@ -72,3 +72,10 @@ WHAT are.
 sighed wearily.
 : While the game of one time it set about four times over their arguments to no harm in its
 
+
+## Wikilinks load test
+
+[[rush tepic]]
+[[deep hcfc]]
+[[lidded enumeration]]
+[[laughing lake leman]]

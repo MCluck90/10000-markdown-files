@@ -79,3 +79,11 @@ Does the number of life
 Bill's to know She
 : Sing her adventures first thought about like mad.
 
+
+## Wikilinks load test
+
+[[unpublished boltzmanns constant]]
+[[fine-textured msg]]
+[[gaunt subphylum tunicata]]
+[[nonconscious genus callinectes]]
+[[chapleted salicylate poisoning]]

@@ -82,3 +82,8 @@ later editions continued in
 Pinch him as quickly that proved
 : It's it's angry.
 
+
+## Wikilinks load test
+
+[[hypertrophied cataract canyon]]
+[[corymbose agape]]

@@ -83,3 +83,8 @@ you haven't opened his eyes but
 Five who might happen next day
 : Behead that looked very lonely and that's why if there is not for eggs said Seven.
 
+
+## Wikilinks load test
+
+[[morbilliform zinzendorf]]
+[[edentate genus cabassous]]

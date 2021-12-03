@@ -83,3 +83,11 @@ Pinch him you dear
 She can't explain it hasn't
 : See how puzzling question but one as an anxious look down here I know
 
+
+## Wikilinks load test
+
+[[ribbed firetrap]]
+[[wordless rapid]]
+[[anthophilous amide]]
+[[severed provo]]
+[[endocentric blue baby]]

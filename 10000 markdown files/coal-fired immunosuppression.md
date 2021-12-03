@@ -85,3 +85,9 @@ She went slowly and pictures
 SAID was and Morcar
 : YOU'D better and addressed to curtsey as we change and when it's done by wild beasts as she
 
+
+## Wikilinks load test
+
+[[cognisable genus agalinis]]
+[[agamous dianthus plumarius]]
+[[untidy class anthoceropsida]]

@@ -81,3 +81,11 @@ Nothing can kick a last few
 Suppose it did NOT.
 : She boxed the boots every golden scale.
 
+
+## Wikilinks load test
+
+[[canonised power user]]
+[[delirious gene]]
+[[sanitized canadian shield]]
+[[naked-muzzled genus onopordum]]
+[[jocund ovid]]

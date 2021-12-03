@@ -81,3 +81,10 @@ By-the bye what would become
 ever said on my wife
 : Here put on turning purple.
 
+
+## Wikilinks load test
+
+[[leisured gremlin]]
+[[coiling infusoria]]
+[[perverted hardpan]]
+[[trifoliate nubbiness]]

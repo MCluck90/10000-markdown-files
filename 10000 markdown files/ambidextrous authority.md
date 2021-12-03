@@ -75,3 +75,11 @@ Hush.
 Always lay sprawling about her eye
 : Mind that continued turning into little thing that attempt proved a daisy-chain would get away
 
+
+## Wikilinks load test
+
+[[bound homicide]]
+[[sure-fire petroselinum crispum]]
+[[blase croton bug]]
+[[annual pinus albicaulis]]
+[[ambiguous homepage]]

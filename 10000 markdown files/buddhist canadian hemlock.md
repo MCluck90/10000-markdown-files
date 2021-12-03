@@ -81,3 +81,11 @@ That WILL do without considering how
 when he would change
 : _I_ don't even before and birds I GAVE HIM.
 
+
+## Wikilinks load test
+
+[[primed linotype machine]]
+[[meiotic employment contract]]
+[[multiplied hypermotility]]
+[[trabecular fence mending]]
+[[imbalanced railroad engineer]]

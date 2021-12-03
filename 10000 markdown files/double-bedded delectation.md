@@ -73,3 +73,8 @@ It proves nothing but
 Up lazy thing to
 : sh.
 
+
+## Wikilinks load test
+
+[[subversive diamagnet]]
+[[hypertonic rubia]]

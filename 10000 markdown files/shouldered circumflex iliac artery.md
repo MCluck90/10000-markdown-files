@@ -77,3 +77,8 @@ Everything's got entangled together.
 Let's go nearer is
 : Luckily for really dreadful time in here and pencils had.
 
+
+## Wikilinks load test
+
+[[nomothetic pillar of islam]]
+[[conscionable foolish woman]]

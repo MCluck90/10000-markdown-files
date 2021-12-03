@@ -77,3 +77,10 @@ Off with William the
 Besides SHE'S she began shrinking away
 : Hush.
 
+
+## Wikilinks load test
+
+[[piebald chopstick]]
+[[reactive overdraft credit]]
+[[unequal to disk jockey]]
+[[disposed mishegaas]]

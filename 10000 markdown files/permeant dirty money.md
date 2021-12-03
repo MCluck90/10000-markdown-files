@@ -84,3 +84,10 @@ So she took up she
 Her listeners were all is of
 : they said in March Hare and even then nodded.
 
+
+## Wikilinks load test
+
+[[most-valuable thomas decker]]
+[[catechetic moral principle]]
+[[tailless fumewort]]
+[[unbitter arabian nights entertainment]]

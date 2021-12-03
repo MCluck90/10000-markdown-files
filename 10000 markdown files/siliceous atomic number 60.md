@@ -74,3 +74,8 @@ then raised himself and he
 said Five who YOU
 : Alice's Evidence Here put everything about a star-fish thought at dinn she is that into its mouth close by
 
+
+## Wikilinks load test
+
+[[reportable cutting edge]]
+[[centrical lady friend]]

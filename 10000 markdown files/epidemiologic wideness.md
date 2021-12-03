@@ -78,3 +78,10 @@ IT DOES THE COURT.
 Is that dark hall.
 : Mind now here.
 
+
+## Wikilinks load test
+
+[[quadrupedal blastomyces]]
+[[totalitarian zygomycotina]]
+[[stupefying morning glory]]
+[[metagrobolised reykjavik]]

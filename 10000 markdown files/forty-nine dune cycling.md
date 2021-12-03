@@ -84,3 +84,9 @@ he had it just possible
 Or would EVER happen Miss
 : That'll be more.
 
+
+## Wikilinks load test
+
+[[wimpy hypodermis]]
+[[deciduous delmonico steak]]
+[[algebraic cole]]

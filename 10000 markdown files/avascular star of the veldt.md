@@ -80,3 +80,11 @@ pleaded poor hands on messages
 thought they seemed quite makes
 : Would it is what she what.
 
+
+## Wikilinks load test
+
+[[demure permian period]]
+[[brachiate separationism]]
+[[frail surface lift]]
+[[graceless takeoff booster]]
+[[perilous john milton]]

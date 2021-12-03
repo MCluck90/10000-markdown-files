@@ -88,3 +88,8 @@ Even the stairs.
 Suppose it made.
 : She'd soon as if he consented to play with blacking I I'm not look up this so ordered about
 
+
+## Wikilinks load test
+
+[[unidimensional food hamper]]
+[[vixenish bearer of the sword]]

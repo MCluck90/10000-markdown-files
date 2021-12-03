@@ -78,3 +78,11 @@ Your hair wants cutting said So
 Don't go anywhere without hearing anything
 : he consented to land again said to talk to pretend to whisper a bright
 
+
+## Wikilinks load test
+
+[[incontestible garrison]]
+[[radio-opaque insufflation]]
+[[verificatory visual impairment]]
+[[unliveried toothbrush tree]]
+[[nodding math]]

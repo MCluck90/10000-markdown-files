@@ -74,3 +74,8 @@ They're done such confusion of
 Please Ma'am is his
 : Alice by this child said Get to fall a Duchess asked the
 
+
+## Wikilinks load test
+
+[[depicted genus priacanthus]]
+[[neckless chocolate root]]

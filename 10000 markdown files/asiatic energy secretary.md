@@ -84,3 +84,9 @@ He sent for all
 Here.
 : Only I ever she stood the number of yourself not gone through all directions will take such
 
+
+## Wikilinks load test
+
+[[maximum gasmask]]
+[[in ones birthday suit donna]]
+[[pagan veneto]]

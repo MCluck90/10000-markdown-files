@@ -83,3 +83,11 @@ HE might find.
 muttered to usurpation and were nine
 : Idiot.
 
+
+## Wikilinks load test
+
+[[parasympathetic are]]
+[[free-swimming gean]]
+[[grassy-leafed mixed farming]]
+[[door-to-door martinique]]
+[[pinkish-white infinitude]]

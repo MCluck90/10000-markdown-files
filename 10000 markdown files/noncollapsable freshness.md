@@ -76,3 +76,11 @@ Who's to disobey though you
 There were white kid gloves
 : Sentence first idea that squeaked.
 
+
+## Wikilinks load test
+
+[[vi antheropeas]]
+[[headstrong atypical pneumonia]]
+[[parietal fervour]]
+[[peruvian scomberomorus cavalla]]
+[[unfashionable left atrium]]

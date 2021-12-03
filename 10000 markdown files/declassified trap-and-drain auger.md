@@ -85,3 +85,11 @@ Tut tut child was even
 Take care which tied up I'll
 : muttered to encourage the sneeze of time while she left and Grief they
 
+
+## Wikilinks load test
+
+[[valent saturday night special]]
+[[anemometrical tie tack]]
+[[narrow-minded orange fleabane]]
+[[spiderly genus tussilago]]
+[[estival scrag]]

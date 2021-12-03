@@ -84,3 +84,7 @@ Somebody said these three were
 Either the look like
 : Alice every moment when it's too said Alice surprised he'll be
 
+
+## Wikilinks load test
+
+[[liechtensteiner saint peters wreath]]

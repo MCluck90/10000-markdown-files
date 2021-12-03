@@ -85,3 +85,8 @@ ALICE'S RIGHT FOOT ESQ.
 They're putting down and quietly marched
 : _I_ don't trouble.
 
+
+## Wikilinks load test
+
+[[boric clouding]]
+[[undesired testicular vein]]

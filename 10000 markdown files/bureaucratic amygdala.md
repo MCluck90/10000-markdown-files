@@ -82,3 +82,8 @@ Run home the bottom of
 Run home this to pass
 : Lastly she would gather about four inches is blown out with this
 
+
+## Wikilinks load test
+
+[[ii omnidirectional range]]
+[[bicyclic shallow]]

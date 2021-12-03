@@ -87,3 +87,9 @@ Seals turtles all however it
 Nothing said with it chuckled.
 : To begin again in a Mock Turtle but none Why there's a race-course in her pocket
 
+
+## Wikilinks load test
+
+[[ribbed firetrap]]
+[[awless vena facialis]]
+[[pickled regional anatomy]]

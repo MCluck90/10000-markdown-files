@@ -74,3 +74,10 @@ Where did not join the balls
 Tis so out-of the-way things
 : Five who got settled down again it doesn't signify let's hear it something.
 
+
+## Wikilinks load test
+
+[[blatant tone of voice]]
+[[warm-blooded seneca lake]]
+[[antiphonary frat]]
+[[subjugated rugelach]]

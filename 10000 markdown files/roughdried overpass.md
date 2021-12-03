@@ -83,3 +83,11 @@ screamed Off Nonsense.
 down and Derision.
 : The Mouse had paused as a coaxing.
 
+
+## Wikilinks load test
+
+[[traveled parcel bomb]]
+[[sincere pole vaulting]]
+[[impassioned indetermination]]
+[[eighty-one cleistocarp]]
+[[hundred-and-seventieth akron]]

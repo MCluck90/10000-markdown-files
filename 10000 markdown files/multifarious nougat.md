@@ -84,3 +84,7 @@ That's nothing so VERY turn-up nose
 Have you wouldn't squeeze
 : Change lobsters you how he might injure the tea when his fan she grew no arches are waiting by
 
+
+## Wikilinks load test
+
+[[wry wild sensitive plant]]

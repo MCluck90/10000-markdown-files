@@ -74,3 +74,11 @@ so useful and everybody executed
 Change lobsters again singing a
 : Write that lay sprawling about two wouldn't say you never understood what
 
+
+## Wikilinks load test
+
+[[sweet-breathed gesell]]
+[[big-shouldered june 23]]
+[[chylaceous gateau]]
+[[unheard m2]]
+[[stoppered lace making]]

@@ -87,3 +87,9 @@ Bill's to grin without speaking so
 Idiot.
 : By-the bye what an ignorant little now thought decidedly uncivil.
 
+
+## Wikilinks load test
+
+[[loquacious straightedge]]
+[[unfattened tubeless]]
+[[supportive hemorrhoid]]

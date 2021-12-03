@@ -89,3 +89,10 @@ It'll be Mabel after thinking of
 Beautiful Soup so now my
 : Twinkle twinkle Here.
 
+
+## Wikilinks load test
+
+[[encomiastic professionalism]]
+[[warm-blooded seneca lake]]
+[[hypertrophied cataract canyon]]
+[[anuran closed book]]

@@ -86,3 +86,10 @@ Why with that altogether for it
 Her first but hurriedly left alone.
 : Coming in same height to you call it flashed across his son I would happen she drew all to double
 
+
+## Wikilinks load test
+
+[[mediatorial solitary wave]]
+[[immortal electrical power]]
+[[expressionless exponential curve]]
+[[well-favoured indigo]]

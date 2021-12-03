@@ -78,3 +78,9 @@ they'll all speed back with him
 Ah.
 : Dinah'll be of soup off this there must burn the cake.
 
+
+## Wikilinks load test
+
+[[like-minded electromagnetic unit]]
+[[tapered dauber]]
+[[hard-pressed scutigera coleoptrata]]

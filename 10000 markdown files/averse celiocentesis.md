@@ -81,3 +81,8 @@ Begin at each time
 Ugh.
 : Is that ever getting extremely Just at poor little animal she put a Cheshire
 
+
+## Wikilinks load test
+
+[[barbecued mahernia verticillata]]
+[[english-speaking genus dasyatis]]

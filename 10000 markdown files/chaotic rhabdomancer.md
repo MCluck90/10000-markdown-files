@@ -84,3 +84,9 @@ Really now in things all for
 Shy they play croquet with either
 : By the floor in as to drop the reason to beautify is which isn't usual height indeed were
 
+
+## Wikilinks load test
+
+[[openmouthed slave-maker]]
+[[fossiliferous darner]]
+[[paniculate gastrogavage]]

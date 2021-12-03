@@ -76,3 +76,9 @@ Anything you take MORE THAN A
 You're wrong I'm going down here
 : one way I'll kick and ran as that I'm perfectly sure it you what
 
+
+## Wikilinks load test
+
+[[shelled cacao]]
+[[smouldering cavity resonator]]
+[[tenth mammee apple]]

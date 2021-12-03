@@ -82,3 +82,10 @@ either you to get
 Mind now run in despair she
 : Who am.
 
+
+## Wikilinks load test
+
+[[anguished wale]]
+[[anserine chaulmugra]]
+[[attenuate batfish]]
+[[attenuate batfish]]

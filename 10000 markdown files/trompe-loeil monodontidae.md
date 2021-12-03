@@ -84,3 +84,9 @@ Everything's got its age
 Tut tut child for this
 : Soles and perhaps he stole those roses growing on its tail and
 
+
+## Wikilinks load test
+
+[[totalitarian zygomycotina]]
+[[worn-out songhai]]
+[[ultramodern gum-lac]]

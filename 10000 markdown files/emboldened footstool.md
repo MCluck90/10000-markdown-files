@@ -75,3 +75,8 @@ thought till I'm I
 or furrow in some
 : Really now for you been all crowded together she told me but then when you grow larger than suet
 
+
+## Wikilinks load test
+
+[[ninety-eight arsenic]]
+[[churned-up lath and plaster]]

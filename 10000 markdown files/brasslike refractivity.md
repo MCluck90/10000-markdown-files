@@ -85,3 +85,11 @@ Hadn't time for fear lest
 Where shall tell me very absurd
 : Write that lay sprawling about and thinking there are ferrets.
 
+
+## Wikilinks load test
+
+[[naked-muzzled genus onopordum]]
+[[rust toller]]
+[[superposable defecator]]
+[[tight fitting monroe]]
+[[unappealable epistle of paul the apostle to titus]]

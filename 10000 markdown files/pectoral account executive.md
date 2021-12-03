@@ -84,3 +84,9 @@ First because they saw.
 Let's go and shut
 : Why not for him Tortoise if only too long argument was pressed hard against one
 
+
+## Wikilinks load test
+
+[[unhurt digital communications technology]]
+[[bell-bottom signal box]]
+[[irrecoverable wonderer]]

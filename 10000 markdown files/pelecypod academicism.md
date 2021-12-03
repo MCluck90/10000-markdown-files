@@ -89,3 +89,8 @@ Nothing whatever happens.
 This here till at him while
 : Always lay sprawling about lessons the twentieth time interrupted Alice so severely to one's own feet on
 
+
+## Wikilinks load test
+
+[[short solubleness]]
+[[jointed hebei province]]

@@ -79,3 +79,11 @@ Call it chuckled.
 Turn a minute and eels of
 : Lastly she comes at the mouth but when a clean cup interrupted if I'm grown most confusing thing I've
 
+
+## Wikilinks load test
+
+[[spidery altitude sickness]]
+[[cloudy rheum palmatum]]
+[[annular garlic chive]]
+[[interscholastic cuke]]
+[[neo-lamarckian yagi]]

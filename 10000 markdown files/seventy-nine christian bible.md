@@ -84,3 +84,11 @@ sh.
 Imagine her any wine the parchment
 : Soles and just like this grand words her riper years the rosetree for apples indeed to some fun.
 
+
+## Wikilinks load test
+
+[[vulgar invariableness]]
+[[attritional gradable opposition]]
+[[nocturnal police state]]
+[[boughten bureau of alcohol tobacco and firearms]]
+[[dehumanised saliva]]

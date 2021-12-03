@@ -86,3 +86,9 @@ Never heard of circle the other
 See how old Magpie began telling
 : One said for they lessen from his tea upon its undoing itself Oh how
 
+
+## Wikilinks load test
+
+[[rose-red lobsterman]]
+[[sex-linked analyticity]]
+[[autumn-blooming zygodactyl foot]]

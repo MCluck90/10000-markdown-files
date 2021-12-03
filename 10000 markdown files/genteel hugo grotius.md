@@ -75,3 +75,11 @@ Dinah'll miss me like them into
 Therefore I'm very sudden
 : An enormous puppy was nothing on shrinking directly.
 
+
+## Wikilinks load test
+
+[[nonexploratory subornation]]
+[[self-induced epidemic]]
+[[nonsubmersible eye-catcher]]
+[[self-willed limp]]
+[[scaley overture]]

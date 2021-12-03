@@ -81,3 +81,9 @@ It'll be telling them off staring
 Dinah'll be no wise
 : THAT well she swam slowly beginning again.
 
+
+## Wikilinks load test
+
+[[paper thin handball court]]
+[[thickheaded piaget]]
+[[opinionative silverspot]]

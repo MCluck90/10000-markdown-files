@@ -87,3 +87,9 @@ Up lazy thing as it's done
 Last came to rise
 : or conversation.
 
+
+## Wikilinks load test
+
+[[disabused leaper]]
+[[acaudal dickey-seat]]
+[[sufi hydrilla]]

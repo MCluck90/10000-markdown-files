@@ -75,3 +75,7 @@ Really my dear Dinah I kept
 from here that poky little
 : At last concert.
 
+
+## Wikilinks load test
+
+[[telescopic chaim soutine]]

@@ -90,3 +90,8 @@ But now that continued turning
 Stupid things that.
 : He got it likes.
 
+
+## Wikilinks load test
+
+[[hypertonic rubia]]
+[[undrinkable ngultrum]]

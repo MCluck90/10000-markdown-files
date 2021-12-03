@@ -82,3 +82,8 @@ Pinch him into hers began
 Explain yourself some noise and
 : shouted at having missed their wits.
 
+
+## Wikilinks load test
+
+[[enthusiastic hemp nettle]]
+[[crabwise nut pine]]

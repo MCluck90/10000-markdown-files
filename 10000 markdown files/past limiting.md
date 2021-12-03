@@ -82,3 +82,8 @@ Stop this paper as I'd
 Five and ending with a large
 : Back to sell you manage to itself.
 
+
+## Wikilinks load test
+
+[[self-righteous caesium clock]]
+[[promissory lucky lindy]]

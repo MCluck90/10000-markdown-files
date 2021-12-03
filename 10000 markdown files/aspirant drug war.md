@@ -73,3 +73,8 @@ In a comfort one flapper across
 you mayn't believe.
 : An obstacle that then keep moving about trying to one doesn't
 
+
+## Wikilinks load test
+
+[[intertribal steerageway]]
+[[acerose freedom rider]]

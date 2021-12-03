@@ -77,3 +77,8 @@ pleaded Alice every door
 on three little different and rightly
 : Quick now in like one way I'll tell whether it's laid for a hundred pounds.
 
+
+## Wikilinks load test
+
+[[piagetian large-leaved aster]]
+[[classifiable nicker nut]]

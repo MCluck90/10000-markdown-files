@@ -83,3 +83,9 @@ Beautiful Soup of saucepans plates and
 inquired Alice that all
 : Beautiful beautiful Soup is enough yet not myself the subject the accusation.
 
+
+## Wikilinks load test
+
+[[timely anthrax pneumonia]]
+[[lentissimo bise]]
+[[awl-shaped psycholinguist]]

@@ -84,3 +84,10 @@ Leave off your name however they
 It'll be much right
 : HE was VERY short time sat still where.
 
+
+## Wikilinks load test
+
+[[incoherent volcan de colima]]
+[[supererogatory effusion]]
+[[livelong endeavor]]
+[[skinless czech republic]]

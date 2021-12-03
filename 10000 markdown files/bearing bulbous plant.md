@@ -90,3 +90,11 @@ Stupid things went stamping on
 Pig and loving heart would only
 : Really my plan.
 
+
+## Wikilinks load test
+
+[[asymptomatic credulousness]]
+[[scaley overture]]
+[[quick actias luna]]
+[[hilar laotian]]
+[[fossil geometry teacher]]

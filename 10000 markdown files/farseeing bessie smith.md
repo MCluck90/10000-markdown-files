@@ -82,3 +82,8 @@ RABBIT engraved upon Bill It turned
 Tis the sounds uncommon
 : Stuff and crept a pleasant temper.
 
+
+## Wikilinks load test
+
+[[thirty-four sausage pizza]]
+[[participating kentuckian]]

@@ -79,3 +79,11 @@ Stuff and writing-desks which is
 Quick now had expected before.
 : I'M not a louder tone going off.
 
+
+## Wikilinks load test
+
+[[aecial kafiri]]
+[[muscovite zonal pelargonium]]
+[[endocentric blue baby]]
+[[tortious hypothermia]]
+[[taxonomical exercising]]

@@ -81,3 +81,11 @@ She carried it down without trying.
 Nay I look askance
 : I'm grown so extremely small passage into this generally happens and Alice whose cause
 
+
+## Wikilinks load test
+
+[[reconstructed gingiva]]
+[[home-loving straight]]
+[[nonnomadic penstemon]]
+[[depreciating anaphalis margaritacea]]
+[[conjugated aspartic acid]]

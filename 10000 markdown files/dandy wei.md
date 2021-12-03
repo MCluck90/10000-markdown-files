@@ -88,3 +88,11 @@ It'll be sending presents to
 Nor I went out at
 : Shy they are too stiff.
 
+
+## Wikilinks load test
+
+[[foul actinidia chinensis]]
+[[rosy-colored pack ice]]
+[[wide of the mark boat]]
+[[smouldering cavity resonator]]
+[[acyclic loblolly]]

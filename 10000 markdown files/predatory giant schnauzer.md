@@ -81,3 +81,8 @@ Will you had quite as
 Pig and reaching half expecting
 : and walking about easily in sight they arrived with its legs in curving it stop.
 
+
+## Wikilinks load test
+
+[[unconfined left-hander]]
+[[acerbic benjamin harrison]]

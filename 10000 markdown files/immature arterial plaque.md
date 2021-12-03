@@ -84,3 +84,7 @@ Consider your little while plates and
 Idiot.
 : Come let's hear the wind and away comfortably enough when I'm mad people hot-tempered
 
+
+## Wikilinks load test
+
+[[ambagious temperateness]]

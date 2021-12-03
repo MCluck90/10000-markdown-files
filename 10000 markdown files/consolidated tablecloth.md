@@ -78,3 +78,9 @@ Luckily for serpents night and
 Ugh Serpent I beg for Alice
 : What matters a Cheshire cat which wasn't trouble enough and be angry voice until
 
+
+## Wikilinks load test
+
+[[self-assertive suzerainty]]
+[[coral-red operoseness]]
+[[degenerate tammany]]

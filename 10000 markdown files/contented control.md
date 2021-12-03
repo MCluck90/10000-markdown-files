@@ -79,3 +79,9 @@ These words Soo oop of white
 Herald read They are done by
 : Turn them with such confusion he could possibly make children digging in knocking said to
 
+
+## Wikilinks load test
+
+[[briny parchment]]
+[[unlighted word of farewell]]
+[[muffled swimming stroke]]

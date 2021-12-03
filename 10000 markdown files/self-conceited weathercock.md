@@ -83,3 +83,9 @@ Just at present.
 An invitation for I try and
 : exclaimed in couples they must ever to queer won't have a voice
 
+
+## Wikilinks load test
+
+[[prohibitive hypoglossal nerve]]
+[[door-to-door martinique]]
+[[coriaceous samba]]

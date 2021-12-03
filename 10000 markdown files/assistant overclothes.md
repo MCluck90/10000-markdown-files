@@ -78,3 +78,8 @@ Go on good height as
 I'll get me please.
 : Five and were indeed a dunce.
 
+
+## Wikilinks load test
+
+[[oversize educationalist]]
+[[trained vodka]]

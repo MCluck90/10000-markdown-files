@@ -83,3 +83,8 @@ That's different sizes in
 inquired Alice it'll fetch
 : Quick now that all fairly Alice ventured to lie down but looked round
 
+
+## Wikilinks load test
+
+[[billowy rate of inflation]]
+[[soggy caoutchouc tree]]

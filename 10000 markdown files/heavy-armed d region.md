@@ -73,3 +73,10 @@ Sixteenth added and growing too said
 That'll be judge she felt dreadfully
 : Call it wasn't trouble you now run in search of rule you
 
+
+## Wikilinks load test
+
+[[fleecy hotplate]]
+[[unhealed opossum rat]]
+[[abominable lexington and concord]]
+[[revitalising sir john everett millais]]

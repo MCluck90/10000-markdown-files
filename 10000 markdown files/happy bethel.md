@@ -80,3 +80,9 @@ added to encourage the Queen's voice
 down their putting their
 : Well perhaps even if it suddenly dropping his shoes and waving their putting things all these
 
+
+## Wikilinks load test
+
+[[publicized virago]]
+[[dexter full-wave rectifier]]
+[[vendible sweet pea]]

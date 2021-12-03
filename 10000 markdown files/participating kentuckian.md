@@ -83,3 +83,7 @@ Nearly two which way
 later.
 : Idiot.
 
+
+## Wikilinks load test
+
+[[coltish matchmaker]]

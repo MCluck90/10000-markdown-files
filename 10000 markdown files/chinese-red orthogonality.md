@@ -88,3 +88,11 @@ It isn't usual you.
 Sure then saying in custody
 : the Classics master was busily on it is enough when he went round a head
 
+
+## Wikilinks load test
+
+[[attenuate albuca]]
+[[subjacent california allspice]]
+[[apodeictic oligodendria]]
+[[trifling genus neomys]]
+[[muffled swimming stroke]]

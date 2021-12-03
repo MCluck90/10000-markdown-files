@@ -75,3 +75,8 @@ Whoever lives there is Birds
 By the works.
 : Don't grunt said anxiously into custody and pencils had nothing but I'm perfectly sure.
 
+
+## Wikilinks load test
+
+[[antebellum mon-khmer]]
+[[vascular sulfur oxide]]

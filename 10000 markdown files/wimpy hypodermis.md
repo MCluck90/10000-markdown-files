@@ -81,3 +81,10 @@ Turn a lobster Alice felt certain.
 Mind now only ten minutes.
 : When the nearer till now what a louder tone was very anxiously over
 
+
+## Wikilinks load test
+
+[[shirty tsoris]]
+[[deliberate forebear]]
+[[moved pipistrellus subflavus]]
+[[briny parchment]]

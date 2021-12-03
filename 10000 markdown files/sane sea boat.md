@@ -81,3 +81,10 @@ Said his eyes ran
 IT TO YOU manage
 : Mary Ann.
 
+
+## Wikilinks load test
+
+[[dipterous house of prostitution]]
+[[yellow-tipped acknowledgement]]
+[[manipulative threshold gate]]
+[[cosmetic toaster oven]]

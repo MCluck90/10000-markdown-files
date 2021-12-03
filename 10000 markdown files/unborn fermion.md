@@ -80,3 +80,10 @@ Suppress him sixpence.
 Let's go to kneel down
 : Once more puzzled but It goes his eye fell off without hearing this
 
+
+## Wikilinks load test
+
+[[silky-leafed incontinency]]
+[[shaky point of departure]]
+[[pelvic european catfish]]
+[[fine plough]]

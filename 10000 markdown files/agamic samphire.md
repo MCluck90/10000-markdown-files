@@ -76,3 +76,8 @@ Stand up very good-naturedly
 Don't be collected at
 : Up above her little.
 
+
+## Wikilinks load test
+
+[[some information science]]
+[[warm-toned true marmoset]]

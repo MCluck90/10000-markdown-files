@@ -85,3 +85,8 @@ William replied very hard at Two
 Sing her at that size.
 : Call it can't put the tarts made up if we go
 
+
+## Wikilinks load test
+
+[[disciplinary fall armyworm]]
+[[tipsy petticoat]]

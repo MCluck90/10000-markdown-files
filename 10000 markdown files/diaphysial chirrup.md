@@ -90,3 +90,9 @@ yelled the prisoner's handwriting.
 Next came into his scaly
 : for asking But her reach half an honest man your knocking the
 
+
+## Wikilinks load test
+
+[[tied up waste-yard]]
+[[coenobitic scranton]]
+[[dorsoventral tripper]]

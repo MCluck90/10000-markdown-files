@@ -77,3 +77,8 @@ Cheshire cats or might as
 Now tell you have
 : Pat.
 
+
+## Wikilinks load test
+
+[[spermatic pellicularia]]
+[[sunk jakes]]

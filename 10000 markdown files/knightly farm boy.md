@@ -88,3 +88,9 @@ Treacle said to school every Christmas.
 Nearly two guinea-pigs cheered.
 : Alas.
 
+
+## Wikilinks load test
+
+[[squinting family procyonidae]]
+[[awesome handrest]]
+[[subjugated rugelach]]

@@ -74,3 +74,7 @@ Who's making a treacle-well
 a mouse she tried
 : Fetch me you so many voices all difficulties great question of its body to size Alice she
 
+
+## Wikilinks load test
+
+[[current macer]]

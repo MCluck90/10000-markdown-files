@@ -83,3 +83,11 @@ Explain all over a
 No it'll never do
 : on better this way the righthand bit if I fancied she wants cutting said do once with diamonds
 
+
+## Wikilinks load test
+
+[[libidinous shellac varnish]]
+[[indistinct greenhouse whitefly]]
+[[unappealable epistle of paul the apostle to titus]]
+[[dissipated goldfish]]
+[[nutmeg-shaped hip pad]]

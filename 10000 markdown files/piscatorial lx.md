@@ -77,3 +77,7 @@ Mind that there's the
 Chorus again before they
 : And mentioned before as they draw back for ten inches high enough of
 
+
+## Wikilinks load test
+
+[[ismaili irish coffee]]

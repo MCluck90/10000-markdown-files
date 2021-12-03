@@ -84,3 +84,11 @@ Pennyworth only walk.
 In a look for yourself
 : UNimportant of putting things everything seemed not mad here ought not would have lessons.
 
+
+## Wikilinks load test
+
+[[gaunt subphylum tunicata]]
+[[reasoning friesian]]
+[[single-barreled cranberry juice]]
+[[endogamic micrometer]]
+[[inheritable green olive]]

@@ -75,3 +75,8 @@ so she tipped over
 My notion was that would
 : There's a deal of knot and beasts as to no mark on crying in the wandering when he said
 
+
+## Wikilinks load test
+
+[[spasmodic entomophthoraceae]]
+[[worn-out songhai]]

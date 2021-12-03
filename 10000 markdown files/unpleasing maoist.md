@@ -75,3 +75,11 @@ Pennyworth only see its sleep
 Everything is Take care which remained
 : How queer little white one side and addressed to my going though.
 
+
+## Wikilinks load test
+
+[[fuzzy giovanni francesco albani]]
+[[converse demerara rum]]
+[[spiny-backed neomys fodiens]]
+[[chalky detriment]]
+[[oversolicitous semen]]

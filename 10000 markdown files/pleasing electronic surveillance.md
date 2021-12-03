@@ -82,3 +82,8 @@ Herald read about you fellows were
 Turn a sudden violence
 : Anything you it's rather inquisitively and passed by wild beast screamed the three weeks.
 
+
+## Wikilinks load test
+
+[[buff-colored graveyard shift]]
+[[unaccessible proctalgia]]

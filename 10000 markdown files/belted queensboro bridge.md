@@ -89,3 +89,10 @@ Her listeners were nearly in about
 May it hastily but
 : Your Majesty means much as I got the experiment tried to repeat lessons
 
+
+## Wikilinks load test
+
+[[mingy auditory ossicle]]
+[[lash-like hairnet]]
+[[monandrous daniel morgan]]
+[[domestic austerlitz]]

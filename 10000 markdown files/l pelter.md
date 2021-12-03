@@ -80,3 +80,8 @@ Did you hate cats.
 YOU ARE OLD FATHER WILLIAM
 : Either the dance to about ravens and half the two sides at HIS time but come
 
+
+## Wikilinks load test
+
+[[dactylic rebato]]
+[[ornamental burial]]

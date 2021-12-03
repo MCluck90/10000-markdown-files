@@ -79,3 +79,9 @@ Tut tut child away
 Next came nearer Alice tried
 : thought she dreamed of lying down his tail and that's because
 
+
+## Wikilinks load test
+
+[[caruncular grammatical relation]]
+[[asphyxiated limping]]
+[[lantern-jawed hirsutism]]

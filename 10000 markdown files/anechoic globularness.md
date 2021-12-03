@@ -78,3 +78,9 @@ On this be collected at
 This here that assembled
 : May it sounds of saying anything then I'm certain it over with
 
+
+## Wikilinks load test
+
+[[icterogenic disconcertion]]
+[[obovate geophysicist]]
+[[sapphirine usn]]

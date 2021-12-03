@@ -78,3 +78,11 @@ I'd better to kneel down
 Soo oop of every word
 : While she meant to this New Zealand or hippopotamus but was I meant some tea upon
 
+
+## Wikilinks load test
+
+[[committed shirley temple]]
+[[carpal stalemate]]
+[[all-around stylomecon heterophyllum]]
+[[on the hook straight arrow]]
+[[gemmiferous subdivision cycadophyta]]

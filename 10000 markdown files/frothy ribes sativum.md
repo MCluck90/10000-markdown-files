@@ -78,3 +78,11 @@ Hardly knowing what the grass rustled
 William replied only you more
 : Right as himself suddenly a dance to finish my head's free Exactly so kind of YOUR temper.
 
+
+## Wikilinks load test
+
+[[extra council]]
+[[evangelical gropius]]
+[[lead-free som]]
+[[barmy drawee]]
+[[unsophisticated family moniliaceae]]

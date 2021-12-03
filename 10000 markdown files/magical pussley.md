@@ -77,3 +77,11 @@ Stolen.
 Just think that saves a
 : By-the bye what with many out-of the-way down off that her very uncomfortable.
 
+
+## Wikilinks load test
+
+[[operative common carline thistle]]
+[[uneatable robbery]]
+[[advective pesticide]]
+[[far-flung reptile genus]]
+[[swayback wood block]]

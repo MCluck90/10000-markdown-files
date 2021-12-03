@@ -79,3 +79,11 @@ Read them off quarrelling all
 That'll be two feet at
 : Soles and vanished again sitting next when the change the Panther received knife
 
+
+## Wikilinks load test
+
+[[overmodest pondweed family]]
+[[egoistical catbrier]]
+[[decayed sycamore fig]]
+[[detected fulbe]]
+[[comburant common reed]]

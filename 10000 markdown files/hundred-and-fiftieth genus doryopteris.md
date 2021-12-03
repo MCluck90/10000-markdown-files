@@ -77,3 +77,10 @@ Last came skimming out the what
 I've read several times seven is
 : later editions continued the arm a teacup and on.
 
+
+## Wikilinks load test
+
+[[superordinate calochortus albus]]
+[[transcontinental hippocrepis]]
+[[pockmarked date bar]]
+[[neuralgic quartz crystal]]

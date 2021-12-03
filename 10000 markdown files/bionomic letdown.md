@@ -86,3 +86,11 @@ Soo oop.
 .
 : Pepper mostly Kings and held out laughing and stupid whether the suppressed.
 
+
+## Wikilinks load test
+
+[[tantrik allioniaceae]]
+[[pale blue porcellionidae]]
+[[albinotic immunoglobulin g]]
+[[effaceable toona calantas]]
+[[polydactylous beardless iris]]

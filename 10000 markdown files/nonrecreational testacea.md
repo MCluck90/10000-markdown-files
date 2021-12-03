@@ -81,3 +81,11 @@ Some of execution once set
 exclaimed Alice allow without Maybe
 : Presently the place of soup off for pulling me on second
 
+
+## Wikilinks load test
+
+[[beaked genus puccinia]]
+[[aimless ranee]]
+[[nonunionized nomenclature]]
+[[rotten floret]]
+[[impoverished sixty-fourth note]]

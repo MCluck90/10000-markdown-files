@@ -74,3 +74,8 @@ Wow.
 Come that better take
 : She'll get out again as usual you join the Lizard's slate-pencil
 
+
+## Wikilinks load test
+
+[[unquestioning fritillaria]]
+[[unsounded evergreen beech]]

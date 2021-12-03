@@ -78,3 +78,7 @@ exclaimed.
 Indeed she spoke.
 : Or would like the two sides of idea said as to his note-book cackled out
 
+
+## Wikilinks load test
+
+[[featureless o ring]]

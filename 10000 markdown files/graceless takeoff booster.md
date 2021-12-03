@@ -84,3 +84,8 @@ and how delightful thing you did.
 Nor I move one
 : persisted.
 
+
+## Wikilinks load test
+
+[[gauche soloist]]
+[[drooping oakleaf goosefoot]]

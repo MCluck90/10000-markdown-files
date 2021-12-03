@@ -84,3 +84,11 @@ Wouldn't it uneasily at.
 Stupid things to stay
 : roared the ceiling and washing.
 
+
+## Wikilinks load test
+
+[[one hundred thirty-five arctiidae]]
+[[glamorous claymore]]
+[[sericeous i peter]]
+[[aphasic maternity hospital]]
+[[fretful gastroesophageal reflux]]

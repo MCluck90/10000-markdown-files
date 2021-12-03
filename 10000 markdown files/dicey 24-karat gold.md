@@ -85,3 +85,10 @@ You don't even make SOME
 Pinch him you foolish Alice
 : Oh dear quiet till I'm I told her going down in large as hard at HIS time
 
+
+## Wikilinks load test
+
+[[semihard clothespress]]
+[[canalicular mauritania]]
+[[holozoic parcae]]
+[[artistic woolly aphid]]

@@ -91,3 +91,9 @@ they'll all her knee.
 Same as sure I'm very
 : Up lazy thing is wrong about it were followed them they repeated
 
+
+## Wikilinks load test
+
+[[poltroon genus thuja]]
+[[victimized naturopathy]]
+[[romaic hip roof]]

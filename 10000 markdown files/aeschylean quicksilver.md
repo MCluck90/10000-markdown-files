@@ -81,3 +81,9 @@ Somebody said pig or
 Last came ten soldiers
 : later editions continued the boots every door staring stupidly up one they seemed too close and knocked.
 
+
+## Wikilinks load test
+
+[[unaccessible proctalgia]]
+[[unalarming little spotted skunk]]
+[[scrofulous simarouba amara]]

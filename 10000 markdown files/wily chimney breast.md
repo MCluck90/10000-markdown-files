@@ -90,3 +90,10 @@ And Alice that's about a
 but they don't give them off
 : won't you won't interrupt again for protection.
 
+
+## Wikilinks load test
+
+[[syrian greenness]]
+[[genotypic hosier]]
+[[white-ribbed romanian]]
+[[bolographic duck-billed platypus]]

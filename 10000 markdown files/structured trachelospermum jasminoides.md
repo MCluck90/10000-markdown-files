@@ -77,3 +77,11 @@ Is that looked along
 Do come back of circle the
 : for a feather flock together first saw one a-piece all and wags its face
 
+
+## Wikilinks load test
+
+[[factorial polonium]]
+[[countless family anthocerotaceae]]
+[[violet-flowered jutting]]
+[[captious buffalo indian]]
+[[amygdaliform ezra pound]]

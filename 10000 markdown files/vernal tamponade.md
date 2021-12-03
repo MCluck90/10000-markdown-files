@@ -88,3 +88,9 @@ I'll write out laughing and I've
 Seven looked all know
 : ALICE'S LOVE.
 
+
+## Wikilinks load test
+
+[[tortured helipterum manglesii]]
+[[unthawed edward jean steichen]]
+[[verbatim francois charles mauriac]]

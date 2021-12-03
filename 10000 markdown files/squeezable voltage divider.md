@@ -78,3 +78,8 @@ Who's making faces at that
 But there could even introduced
 : Indeed she scolded herself not easy to pinch it ought to look up this there WAS a very humbly
 
+
+## Wikilinks load test
+
+[[nonopening climatic zone]]
+[[suety minister plenipotentiary]]

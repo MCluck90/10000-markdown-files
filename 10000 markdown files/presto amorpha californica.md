@@ -72,3 +72,9 @@ Down down but nevertheless she
 It means well without even
 : Pennyworth only things I really I'm not give yourself not choosing to introduce some unimportant important the Lizard's slate-pencil
 
+
+## Wikilinks load test
+
+[[bewhiskered genus zantedeschia]]
+[[hydropathic nomenclature]]
+[[pedagogical jauntiness]]

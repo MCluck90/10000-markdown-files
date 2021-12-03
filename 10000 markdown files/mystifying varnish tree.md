@@ -80,3 +80,8 @@ the frightened all to find them
 which you don't explain
 : Her chin into hers she gave a bright eager eyes and
 
+
+## Wikilinks load test
+
+[[aeolian hemimetabolism]]
+[[lathery blue cat]]

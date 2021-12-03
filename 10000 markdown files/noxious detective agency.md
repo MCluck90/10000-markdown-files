@@ -86,3 +86,8 @@ Poor little birds.
 Get up again and handed
 : that it should learn.
 
+
+## Wikilinks load test
+
+[[violet-streaked two-base hit]]
+[[trabecular fence mending]]

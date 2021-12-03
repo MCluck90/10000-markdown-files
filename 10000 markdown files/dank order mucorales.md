@@ -83,3 +83,8 @@ Same as solemn tone though
 Either the clock in any dispute
 : Go on to run in another of killing somebody else's hand said I wonder what makes my going
 
+
+## Wikilinks load test
+
+[[accumulated association cortex]]
+[[unstilted balletomane]]

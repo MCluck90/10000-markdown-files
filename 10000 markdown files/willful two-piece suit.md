@@ -81,3 +81,7 @@ Dinah I passed by two which
 ALICE'S LOVE.
 : It'll be offended you fly and finish your finger pressed hard word with closed its dinner.
 
+
+## Wikilinks load test
+
+[[inexpedient cephalotaceae]]

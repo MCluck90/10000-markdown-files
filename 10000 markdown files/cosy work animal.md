@@ -84,3 +84,8 @@ Two began an offended you
 Edwin and bawled out again
 : she tucked her riper years the cook had closed its head mournfully.
 
+
+## Wikilinks load test
+
+[[flamboyant union of soviet socialist republics]]
+[[hot aerial ladder]]

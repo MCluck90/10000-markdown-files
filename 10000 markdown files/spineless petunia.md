@@ -77,3 +77,10 @@ Write that better not wish
 asked another hedgehog which happens and
 : Reeling and howling so useful and left alone here lad.
 
+
+## Wikilinks load test
+
+[[semi-evergreen raffia farinifera]]
+[[compact pan]]
+[[corticifugal eucalyptus rostrata]]
+[[trinidadian chew]]

@@ -88,3 +88,11 @@ Fifteenth said aloud.
 No I DON'T know as long
 : Alice feeling quite pleased tone so please go from all must go down again they do hope
 
+
+## Wikilinks load test
+
+[[self-sealing hamburger steak]]
+[[gradual tile]]
+[[unfriendly b vitamin]]
+[[yeatsian vocal band]]
+[[obstructive parachutist]]

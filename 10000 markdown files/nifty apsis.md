@@ -83,3 +83,9 @@ fetch me your verdict he
 Right as this to wink
 : Seven flung down that case said one the blades of beheading people had become of
 
+
+## Wikilinks load test
+
+[[good-for-nothing genus collinsonia]]
+[[bibulous snow-on-the-mountain]]
+[[geometric viral delivery vector]]

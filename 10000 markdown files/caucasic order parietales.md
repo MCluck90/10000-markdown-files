@@ -72,3 +72,10 @@ Call the sea.
 Down the night-air doesn't
 : wow.
 
+
+## Wikilinks load test
+
+[[geodesic igniter]]
+[[cubiform haemoproteidae]]
+[[pro-choice greenhouse emission]]
+[[janus-faced genus styphelia]]

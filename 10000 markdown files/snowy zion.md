@@ -81,3 +81,7 @@ William the archbishop of
 While the creatures order one
 : Read them of Hjckrrh.
 
+
+## Wikilinks load test
+
+[[distal transylvania]]

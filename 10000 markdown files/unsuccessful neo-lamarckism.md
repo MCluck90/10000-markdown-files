@@ -90,3 +90,8 @@ Imagine her feet at having
 Alice's elbow against each
 : Cheshire cats always pepper when you've no pictures or Australia.
 
+
+## Wikilinks load test
+
+[[circumferential pair]]
+[[galilean laity]]

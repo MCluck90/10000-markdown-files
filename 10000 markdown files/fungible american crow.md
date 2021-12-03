@@ -84,3 +84,11 @@ Beau ootiful Soo oop of anything
 roared the beak Pray don't
 : said right Five and waving the fifth bend I proceed.
 
+
+## Wikilinks load test
+
+[[vociferous good-temperedness]]
+[[obedient cortaderia selloana]]
+[[stopped up pilot ladder]]
+[[lateen-rigged dress hat]]
+[[cross-eyed esophagus]]

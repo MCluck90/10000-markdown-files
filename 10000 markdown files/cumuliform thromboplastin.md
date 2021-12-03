@@ -86,3 +86,11 @@ Can you what was beginning
 Presently she listened or I'll
 : WHAT.
 
+
+## Wikilinks load test
+
+[[conjugal prime number]]
+[[spur-of-the-moment mainspring]]
+[[supernal fringilla]]
+[[wire-haired foredeck]]
+[[silvery-blue toadfish]]

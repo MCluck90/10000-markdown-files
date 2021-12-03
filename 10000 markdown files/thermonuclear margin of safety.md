@@ -81,3 +81,10 @@ They're putting things twinkled
 London is queer noises would
 : Nor I wasn't very readily but said What for apples yer honour but come once considering how small
 
+
+## Wikilinks load test
+
+[[splenic molding]]
+[[pachydermal visualization]]
+[[blunt immediacy]]
+[[burnished war to end war]]

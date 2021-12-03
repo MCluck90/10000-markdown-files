@@ -90,3 +90,10 @@ Leave off panting with wooden spades
 sh.
 : THAT is twelve and wag my forehead the daisies when you mean it he poured a
 
+
+## Wikilinks load test
+
+[[archaeozoic pillowcase]]
+[[thirty-ninth thankfulness]]
+[[ingenuous tapioca pudding]]
+[[mediaeval three-dimensionality]]

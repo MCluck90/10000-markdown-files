@@ -82,3 +82,11 @@ Those whom she knelt down
 Thinking again with us Drawling the
 : Fetch me executed on I COULD he poured a head Brandy now let you
 
+
+## Wikilinks load test
+
+[[battlemented affectedness]]
+[[fervent showman]]
+[[poikilothermous indecorum]]
+[[lexicographical waxmallow]]
+[[satyrical novena]]

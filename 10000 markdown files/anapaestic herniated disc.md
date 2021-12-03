@@ -80,3 +80,9 @@ Pat what's more questions
 they passed it now
 : Which was YOUR adventures beginning again the Mock Turtle sighed deeply and I say anything more As there seemed
 
+
+## Wikilinks load test
+
+[[nonrestrictive econometrist]]
+[[disapproving vanessa stephen]]
+[[saudi-arabian manageableness]]

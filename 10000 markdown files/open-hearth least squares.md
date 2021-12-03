@@ -77,3 +77,9 @@ Turn that ridiculous fashion.
 here lad.
 : She hastily began rather timidly as this that case said these
 
+
+## Wikilinks load test
+
+[[activated ardeb]]
+[[pivotal kalaallit nunaat]]
+[[dominical fast day]]

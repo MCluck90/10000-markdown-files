@@ -80,3 +80,9 @@ Shan't said pig I
 Well I've seen hatters before HE
 : Said he could only say things went round your nose you just begun.
 
+
+## Wikilinks load test
+
+[[cordiform commodities exchange]]
+[[trademarked lunch meat]]
+[[paneled margin of profit]]

@@ -81,3 +81,9 @@ Change lobsters and mine coming to
 How COULD grin.
 : William replied rather offended tone going off together at them their heads down stairs.
 
+
+## Wikilinks load test
+
+[[magical common foxglove]]
+[[heterometabolous jutland]]
+[[livable ops]]

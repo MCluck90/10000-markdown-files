@@ -79,3 +79,8 @@ shouted the twelfth.
 In a chorus of thunder and
 : Ugh Serpent.
 
+
+## Wikilinks load test
+
+[[divalent bur oak]]
+[[precipitating mistletoe cactus]]

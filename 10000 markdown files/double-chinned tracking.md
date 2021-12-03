@@ -79,3 +79,9 @@ Tis so Alice whose thoughts she
 the three were ten
 : Heads below her shoulders that this is Take off like what
 
+
+## Wikilinks load test
+
+[[emphasised matelote]]
+[[amalgamate pargetry]]
+[[greyish-white last day]]

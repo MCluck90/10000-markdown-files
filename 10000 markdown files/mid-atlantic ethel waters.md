@@ -90,3 +90,9 @@ That's the general clapping of
 holding it any longer
 : ALICE'S LOVE.
 
+
+## Wikilinks load test
+
+[[sleazy botany]]
+[[oily phidias]]
+[[sceptred password]]

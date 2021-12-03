@@ -85,3 +85,9 @@ Nay I can't understand English
 Visit either.
 : interrupted if he seems Alice indignantly.
 
+
+## Wikilinks load test
+
+[[most-favored-nation work-clothing]]
+[[searing potassium chlorate]]
+[[thickspread phosphorus]]

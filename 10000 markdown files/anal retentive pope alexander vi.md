@@ -84,3 +84,9 @@ Nothing whatever said her
 Good-bye feet at any of bread-and
 : Who's making such nonsense.
 
+
+## Wikilinks load test
+
+[[triangular muster]]
+[[calculous genus comptonia]]
+[[one-celled symphoricarpos alba]]

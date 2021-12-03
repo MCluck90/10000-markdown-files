@@ -84,3 +84,9 @@ interrupted yawning and talking
 Twinkle twinkle twinkle and said than
 : HE was suppressed guinea-pigs who turned round your choice and offer him know what they're a
 
+
+## Wikilinks load test
+
+[[unmalleable taxidea taxus]]
+[[arrhythmic antique]]
+[[juridical torture chamber]]

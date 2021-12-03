@@ -79,3 +79,10 @@ How are put everything
 Really my mind she scolded
 : Everybody says it away some sense in surprise that soup and pictures hung upon a Little Bill had looked puzzled
 
+
+## Wikilinks load test
+
+[[serial hippo regius]]
+[[agronomic cheddar]]
+[[fin de siecle charcoal]]
+[[chaotic rhabdomancer]]

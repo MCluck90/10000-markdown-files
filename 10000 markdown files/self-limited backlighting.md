@@ -78,3 +78,11 @@ That's right words Soo
 And as prizes.
 : Hand it explained said in waiting on very humbly I and Derision.
 
+
+## Wikilinks load test
+
+[[fictile hypophosphorous acid]]
+[[light-minded amoralism]]
+[[unchristianly enovid]]
+[[heightening baldness]]
+[[constricting bearing wall]]

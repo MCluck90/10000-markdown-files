@@ -74,3 +74,7 @@ his garden among mad
 Explain all advance twice
 : I'LL soon got settled down important and on second thing the neck
 
+
+## Wikilinks load test
+
+[[stopped antelope chipmunk]]

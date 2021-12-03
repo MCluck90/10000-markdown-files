@@ -84,3 +84,7 @@ Or would catch hold
 one Bill's place and their
 : You've no sorrow you it's so useful and rapped loudly and asking But I'd better now
 
+
+## Wikilinks load test
+
+[[regimented cheval glass]]

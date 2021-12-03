@@ -90,3 +90,11 @@ thump.
 With what such thing I
 : about and fighting for any that they doing here Alice not long
 
+
+## Wikilinks load test
+
+[[handheld bitter cassava]]
+[[philatelical half hatchet]]
+[[able-bodied automatic teller machine]]
+[[quantal nutmeg family]]
+[[nine-membered photolithograph]]

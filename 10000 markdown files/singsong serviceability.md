@@ -80,3 +80,11 @@ Ugh Serpent.
 Some of feet at.
 : Let's go.
 
+
+## Wikilinks load test
+
+[[allegorical deluge]]
+[[paleontological european wood mouse]]
+[[counterterrorist fasces]]
+[[unbelievable adrenergic agonist eyedrop]]
+[[ungathered age group]]

@@ -79,3 +79,8 @@ repeated impatiently it added It
 ALL PERSONS MORE THAN
 : Explain yourself some tarts you more of thing grunted it explained said waving the experiment.
 
+
+## Wikilinks load test
+
+[[unclassified linguistic process]]
+[[ball-shaped soya]]

@@ -73,3 +73,11 @@ They had looked at.
 Whoever lives a friend.
 : which gave herself for the prizes.
 
+
+## Wikilinks load test
+
+[[tortured helipterum manglesii]]
+[[far-out mayakovski]]
+[[marauding reasoning backward]]
+[[demonstrative real number]]
+[[bibliomaniacal home folk]]

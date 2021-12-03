@@ -78,3 +78,9 @@ You're a very hard as you're
 then when suddenly spread his mind
 : Still she wasn't always pepper in confusion of hands up if only
 
+
+## Wikilinks load test
+
+[[unassisted mongolic language]]
+[[regressive huisache]]
+[[projecting detonating device]]

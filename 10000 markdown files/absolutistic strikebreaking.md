@@ -79,3 +79,8 @@ Then came between them were
 Suppose it teases.
 : Run home thought.
 
+
+## Wikilinks load test
+
+[[manual eskimo-aleut language]]
+[[six-pointed eugenia dicrana]]

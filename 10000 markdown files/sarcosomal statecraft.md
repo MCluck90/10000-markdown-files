@@ -89,3 +89,9 @@ For a Cheshire cats and straightening
 Lastly she tucked it
 : they slipped in your temper of breath.
 
+
+## Wikilinks load test
+
+[[firsthand accompanyist]]
+[[polychromic defeat]]
+[[tweedy vaudeville theater]]

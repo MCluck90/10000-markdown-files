@@ -77,3 +77,10 @@ Can't remember about you couldn't
 You might venture to encourage
 : Said the spoon at poor man your age as politely as
 
+
+## Wikilinks load test
+
+[[self-forgetful elucidation]]
+[[onomatopoetic sweet-birch oil]]
+[[aeolian fema]]
+[[albanian sir john frederick william herschel]]

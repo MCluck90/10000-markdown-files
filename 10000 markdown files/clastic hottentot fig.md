@@ -86,3 +86,8 @@ Ugh.
 Really my right height.
 : thump.
 
+
+## Wikilinks load test
+
+[[seven-fold wellbeing]]
+[[double-tongued tremellales]]

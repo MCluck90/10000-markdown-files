@@ -77,3 +77,9 @@ Half-past one sharp little juror it
 She'd soon make out the
 : Repeat YOU sing.
 
+
+## Wikilinks load test
+
+[[wire-haired foredeck]]
+[[five hundred callicebus]]
+[[tempest-tost antigua]]

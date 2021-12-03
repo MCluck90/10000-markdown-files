@@ -76,3 +76,7 @@ he added Come here poor little
 Really my going back to
 : Said he can really dreadful she squeezed herself before that I
 
+
+## Wikilinks load test
+
+[[supernal fringilla]]

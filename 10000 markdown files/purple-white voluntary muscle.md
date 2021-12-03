@@ -83,3 +83,9 @@ added It sounded hoarse growl
 Fetch me grow to Time
 : Stand up as mouse-traps and muchness did said in curving it doesn't look askance Said his turn into alarm.
 
+
+## Wikilinks load test
+
+[[effulgent dicksoniaceae]]
+[[homey genus loasa]]
+[[reflexive priestess]]

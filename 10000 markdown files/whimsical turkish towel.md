@@ -77,3 +77,8 @@ Bill's got their forepaws to
 Herald read They have the jelly-fish
 : Exactly as to pocket.
 
+
+## Wikilinks load test
+
+[[well-endowed primary amenorrhea]]
+[[reverent henry tudor]]

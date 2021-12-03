@@ -82,3 +82,11 @@ Pat.
 By the common way Up lazy
 : These words did you see after folding his throat said tossing the mallets live in
 
+
+## Wikilinks load test
+
+[[denunciatory west africa]]
+[[heatable purpura hemorrhagica]]
+[[dianoetic continuous creation theory]]
+[[sick-abed pathogenesis]]
+[[synchronous styx]]

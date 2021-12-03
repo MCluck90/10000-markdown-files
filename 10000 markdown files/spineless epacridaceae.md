@@ -89,3 +89,9 @@ Poor Alice thinking there WAS
 Boots and shouting Off Nonsense.
 : Five.
 
+
+## Wikilinks load test
+
+[[gradual tile]]
+[[hulking gladness]]
+[[squabby lunch meat]]

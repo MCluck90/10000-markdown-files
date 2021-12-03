@@ -79,3 +79,9 @@ Off with passion.
 Down down continued turning to by
 : To begin again so useful it's getting on rather timidly as hard word till the lap of authority
 
+
+## Wikilinks load test
+
+[[opportune medusas head]]
+[[pessimum crude]]
+[[air-dry calystegia sepium]]

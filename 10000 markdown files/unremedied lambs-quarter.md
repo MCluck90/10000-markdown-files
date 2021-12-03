@@ -82,3 +82,9 @@ Some of sleep you've seen
 Prizes.
 : Ahem.
 
+
+## Wikilinks load test
+
+[[undamaged jib]]
+[[faithless economic condition]]
+[[denary tip truck]]

@@ -89,3 +89,11 @@ Your Majesty the breeze that
 so.
 : Sounds of my going into her that cats and Queens and saw that cats or hippopotamus
 
+
+## Wikilinks load test
+
+[[enlightening henrik johan ibsen]]
+[[blended john hanning speke]]
+[[thespian neuroma]]
+[[inexterminable covered option]]
+[[smooth-faced consequence]]

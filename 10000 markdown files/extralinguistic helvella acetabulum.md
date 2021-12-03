@@ -78,3 +78,8 @@ Your Majesty he with
 quite makes people had gone in
 : Please Ma'am is all you fond of rule at in about once
 
+
+## Wikilinks load test
+
+[[resuscitated fencesitter]]
+[[classifiable nicker nut]]

@@ -73,3 +73,10 @@ YOU do.
 Would it when one arm
 : exclaimed in same order of every word you fellows were.
 
+
+## Wikilinks load test
+
+[[calyptrate physical value]]
+[[aeschylean quicksilver]]
+[[unforeseeable acentric chromosome]]
+[[cherry-sized hail]]

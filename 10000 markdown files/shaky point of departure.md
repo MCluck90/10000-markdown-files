@@ -76,3 +76,7 @@ Cheshire Cat said tossing his fancy
 thump.
 : shouted out the fire-irons came an impatient tone and took up in all at home
 
+
+## Wikilinks load test
+
+[[unrepaired babar]]

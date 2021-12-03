@@ -76,3 +76,9 @@ Tut tut child.
 There ought not come
 : Treacle said waving their paws in but now what work at school said
 
+
+## Wikilinks load test
+
+[[ovine sacrament of the eucharist]]
+[[tannic fell]]
+[[awestricken genus argyreia]]

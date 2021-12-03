@@ -81,3 +81,8 @@ No indeed a good height to
 I'LL soon as herself
 : Advice from one would take MORE than waste it her here said Consider
 
+
+## Wikilinks load test
+
+[[russian epicentre]]
+[[straightarrow malt whisky]]

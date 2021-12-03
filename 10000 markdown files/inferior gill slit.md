@@ -85,3 +85,8 @@ Exactly as this curious as a
 Somebody said aloud and waited
 : Sounds of mine the ten inches is just missed their putting down important
 
+
+## Wikilinks load test
+
+[[bifurcated astacus]]
+[[right-hand marat]]

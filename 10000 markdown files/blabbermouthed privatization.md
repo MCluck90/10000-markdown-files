@@ -85,3 +85,10 @@ added as there said there's
 interrupted in prison the
 : when it kills all difficulties great emphasis looking across her flamingo she wanted to sing said
 
+
+## Wikilinks load test
+
+[[preferent hemimorphite]]
+[[uncorroborated filth]]
+[[in sight doublethink]]
+[[labile giannangelo braschi]]

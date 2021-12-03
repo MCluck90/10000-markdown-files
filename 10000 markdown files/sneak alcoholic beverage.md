@@ -83,3 +83,8 @@ Quick now you may
 Idiot.
 : Back to finish his turn round eager eyes.
 
+
+## Wikilinks load test
+
+[[curly-grained skim]]
+[[disposed mishegaas]]

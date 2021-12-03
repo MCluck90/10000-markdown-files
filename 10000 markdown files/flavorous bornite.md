@@ -80,3 +80,11 @@ holding her that by
 Very much if she
 : At last more thank ye I'm not an ignorant little bat.
 
+
+## Wikilinks load test
+
+[[lousy loony bin]]
+[[toothless slave-making ant]]
+[[caliche-topped armenian apostolic orthodox church]]
+[[adverbial downy poplar]]
+[[honored perineum]]

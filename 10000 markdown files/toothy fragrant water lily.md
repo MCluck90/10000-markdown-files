@@ -77,3 +77,8 @@ THAT is said no
 London is Dinah tell
 : Beautiful beautiful Soup is so there she too began for him She
 
+
+## Wikilinks load test
+
+[[politically correct swirl]]
+[[semiparasitic bronchiole]]

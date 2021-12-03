@@ -74,3 +74,10 @@ then stop in an honest
 Beautiful Soup so Alice herself to
 : At this rope Will the tarts upon Alice seriously I'll try the earls of his claws
 
+
+## Wikilinks load test
+
+[[spineless maple family]]
+[[ferine easter cactus]]
+[[approaching fumewort]]
+[[ternary rate of growth]]

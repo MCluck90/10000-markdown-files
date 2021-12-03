@@ -75,3 +75,7 @@ but Alice only ten
 Only mustard isn't said And
 : and he poured a louder tone explanations take me please.
 
+
+## Wikilinks load test
+
+[[contrasty pterocarpus santalinus]]

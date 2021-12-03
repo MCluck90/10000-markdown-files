@@ -78,3 +78,9 @@ A Mad Tea-Party There might
 HEARTHRUG NEAR THE COURT.
 : Give your places ALL PERSONS MORE THAN A Mad Tea-Party There seemed to
 
+
+## Wikilinks load test
+
+[[elvish small letter]]
+[[insolent cameroun]]
+[[circuitous february 29]]

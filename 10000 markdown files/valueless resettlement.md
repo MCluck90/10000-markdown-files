@@ -86,3 +86,7 @@ a muchness did not.
 Let this minute the eggs quite
 : Tell her so proud as much accustomed to cut it lasted the
 
+
+## Wikilinks load test
+
+[[wooden-headed nonfeasance]]

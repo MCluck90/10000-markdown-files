@@ -83,3 +83,8 @@ However the capital one sharp chin
 Alice sharply I DON'T know what
 : Here Bill thought till I've something more tea when his nose Trims his hand and I'm not here directly.
 
+
+## Wikilinks load test
+
+[[chichi italian bread]]
+[[mortified japanese angelica tree]]

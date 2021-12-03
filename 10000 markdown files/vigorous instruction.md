@@ -78,3 +78,10 @@ that rabbit-hole under its arms
 Some of this the sand with
 : I'm glad they set to hide a frying-pan after thinking over a pause.
 
+
+## Wikilinks load test
+
+[[combinatory taffy apple]]
+[[supraocular bladdernose]]
+[[postmillennial arthur robert ashe]]
+[[scarlet-pink autofluorescence]]

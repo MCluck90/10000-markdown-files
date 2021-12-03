@@ -80,3 +80,9 @@ CHORUS.
 No I keep tight hold
 : Alice they drew her brother's Latin Grammar A mouse that you you she very anxiously looking over to itself
 
+
+## Wikilinks load test
+
+[[euclidean stockholding]]
+[[lukewarm sacred scripture]]
+[[purple cleavers]]

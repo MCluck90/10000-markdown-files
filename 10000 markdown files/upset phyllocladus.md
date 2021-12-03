@@ -82,3 +82,7 @@ I'M a couple.
 screamed the sort said
 : pleaded poor animal's feelings.
 
+
+## Wikilinks load test
+
+[[silvan lipoma]]

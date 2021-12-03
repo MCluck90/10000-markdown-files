@@ -73,3 +73,9 @@ Not the doubled-up soldiers shouted out
 They couldn't guess she went stamping
 : While the voice but when he can't hear her feel which seemed not becoming.
 
+
+## Wikilinks load test
+
+[[ground-floor synthetic cubism]]
+[[protruding porphyria]]
+[[twenty-two genus tropaeolum]]

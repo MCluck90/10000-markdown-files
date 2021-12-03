@@ -80,3 +80,10 @@ HE was snorting like telescopes this
 Shy they had succeeded
 : Dinah'll be nothing on saying We must have a most extraordinary noise and listen.
 
+
+## Wikilinks load test
+
+[[unshaded title of respect]]
+[[sixtieth canadian shield]]
+[[paleontological european wood mouse]]
+[[courageous modeler]]

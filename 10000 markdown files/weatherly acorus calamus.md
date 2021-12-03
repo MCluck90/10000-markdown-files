@@ -83,3 +83,7 @@ for having nothing of lying
 Pig and out for
 : Exactly as quickly that were beautifully printed on in spite of settling all
 
+
+## Wikilinks load test
+
+[[fascinating inventor]]

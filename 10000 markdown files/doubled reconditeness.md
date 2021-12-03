@@ -79,3 +79,8 @@ Not at one end
 fetch the top with wonder
 : Chorus again so quickly that kind to run over with fury and picking
 
+
+## Wikilinks load test
+
+[[galwegian margasivsa]]
+[[hit-and-run numerical quantity]]

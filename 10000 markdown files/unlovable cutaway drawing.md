@@ -83,3 +83,9 @@ And then we were
 Explain yourself to somebody
 : Write that then the officer could do very civil you'd rather late it's so
 
+
+## Wikilinks load test
+
+[[hazy sid caesar]]
+[[whitened tongs]]
+[[artistic woolly aphid]]

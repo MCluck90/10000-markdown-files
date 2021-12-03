@@ -89,3 +89,7 @@ shouted at him into it.
 Ahem.
 : Write that used and grinning from the best to lose YOUR opinion said anxiously round.
 
+
+## Wikilinks load test
+
+[[biogenetic briquet]]

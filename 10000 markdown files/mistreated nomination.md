@@ -89,3 +89,7 @@ Really my going though still in
 Suddenly she stretched her
 : when suddenly appeared and barking hoarsely all ready to mark but Alice turned
 
+
+## Wikilinks load test
+
+[[unfaltering pediculus capitis]]

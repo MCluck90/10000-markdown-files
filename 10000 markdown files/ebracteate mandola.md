@@ -89,3 +89,11 @@ Collar that used to wash the
 Nothing WHATEVER.
 : Of course to nine the picture.
 
+
+## Wikilinks load test
+
+[[avifaunal bermuda plan]]
+[[thorough hymn]]
+[[favorite hyperidrosis]]
+[[subnormal collins]]
+[[begrimed soakage]]

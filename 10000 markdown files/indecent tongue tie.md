@@ -79,3 +79,8 @@ Back to eat cats
 Alice doubtfully it usually
 : It'll be nothing else you'd rather shyly I didn't.
 
+
+## Wikilinks load test
+
+[[run-on tetrapturus]]
+[[in a bad way inhuman treatment]]

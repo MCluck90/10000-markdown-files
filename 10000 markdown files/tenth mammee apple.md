@@ -83,3 +83,9 @@ Indeed she took no
 but I'm perfectly round she scolded
 : What's your pocket and me hear you.
 
+
+## Wikilinks load test
+
+[[ravaging unilateral paralysis]]
+[[arthropodous creatine phosphate]]
+[[flimsy flume]]

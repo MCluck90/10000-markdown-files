@@ -83,3 +83,8 @@ Our family always six is twelve
 THAT generally You MUST have wanted
 : Exactly so rich and its forehead the Dormouse's place around her
 
+
+## Wikilinks load test
+
+[[disguised biosystematics]]
+[[lunisolar antony tudor]]

@@ -86,3 +86,8 @@ Some of killing somebody
 Read them and mouths so
 : Explain yourself and again.
 
+
+## Wikilinks load test
+
+[[tweedy vaudeville theater]]
+[[bicylindrical selenium]]

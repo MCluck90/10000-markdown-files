@@ -82,3 +82,8 @@ Where shall sing this
 Turn them such VERY
 : So they passed too but hurriedly went off into Alice's side to
 
+
+## Wikilinks load test
+
+[[bimodal birdsong]]
+[[abolitionary christmas holly]]

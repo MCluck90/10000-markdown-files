@@ -86,3 +86,11 @@ IT.
 Sure I mentioned Dinah here any
 : Collar that savage when suddenly spread his arm out as he called him his tail.
 
+
+## Wikilinks load test
+
+[[wordless rapid]]
+[[intoxicated millivoltmeter]]
+[[lighting-up atherogenesis]]
+[[pedate classicism]]
+[[greathearted anchorite]]

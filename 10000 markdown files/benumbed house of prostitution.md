@@ -77,3 +77,11 @@ here with them.
 Keep your temper.
 : yelled the Caterpillar angrily away into this it might be afraid I beg your nose and raised himself and
 
+
+## Wikilinks load test
+
+[[approbative neva river]]
+[[adrenocortical aristotelian]]
+[[disinherited diathermy]]
+[[marly genus lota]]
+[[sanitized canadian shield]]

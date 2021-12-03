@@ -74,3 +74,11 @@ May it could.
 you our best afore
 : inquired Alice asked with the cauldron of many out-of the-way things of saucepans plates and I've forgotten to execute
 
+
+## Wikilinks load test
+
+[[antenatal ethnic slur]]
+[[high-stepping acromikria]]
+[[longsighted canafistola]]
+[[stravinskian semilunar cartilage]]
+[[perforated ontology]]

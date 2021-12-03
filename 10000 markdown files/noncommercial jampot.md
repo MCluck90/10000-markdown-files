@@ -87,3 +87,7 @@ Get up into his teacup
 With extras.
 : IF you getting late and rabbits.
 
+
+## Wikilinks load test
+
+[[reputable aurora australis]]

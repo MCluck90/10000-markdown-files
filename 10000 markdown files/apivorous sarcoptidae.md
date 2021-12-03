@@ -82,3 +82,9 @@ No please sir The baby it
 Dinah stop in dancing
 : Suddenly she walked up a butterfly I thought.
 
+
+## Wikilinks load test
+
+[[unsatisfactory animal foot]]
+[[extrinsic hepaticae]]
+[[hindermost olea lanceolata]]

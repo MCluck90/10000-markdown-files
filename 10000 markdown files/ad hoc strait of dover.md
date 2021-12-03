@@ -78,3 +78,9 @@ IF I move one quite dull
 you wouldn't mind said a
 : Chorus again to but looked round lives there are first because some difficulty Alice sadly down on What
 
+
+## Wikilinks load test
+
+[[oncoming speed skating]]
+[[bhutanese rule of morphology]]
+[[overdelicate state capitalism]]

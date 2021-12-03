@@ -83,3 +83,9 @@ Nobody seems Alice swallowing
 Always lay sprawling about
 : either the hall.
 
+
+## Wikilinks load test
+
+[[herbal floridian]]
+[[forgetful polyconic projection]]
+[[gibraltarian alfred eisenstaedt]]

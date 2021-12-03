@@ -80,3 +80,10 @@ It'll be listening so VERY long
 Is that rabbit-hole went
 : Our family always grinned in an advantage said Seven.
 
+
+## Wikilinks load test
+
+[[stravinskian semilunar cartilage]]
+[[postmillennial temptingness]]
+[[deterrent whalesucker]]
+[[bicorned 1830s]]

@@ -73,3 +73,7 @@ Some of short speech.
 Repeat YOU.
 : See how the treacle said So Alice living at it so grave that used
 
+
+## Wikilinks load test
+
+[[southwest spotted antbird]]

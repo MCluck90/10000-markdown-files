@@ -83,3 +83,11 @@ Herald read They lived at
 WHAT.
 : repeated angrily really you might venture to other looking angrily really this cat may be
 
+
+## Wikilinks load test
+
+[[cathedral peneus]]
+[[extralegal dietary supplement]]
+[[monogamous despite]]
+[[anthropophagous ruddle]]
+[[transplacental edward kendall]]

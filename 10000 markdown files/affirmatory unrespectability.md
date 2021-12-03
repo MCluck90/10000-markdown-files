@@ -80,3 +80,9 @@ Lastly she set of YOUR
 Alice feeling.
 : Idiot.
 
+
+## Wikilinks load test
+
+[[conformable consolation]]
+[[feckless upper jaw]]
+[[poltroon wooly blue curls]]

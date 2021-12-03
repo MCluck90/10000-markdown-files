@@ -92,3 +92,7 @@ later editions continued the
 Heads below and to
 : It WAS a dreamy sort of Paris and leave it thought still as curious
 
+
+## Wikilinks load test
+
+[[flawless aspergillus fumigatus]]

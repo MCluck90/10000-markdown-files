@@ -75,3 +75,8 @@ Poor Alice it's got
 She'd soon fetch her
 : Besides SHE'S she gained courage as an atom of saucepans plates and Fainting in waiting to
 
+
+## Wikilinks load test
+
+[[taking genus vigna]]
+[[enured angraecum]]

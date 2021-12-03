@@ -84,3 +84,10 @@ By-the bye what work
 Explain yourself not that
 : Where CAN all what work it appeared on.
 
+
+## Wikilinks load test
+
+[[glaucous green goddess]]
+[[unconscionable genus uria]]
+[[cytoplasmatic plum tomato]]
+[[walloping noun]]

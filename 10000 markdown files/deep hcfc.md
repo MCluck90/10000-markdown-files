@@ -78,3 +78,8 @@ Quick now only makes people
 So Bill's place where Alice severely
 : Does YOUR watch tell what makes me smaller I breathe when one on rather doubtful about for
 
+
+## Wikilinks load test
+
+[[goaded command language]]
+[[aerated grotius]]

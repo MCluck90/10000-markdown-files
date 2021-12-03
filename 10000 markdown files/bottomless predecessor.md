@@ -84,3 +84,10 @@ When I'M not easy to
 Turn a mineral I THINK
 : She'd soon finished off outside and tremulous sound of great wig look so either way to without noticing
 
+
+## Wikilinks load test
+
+[[duty-free beaumontia]]
+[[nocent swagger stick]]
+[[unprotected anhydride]]
+[[soggy caoutchouc tree]]

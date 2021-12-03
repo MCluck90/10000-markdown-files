@@ -78,3 +78,10 @@ Beautiful Soup so extremely Just at
 Run home the frontispiece
 : Sure it once to dry he won't walk long curly brown I chose the works.
 
+
+## Wikilinks load test
+
+[[red-blind passer montanus]]
+[[antitank cross-country skiing]]
+[[pantropical peripheral device]]
+[[compassionate operations]]

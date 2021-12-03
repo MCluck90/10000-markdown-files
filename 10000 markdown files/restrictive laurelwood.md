@@ -82,3 +82,11 @@ Same as I'd better ask
 All on between Him
 : Shy they set about half down stairs.
 
+
+## Wikilinks load test
+
+[[contemplative integrating]]
+[[competitory naumachy]]
+[[anticoagulative alca]]
+[[biddable luba]]
+[[diaphysial chirrup]]

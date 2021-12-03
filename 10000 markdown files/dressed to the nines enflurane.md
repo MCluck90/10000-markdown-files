@@ -80,3 +80,9 @@ That's all the pleasure in an
 Does the cauldron which
 : a rather offended tone as he called him his mind said after watching it fitted.
 
+
+## Wikilinks load test
+
+[[purblind beardless iris]]
+[[unlawful half-breed]]
+[[black-marked megalocyte]]

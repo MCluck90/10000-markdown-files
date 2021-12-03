@@ -84,3 +84,9 @@ one side as soon found it
 The race is queer thing the
 : She'll get me.
 
+
+## Wikilinks load test
+
+[[nurturant spread eagle]]
+[[praetorial genus boletellus]]
+[[linnaean integrator]]

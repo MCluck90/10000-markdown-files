@@ -79,3 +79,8 @@ While she remained the busy
 Ah.
 : Mary Ann.
 
+
+## Wikilinks load test
+
+[[vile john constable]]
+[[diverse kwacha]]

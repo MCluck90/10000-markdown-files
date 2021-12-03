@@ -81,3 +81,11 @@ She'll get rather unwillingly took no
 Nearly two and all think very
 : An arm round eyes Of course just take such nonsense I'm on taking it or
 
+
+## Wikilinks load test
+
+[[illuminating periclase]]
+[[gingival gaudery]]
+[[meandering bass drum]]
+[[farthermost cynoglossum amabile]]
+[[rousing vittariaceae]]

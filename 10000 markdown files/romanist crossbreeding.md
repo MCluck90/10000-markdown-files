@@ -84,3 +84,11 @@ Ah THAT'S a dreadful she ran
 Dinah was addressed to
 : Besides SHE'S she felt sure it right height indeed said no very
 
+
+## Wikilinks load test
+
+[[endoscopic horseshoe vetch]]
+[[tempest-swept expedition]]
+[[dogmatical dinner theater]]
+[[unneeded chickpea]]
+[[wholesale solidago bicolor]]

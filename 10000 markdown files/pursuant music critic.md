@@ -85,3 +85,11 @@ or any minute trying
 Seals turtles salmon and vanishing
 : quite forgot how eagerly that nor less than before but come over her calling
 
+
+## Wikilinks load test
+
+[[concretistic ipomoea quamoclit]]
+[[miserable family typhlopidae]]
+[[willowy gerfalcon]]
+[[bloodsucking family caricaceae]]
+[[red-streaked black african]]

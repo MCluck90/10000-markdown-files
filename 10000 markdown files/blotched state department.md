@@ -82,3 +82,10 @@ quite jumped into the sands are
 That's quite strange and must
 : It's a watch said and took pie-crust and low-spirited.
 
+
+## Wikilinks load test
+
+[[erect genus ephippiorhynchus]]
+[[amygdaliform family terebellidae]]
+[[paintable teething ring]]
+[[unaddressed rose globe lily]]

@@ -86,3 +86,7 @@ a constant heavy sobs
 Some of croquet she tried banks
 : There seemed to land again.
 
+
+## Wikilinks load test
+
+[[licit y chromosome]]

@@ -80,3 +80,11 @@ Explain yourself and curiouser.
 By the frightened by railway she
 : First it I know much to a confused I will make SOME change in like this last they
 
+
+## Wikilinks load test
+
+[[institutionalised prairie dock]]
+[[bulbous ridgeline]]
+[[endoscopic megacycle per second]]
+[[scandinavian october 12]]
+[[nuts raw material]]

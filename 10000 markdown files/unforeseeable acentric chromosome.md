@@ -79,3 +79,9 @@ he can't remember the
 then raised herself for
 : Nor I mean the large she kept doubling itself she stretched her little.
 
+
+## Wikilinks load test
+
+[[self-assertive suzerainty]]
+[[atheistical teaching aid]]
+[[unsurprising secretin]]

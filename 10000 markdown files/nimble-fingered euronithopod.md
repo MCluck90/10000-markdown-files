@@ -76,3 +76,10 @@ Pat.
 Sounds of late.
 : Wow.
 
+
+## Wikilinks load test
+
+[[paneled fascism]]
+[[armour-plated shooting star]]
+[[umbellate dungeon]]
+[[coarsened seizure]]

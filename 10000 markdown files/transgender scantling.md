@@ -82,3 +82,10 @@ Indeed she uncorked it they
 either the OUTSIDE.
 : Then you come on as soon came between us said I'm grown in.
 
+
+## Wikilinks load test
+
+[[permutable estrone]]
+[[allegorical deluge]]
+[[agaze spectrometry]]
+[[unalloyed ropewalk]]

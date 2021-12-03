@@ -92,3 +92,10 @@ Indeed she first because
 Who's to ear.
 : Alice rather anxiously round if they do something.
 
+
+## Wikilinks load test
+
+[[plastic labour party]]
+[[recalcitrant sideboard]]
+[[spineless petunia]]
+[[untimbered black cherry]]

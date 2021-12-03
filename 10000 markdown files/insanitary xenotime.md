@@ -83,3 +83,8 @@ repeated angrily really offended
 Pat.
 : With extras.
 
+
+## Wikilinks load test
+
+[[tribadistic reserpine]]
+[[corroboratory whiting]]

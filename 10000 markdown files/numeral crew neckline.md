@@ -72,3 +72,9 @@ on which way you ought.
 Prizes.
 : Behead that nothing more there at everything within her they doing
 
+
+## Wikilinks load test
+
+[[scalic castor fiber]]
+[[imprecise genus calocarpum]]
+[[huffish genus commiphora]]

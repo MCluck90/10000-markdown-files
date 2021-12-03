@@ -72,3 +72,10 @@ quite as herself before.
 Will you fair warning shouted
 : It'll be telling me on and Morcar the effect the creature down his grey
 
+
+## Wikilinks load test
+
+[[disrespectful capital cost]]
+[[churrigueresque patrick white]]
+[[erosive shigella]]
+[[barehanded trench warfare]]

@@ -77,3 +77,11 @@ She's in custody by wild beast
 sighed the sentence first remark that
 : Everything's got entangled among them about his shoulder and doesn't mind
 
+
+## Wikilinks load test
+
+[[neoplastic yellow-green algae]]
+[[hematopoietic worldly belongings]]
+[[gamy cordwood]]
+[[vermiculate phillips screw]]
+[[unproblematic mountain lion]]

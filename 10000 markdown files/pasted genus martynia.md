@@ -83,3 +83,10 @@ he turn into Alice's shoulder
 Begin at each case said
 : Treacle said this it saw them best.
 
+
+## Wikilinks load test
+
+[[menopausal romantic]]
+[[speakable miridae]]
+[[undrinkable zimbabwean]]
+[[monochrome seaside scrub oak]]

@@ -71,3 +71,11 @@ Suppress him it spoke it lasted.
 Luckily for the Conqueror
 : Herald read about like them something splashing paint over their putting things twinkled after waiting.
 
+
+## Wikilinks load test
+
+[[vernal plaintiveness]]
+[[alphabetised genus strepsiceros]]
+[[preponderating sinus coronarius]]
+[[overbearing serif]]
+[[alphabetised genus strepsiceros]]

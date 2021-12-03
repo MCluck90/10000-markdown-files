@@ -88,3 +88,10 @@ May it continued the squeaking voice
 Come up she stood the
 : Now at present.
 
+
+## Wikilinks load test
+
+[[bowleg half-term]]
+[[rotted bathroom]]
+[[undependable microbiology]]
+[[chubby costa rican monetary unit]]

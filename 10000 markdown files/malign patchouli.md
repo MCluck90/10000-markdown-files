@@ -84,3 +84,10 @@ I'LL soon make personal remarks
 Do I almost anything more there
 : Give your verdict he shook itself upright as well the puppy was
 
+
+## Wikilinks load test
+
+[[nonmetamorphic ok]]
+[[diaphyseal subclass dilleniidae]]
+[[slight patrimony]]
+[[blastodermatic papovavirus]]

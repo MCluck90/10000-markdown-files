@@ -80,3 +80,8 @@ Repeat YOU with their heads.
 How brave they'll all day
 : Heads below.
 
+
+## Wikilinks load test
+
+[[rosy-purple pace car]]
+[[mediterranean drift ice]]

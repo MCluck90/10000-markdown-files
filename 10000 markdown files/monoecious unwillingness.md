@@ -79,3 +79,8 @@ Everything's got it that was soon
 Pray don't speak.
 : Five in trying in bed.
 
+
+## Wikilinks load test
+
+[[carmelite nitrostat]]
+[[dermatologic genus ceratostomella]]

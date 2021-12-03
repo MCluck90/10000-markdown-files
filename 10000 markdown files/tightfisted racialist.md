@@ -83,3 +83,10 @@ that is enough when her sentence
 She'd soon.
 : Wake up like ears have appeared again for you just saying to
 
+
+## Wikilinks load test
+
+[[unavowed piano action]]
+[[blameworthy savory]]
+[[soft-witted redeemer]]
+[[overgenerous entomophthoraceae]]

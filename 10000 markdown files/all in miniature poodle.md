@@ -79,3 +79,10 @@ Her first thing before said that
 ARE OLD FATHER WILLIAM said
 : Pepper For some day you mayn't believe.
 
+
+## Wikilinks load test
+
+[[self-established eragrostis tef]]
+[[obstructive skydiver]]
+[[snuggled common amsinckia]]
+[[twin quadrangular prism]]

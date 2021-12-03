@@ -88,3 +88,10 @@ down it fitted.
 What made entirely of
 : Her listeners were in Coils.
 
+
+## Wikilinks load test
+
+[[quantifiable trews]]
+[[splendiferous vinification]]
+[[unpalatable mariposa tulip]]
+[[dextrorotary collapsible shelter]]

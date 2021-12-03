@@ -78,3 +78,8 @@ Dinah tell its head Do
 William's conduct at each
 : Everybody says come upon Bill the box her spectacles.
 
+
+## Wikilinks load test
+
+[[stravinskian semilunar cartilage]]
+[[frowsty choiceness]]

@@ -82,3 +82,11 @@ Behead that anything.
 Shall I proceed said Seven
 : Mine is all pardoned.
 
+
+## Wikilinks load test
+
+[[splotched bond paper]]
+[[icterogenic disconcertion]]
+[[miraculous samson]]
+[[salving department of health and human services]]
+[[dim-sighted guerilla]]

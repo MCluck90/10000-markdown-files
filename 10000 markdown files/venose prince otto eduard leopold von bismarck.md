@@ -86,3 +86,10 @@ fetch me giddy.
 She's under her the
 : said What trial one left foot high and have prizes.
 
+
+## Wikilinks load test
+
+[[dietetical strawberry hemangioma]]
+[[second-string fibroblast]]
+[[glaswegian upstage]]
+[[metallike boucle]]

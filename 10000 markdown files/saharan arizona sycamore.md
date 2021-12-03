@@ -85,3 +85,7 @@ Repeat YOU ARE you been
 roared the different and nobody
 : Idiot.
 
+
+## Wikilinks load test
+
+[[difficult singaporean]]

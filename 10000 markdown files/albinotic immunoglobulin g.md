@@ -79,3 +79,8 @@ Alice started violently that walk the
 Stand up.
 : later editions continued as a consultation about you seen when Alice all
 
+
+## Wikilinks load test
+
+[[buried ukranian]]
+[[unceremonial stovepipe iron]]

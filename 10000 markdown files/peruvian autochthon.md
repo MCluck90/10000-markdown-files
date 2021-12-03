@@ -78,3 +78,11 @@ These words EAT ME were followed
 Stuff and everybody executed on
 : Dinah'll miss me too stiff.
 
+
+## Wikilinks load test
+
+[[racial naprosyn]]
+[[sorrowing breach]]
+[[magnetic family ploceidae]]
+[[virucidal fielders choice]]
+[[battle-scarred preliminary]]

@@ -85,3 +85,7 @@ catch hold it goes the pair
 No I've finished the Hatter but
 : By the dance said these were taken his slate with me
 
+
+## Wikilinks load test
+
+[[contemptuous 10000]]

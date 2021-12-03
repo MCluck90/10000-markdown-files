@@ -84,3 +84,11 @@ That depends a solemn as
 Digging for repeating YOU.
 : .
 
+
+## Wikilinks load test
+
+[[innovational plainclothesman]]
+[[surgical hematolysis]]
+[[dissatisfactory pennoncel]]
+[[uneatable robbery]]
+[[ring-shaped petroleum]]

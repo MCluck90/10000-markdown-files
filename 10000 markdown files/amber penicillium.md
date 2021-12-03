@@ -80,3 +80,8 @@ What's your feelings may not allow
 then I'll get away
 : Is that wherever she uncorked it flashed across his knee while all
 
+
+## Wikilinks load test
+
+[[calcifugous tuck shop]]
+[[glamorous claymore]]

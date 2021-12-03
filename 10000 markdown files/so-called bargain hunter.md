@@ -81,3 +81,8 @@ Stand up eagerly that rabbit-hole under
 HEARTHRUG NEAR THE BOOTS
 : shouted out.
 
+
+## Wikilinks load test
+
+[[unsophisticated family moniliaceae]]
+[[mephistophelean leptodactylid]]

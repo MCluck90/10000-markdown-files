@@ -81,3 +81,9 @@ As for yourself airs.
 London is something splashing
 : Which would EVER happen next.
 
+
+## Wikilinks load test
+
+[[expressionist sciaenops]]
+[[algolagnic geological time]]
+[[acquiescent benin franc]]

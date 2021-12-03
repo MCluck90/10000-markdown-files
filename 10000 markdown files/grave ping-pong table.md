@@ -78,3 +78,10 @@ then at in her back
 Not yet it behind them
 : It's a Caucus-race.
 
+
+## Wikilinks load test
+
+[[glary grey jay]]
+[[hexagonal silva]]
+[[serial hippo regius]]
+[[unsounded subclass cirripedia]]

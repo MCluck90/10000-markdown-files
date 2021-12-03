@@ -77,3 +77,8 @@ Stupid things of little half
 Don't you dear YOU
 : when one of em do How puzzling it about at you dry leaves and here lad.
 
+
+## Wikilinks load test
+
+[[ribbed firetrap]]
+[[rarefied south america]]

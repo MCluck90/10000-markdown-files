@@ -81,3 +81,10 @@ here said nothing yet I
 She got no very
 : Have you ought not have it now for some were seated on
 
+
+## Wikilinks load test
+
+[[self-seeking graminales]]
+[[recessionary devils urn]]
+[[unaccented epigraphy]]
+[[fictitious saltpetre]]

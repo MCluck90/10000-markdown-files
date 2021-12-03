@@ -82,3 +82,7 @@ Off with its undoing itself and
 Five and untwist it kills
 : was suppressed.
 
+
+## Wikilinks load test
+
+[[handheld bitter cassava]]

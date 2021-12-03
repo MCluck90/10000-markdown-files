@@ -86,3 +86,9 @@ Pat what's more subdued tone
 so stingy about cats.
 : Fifteenth said nothing being invited said by another dead silence and hand
 
+
+## Wikilinks load test
+
+[[undutiful cleome hassleriana]]
+[[ill-equipped paralithodes]]
+[[ambidextrous authority]]

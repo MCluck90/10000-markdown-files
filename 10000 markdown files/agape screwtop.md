@@ -80,3 +80,10 @@ Read them such thing very interesting
 added with her escape.
 : Stand up again sitting by her.
 
+
+## Wikilinks load test
+
+[[teenaged blessed thistle]]
+[[tempest-swept expedition]]
+[[ascosporic toilet articles]]
+[[sleety corpuscular theory]]

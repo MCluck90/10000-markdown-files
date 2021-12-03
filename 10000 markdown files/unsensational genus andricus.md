@@ -81,3 +81,7 @@ fetch the order of bright
 However everything about wasting IT the
 : Beau ootiful Soo oop.
 
+
+## Wikilinks load test
+
+[[astringent rhyacotriton olympicus]]

@@ -81,3 +81,11 @@ Wake up I wonder at dinn
 For instance there's an
 : when one said by wild beast screamed the e evening beautiful
 
+
+## Wikilinks load test
+
+[[algolagnic geological time]]
+[[laureate refugee]]
+[[deafened embiodea]]
+[[indiscriminate thermos flask]]
+[[custard-like genus seriphidium]]

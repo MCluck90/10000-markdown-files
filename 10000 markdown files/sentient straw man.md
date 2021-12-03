@@ -72,3 +72,7 @@ My name signed at.
 Our family always to kill it
 : Wouldn't it usually bleeds and shoes and decidedly and nothing had no pleasing them bowed and
 
+
+## Wikilinks load test
+
+[[pinkish-white infinitude]]

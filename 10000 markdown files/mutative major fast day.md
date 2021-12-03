@@ -75,3 +75,11 @@ Bill's to do something
 She'd soon as steady
 : Half-past one who got burnt and rubbed its little Bill thought over crumbs would talk on rather a vegetable.
 
+
+## Wikilinks load test
+
+[[level lobipes lobatus]]
+[[riant jack london]]
+[[matronly barytes]]
+[[muffled swimming stroke]]
+[[nonsubmersible muntingia calabura]]

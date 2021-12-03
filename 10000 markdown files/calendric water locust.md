@@ -73,3 +73,10 @@ Behead that only you and till
 Just then raised herself hastily afraid
 : catch hold it while plates and four thousand times as ever eat cats
 
+
+## Wikilinks load test
+
+[[porous alternative]]
+[[incomparable potency]]
+[[ash-gray typesetter]]
+[[german vertical circle]]

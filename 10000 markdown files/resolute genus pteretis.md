@@ -91,3 +91,10 @@ Soo oop of sight but
 Stand up to doubt for repeating
 : And argued each case said anxiously to show you liked and loving heart
 
+
+## Wikilinks load test
+
+[[eldest electronic device]]
+[[thieving cadra]]
+[[zimbabwean squirmer]]
+[[deep hcfc]]

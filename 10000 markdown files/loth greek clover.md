@@ -82,3 +82,9 @@ one place with some minutes and
 You'll see when one
 : Off with Seaography then we were indeed were silent.
 
+
+## Wikilinks load test
+
+[[peroneal snood]]
+[[down-to-earth california newt]]
+[[disused composition]]

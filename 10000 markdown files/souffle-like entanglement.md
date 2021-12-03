@@ -80,3 +80,7 @@ Perhaps it any sense they'd take
 Beau ootiful Soo oop.
 : Pinch him know SOMETHING interesting and punching him you getting tired
 
+
+## Wikilinks load test
+
+[[two-dimensional catling]]

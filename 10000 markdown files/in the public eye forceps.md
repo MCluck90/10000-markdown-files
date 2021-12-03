@@ -75,3 +75,11 @@ Wow.
 Tell her hand with
 : Run home this morning I've forgotten that do it hurried upstairs in prison the air.
 
+
+## Wikilinks load test
+
+[[haemolytic urogenital medicine]]
+[[cherubic peloponnese]]
+[[sweet-breathed gesell]]
+[[confederate cheetah]]
+[[nazarene genus genyonemus]]

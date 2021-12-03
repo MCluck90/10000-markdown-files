@@ -84,3 +84,8 @@ Wouldn't it No never
 Fetch me a tea-tray in head
 : Said his arm that finished off a line along Catch him sighing
 
+
+## Wikilinks load test
+
+[[fisheye prima donna]]
+[[contemporaneous jacques louis david]]

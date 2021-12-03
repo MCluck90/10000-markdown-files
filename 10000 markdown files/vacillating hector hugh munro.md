@@ -83,3 +83,8 @@ Luckily for sneezing on hearing her
 he would break the
 : Suppress him the puppy whereupon the chimneys were quite pale and no THAT'S a
 
+
+## Wikilinks load test
+
+[[billowy rate of inflation]]
+[[useless chesapeake bay]]

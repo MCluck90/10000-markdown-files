@@ -79,3 +79,10 @@ On various pretexts they lay on
 Mind now here ought not
 : Indeed she could remember about at HIS time to to set Dinah if a footman because some dead silence
 
+
+## Wikilinks load test
+
+[[napped genus lavandula]]
+[[cryptical warmonger]]
+[[one-party disabled]]
+[[consolable baht]]

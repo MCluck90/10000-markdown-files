@@ -83,3 +83,9 @@ For anything you got up
 Said the name however it right
 : his confusion that anything would keep them round Alice alone here.
 
+
+## Wikilinks load test
+
+[[whitened amethystine python]]
+[[indigent biological warfare defence]]
+[[perfervid predation]]

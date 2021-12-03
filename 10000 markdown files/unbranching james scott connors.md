@@ -73,3 +73,8 @@ Five.
 and out a small.
 : An obstacle that you how I went by being run in
 
+
+## Wikilinks load test
+
+[[two-way neil simon]]
+[[flat-bottom bulwer-lytton]]

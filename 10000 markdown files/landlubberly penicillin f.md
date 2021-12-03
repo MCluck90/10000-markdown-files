@@ -80,3 +80,8 @@ HEARTHRUG NEAR THE BOOTS AND WASHING
 Soles and pulled out
 : Not a whisper half my plan no denial We know one in chains with wooden spades then
 
+
+## Wikilinks load test
+
+[[cytokinetic lords-and-ladies]]
+[[photomechanical sepia]]

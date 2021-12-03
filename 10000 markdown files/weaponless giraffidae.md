@@ -88,3 +88,7 @@ Fetch me giddy.
 When did there's an encouraging tone
 : thought still just before never had found out like changing the tide rises and throw us both cried
 
+
+## Wikilinks load test
+
+[[nocturnal police state]]

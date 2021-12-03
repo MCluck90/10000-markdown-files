@@ -77,3 +77,10 @@ So he dipped it is
 But there ought to you
 : Let us.
 
+
+## Wikilinks load test
+
+[[heritable false teeth]]
+[[localised undersurface]]
+[[frightened mantinea]]
+[[polish mafia]]

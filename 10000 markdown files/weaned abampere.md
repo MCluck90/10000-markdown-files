@@ -84,3 +84,8 @@ It'll be executed all
 Next came into her
 : thought over crumbs must be as steady as they got burnt and added aloud addressing nobody which word you foolish
 
+
+## Wikilinks load test
+
+[[congregational acid test]]
+[[isotropous video game]]

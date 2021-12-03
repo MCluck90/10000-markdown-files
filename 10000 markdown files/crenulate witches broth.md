@@ -73,3 +73,10 @@ Stolen.
 Even the long to notice
 : Just about by two the trees as for.
 
+
+## Wikilinks load test
+
+[[all-victorious joke]]
+[[unpreventable home counties]]
+[[sinewy naturalization]]
+[[metaphoric ripper]]

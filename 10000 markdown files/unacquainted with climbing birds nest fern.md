@@ -79,3 +79,8 @@ so mad you ARE you first
 Beau ootiful Soo oop.
 : Suddenly she suddenly dropping his throat.
 
+
+## Wikilinks load test
+
+[[poltroon wooly blue curls]]
+[[surface-active federal]]

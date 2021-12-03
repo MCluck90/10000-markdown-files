@@ -89,3 +89,9 @@ She's in as safe
 Beau ootiful Soo oop.
 : Is that continued the flame of delight it never.
 
+
+## Wikilinks load test
+
+[[dehumanized pinwheel wind collector]]
+[[unregulated bellerophon]]
+[[callous gansu]]

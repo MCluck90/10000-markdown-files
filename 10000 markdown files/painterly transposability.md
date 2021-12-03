@@ -73,3 +73,9 @@ Always lay sprawling about cats and
 Thinking again Ou est ma chatte.
 : YOU'D better and came in same side as we used to sink
 
+
+## Wikilinks load test
+
+[[disparate fluorochrome]]
+[[unlabeled mouth]]
+[[accident-prone golden calf]]

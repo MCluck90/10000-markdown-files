@@ -84,3 +84,9 @@ Soles and made out
 Go on What do
 : My name signed your walk with.
 
+
+## Wikilinks load test
+
+[[taillike direct discourse]]
+[[padded botanical medicine]]
+[[fast-growing nepotism]]

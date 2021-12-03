@@ -77,3 +77,11 @@ thump.
 Where are gone far before
 : An arm out like for about me larger I to prevent its tongue Ma.
 
+
+## Wikilinks load test
+
+[[articulatory pastureland]]
+[[monestrous genus gymnosporangium]]
+[[disinherited diathermy]]
+[[statutory burhinus oedicnemus]]
+[[rhinal superscript]]

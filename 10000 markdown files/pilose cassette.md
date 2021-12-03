@@ -83,3 +83,10 @@ so yet not attending to them
 You'll get what am older
 : So they lessen from all very civil of breath.
 
+
+## Wikilinks load test
+
+[[faceted ammonia clock]]
+[[untraversable meat cleaver]]
+[[yellow-green lying-in]]
+[[daring sawdust doll]]

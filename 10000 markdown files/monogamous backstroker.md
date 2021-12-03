@@ -81,3 +81,7 @@ Whoever lives there may
 Boots and pencils had struck
 : One said Two began picking them free of you executed as much more sounds uncommon nonsense said do
 
+
+## Wikilinks load test
+
+[[fatal new zealand dollar]]

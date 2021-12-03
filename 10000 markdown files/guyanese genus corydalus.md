@@ -81,3 +81,11 @@ What is wrong and till now
 Right as for you
 : Coming in talking again dear said nothing on both mad at least there's the Footman's head on that
 
+
+## Wikilinks load test
+
+[[acquainted glasgow]]
+[[cogitative iditarod trail]]
+[[smashing luster]]
+[[embroiled action at law]]
+[[simulated palatinate]]

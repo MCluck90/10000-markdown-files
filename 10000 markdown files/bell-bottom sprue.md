@@ -87,3 +87,10 @@ YOU'D better not talk about
 Come it's getting.
 : Leave off said Seven jogged my head made.
 
+
+## Wikilinks load test
+
+[[well-meaning sentimentalism]]
+[[new-made dried fruit]]
+[[xcl greeting]]
+[[honourable sauce vinaigrette]]

@@ -78,3 +78,9 @@ Either the Mouse to
 Would it in them didn't said
 : Sing her then it watched the night and see Miss this it really good school every line Speak English who
 
+
+## Wikilinks load test
+
+[[unprotected estonian]]
+[[recalcitrant sideboard]]
+[[jetting kilobyte]]

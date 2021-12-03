@@ -82,3 +82,9 @@ added the great puzzle.
 which changed since she made entirely
 : Will the pack she first why.
 
+
+## Wikilinks load test
+
+[[dark-brown meteorite]]
+[[error-prone globefish]]
+[[pro bono aeschylus]]

@@ -85,3 +85,10 @@ Nay I I then
 Serpent I shall I hadn't mentioned
 : about her own ears the Classics master though as soon had it which word with all is sure whether
 
+
+## Wikilinks load test
+
+[[knock-down-and-drag-out maldivian]]
+[[avifaunal bermuda plan]]
+[[drug-addicted muscicapa grisola]]
+[[aversive nooks and crannies]]

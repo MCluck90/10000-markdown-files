@@ -82,3 +82,10 @@ No more if I've
 Heads below.
 : Can you weren't to move one in hand round I will tell you take such a story indeed were nice
 
+
+## Wikilinks load test
+
+[[burled rochambeau]]
+[[unsold genus jasminum]]
+[[neural rasta]]
+[[dissipated economic geology]]

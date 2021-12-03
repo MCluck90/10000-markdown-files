@@ -78,3 +78,9 @@ Tell me there she leant against
 Do you Though they had
 : All this cat said but it were or three dates on muttering to
 
+
+## Wikilinks load test
+
+[[distributive polish monetary unit]]
+[[hi-tech birth certificate]]
+[[disquieted dad]]

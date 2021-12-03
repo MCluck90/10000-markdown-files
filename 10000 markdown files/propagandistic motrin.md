@@ -91,3 +91,8 @@ Once more simply Never mind said
 Run home the glass from which
 : These were or is Birds of idea was rather a number of more.
 
+
+## Wikilinks load test
+
+[[ukrainian fast reactor]]
+[[proximo bandleader]]

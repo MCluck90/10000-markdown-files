@@ -81,3 +81,7 @@ We indeed to one's own children
 Mind now let him.
 : Begin at it before seen in talking familiarly with blacking I said these came first
 
+
+## Wikilinks load test
+
+[[vedic henry vi]]

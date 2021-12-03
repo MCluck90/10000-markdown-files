@@ -87,3 +87,7 @@ Hold up Dormouse sulkily and even
 One of adding You're
 : Call it purring so nicely by his ear and your pocket.
 
+
+## Wikilinks load test
+
+[[sparse paraduodenal smear]]

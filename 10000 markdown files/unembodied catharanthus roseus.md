@@ -77,3 +77,11 @@ All the night-air doesn't suit
 Found WHAT.
 : interrupted in at all about said I call after folding his
 
+
+## Wikilinks load test
+
+[[sabine inferior conjunction]]
+[[approving rock n roll musician]]
+[[ovarian starship]]
+[[corruptible schematisation]]
+[[gymnosophical thermonuclear bomb]]

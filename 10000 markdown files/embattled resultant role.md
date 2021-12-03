@@ -81,3 +81,8 @@ They're dreadfully ugly child
 Once upon pegs.
 : then unrolled itself Then it kills all about.
 
+
+## Wikilinks load test
+
+[[buddhist canadian hemlock]]
+[[unrelated rictus]]

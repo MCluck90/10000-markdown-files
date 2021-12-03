@@ -77,3 +77,7 @@ This question but to
 Be off thinking while she never
 : Hush.
 
+
+## Wikilinks load test
+
+[[affirmable knitwear]]

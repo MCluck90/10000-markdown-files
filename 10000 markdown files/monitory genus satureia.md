@@ -75,3 +75,8 @@ Let this that I'm growing
 Oh tis love that
 : ALICE'S LOVE.
 
+
+## Wikilinks load test
+
+[[sugarless absolute threshold]]
+[[bilobated hatband]]

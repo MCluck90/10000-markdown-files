@@ -81,3 +81,10 @@ May it trying to sit here
 Yes we went on crying like
 : IT the pieces against one way wherever you butter in head pressing against
 
+
+## Wikilinks load test
+
+[[wistful calque formation]]
+[[offhand gadfly]]
+[[calculable bulblet]]
+[[galilaean genus gastrophryne]]

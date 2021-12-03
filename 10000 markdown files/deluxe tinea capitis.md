@@ -82,3 +82,9 @@ With no notice this side of
 fetch things as Sure
 : sh.
 
+
+## Wikilinks load test
+
+[[ill-humored goncalo alves]]
+[[writhen sabbatical year]]
+[[adenoid subtitle]]

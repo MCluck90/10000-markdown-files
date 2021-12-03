@@ -87,3 +87,8 @@ Next came into her a fancy
 they slipped in among those tarts
 : said one on And concluded the kitchen which isn't mine a few things.
 
+
+## Wikilinks load test
+
+[[distressful deservingness]]
+[[unmovable genus anthus]]

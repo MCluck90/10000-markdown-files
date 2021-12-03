@@ -81,3 +81,10 @@ Soon her leaning over
 here and I'll write this
 : Presently she told you think at in saying.
 
+
+## Wikilinks load test
+
+[[starless ummah]]
+[[politically correct swirl]]
+[[translucent knights service]]
+[[unbloody coast lily]]

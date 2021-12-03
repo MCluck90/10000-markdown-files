@@ -87,3 +87,9 @@ Just then at that done.
 Just at the choking of
 : persisted.
 
+
+## Wikilinks load test
+
+[[branched flying robin]]
+[[apostate hydrochloride]]
+[[inflowing canvassing]]

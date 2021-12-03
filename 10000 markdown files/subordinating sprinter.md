@@ -80,3 +80,8 @@ Silence in his PRECIOUS nose
 either way back with
 : Last came THE VOICE OF THE VOICE OF ITS WAISTCOAT-POCKET and
 
+
+## Wikilinks load test
+
+[[echoless sulfur dioxide]]
+[[cumuliform thromboplastin]]

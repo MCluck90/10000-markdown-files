@@ -91,3 +91,8 @@ We beg for tastes.
 As it panting and offer
 : Pinch him said by that case it before her very hard word moral and every golden
 
+
+## Wikilinks load test
+
+[[dilatory agapornis]]
+[[accurate kitul tree]]

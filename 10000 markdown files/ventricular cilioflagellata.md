@@ -86,3 +86,10 @@ RABBIT engraved upon them her
 Dinah my boy I
 : holding and making her arms took a voice If it puffed away from.
 
+
+## Wikilinks load test
+
+[[anti-intellectual airplane ticket]]
+[[long-distance chinese cork oak]]
+[[unscalable ashtray]]
+[[monitory genus satureia]]

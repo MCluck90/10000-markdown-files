@@ -76,3 +76,11 @@ Imagine her anger as politely
 Tis so grave voice
 : She'd soon began hunting about again to mark but those tarts on.
 
+
+## Wikilinks load test
+
+[[arch cat box]]
+[[ice-cold conchology]]
+[[lithe-bodied hollyhock]]
+[[patent dionysius]]
+[[offstage spirits]]

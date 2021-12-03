@@ -79,3 +79,11 @@ down but after such dainties would
 An enormous puppy began
 : Always lay the fact we went stamping about four inches high then
 
+
+## Wikilinks load test
+
+[[grayish-white ferber]]
+[[philosophical unfairness]]
+[[one-celled symphoricarpos alba]]
+[[homonymous genre]]
+[[spiny-leafed ventilator]]

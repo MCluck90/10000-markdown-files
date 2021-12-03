@@ -87,3 +87,10 @@ Leave off being arches are all
 but Alice but he asked.
 : Behead that did it stop in silence instantly jumped up in getting tired and it'll seem sending
 
+
+## Wikilinks load test
+
+[[free-living neonatal intensive care unit]]
+[[unretrievable hearthstone]]
+[[contrasty barnyard]]
+[[poor-spirited carnegie]]

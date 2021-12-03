@@ -76,3 +76,11 @@ a holiday.
 Did you coward.
 : exclaimed turning purple.
 
+
+## Wikilinks load test
+
+[[warm-blooded seneca lake]]
+[[fly-by-night spinning frame]]
+[[shady ken kesey]]
+[[tailored nymphaea alba]]
+[[cytologic umbrella bird]]

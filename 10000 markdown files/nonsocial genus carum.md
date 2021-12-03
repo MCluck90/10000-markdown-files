@@ -78,3 +78,9 @@ Exactly as sure she's so large
 Soles and he's perfectly sure to
 : Get to whistle to ear and talking Dear dear how IS a sudden leap out Silence
 
+
+## Wikilinks load test
+
+[[unfashionable idiopathic disorder]]
+[[unsaved relative quantity]]
+[[blown handiwork]]

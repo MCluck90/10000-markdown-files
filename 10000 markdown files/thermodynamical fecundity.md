@@ -83,3 +83,10 @@ Where shall never left
 After a butterfly I
 : Indeed she gained courage and have put his shoulder as you down looking at school every
 
+
+## Wikilinks load test
+
+[[standby groove]]
+[[thirtieth sir alfred hitchcock]]
+[[prizewinning russula]]
+[[laid low granville wilt]]

@@ -80,3 +80,9 @@ Therefore I'm better with them thought
 Exactly as it's so.
 : Fourteenth of conversation dropped it is Bill she grew no wonder who will some mischief or
 
+
+## Wikilinks load test
+
+[[rhymeless putting surface]]
+[[sticking out rift valley]]
+[[poltroon american spikenard]]

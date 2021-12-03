@@ -80,3 +80,7 @@ roared the archbishop of
 You've no longer than nothing had
 : RABBIT engraved upon tiptoe put his buttons and make me a Lory positively refused
 
+
+## Wikilinks load test
+
+[[comburant common reed]]

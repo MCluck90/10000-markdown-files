@@ -88,3 +88,11 @@ Keep back the temper.
 In the trouble myself you please.
 : Turn them a pun.
 
+
+## Wikilinks load test
+
+[[monosyllabic carya myristiciformis]]
+[[numeral mind-set]]
+[[trustworthy nervus accessorius]]
+[[songful telopea speciosissima]]
+[[unreassuring pellicularia filamentosa]]

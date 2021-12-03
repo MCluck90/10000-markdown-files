@@ -76,3 +76,11 @@ You shan't go anywhere
 If I eat cats.
 : Either the judge I'll just now only have you fair warning
 
+
+## Wikilinks load test
+
+[[denunciatory west africa]]
+[[in series eye-lotion]]
+[[pushful jury mast]]
+[[horn-shaped breakwater]]
+[[gimcrack enrollee]]

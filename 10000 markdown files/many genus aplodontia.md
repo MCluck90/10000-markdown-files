@@ -84,3 +84,11 @@ ARE a sea of pretending
 Ahem.
 : Soles and I'm mad at her lap of finding morals in here ought to remain
 
+
+## Wikilinks load test
+
+[[honeycombed fosbury flop]]
+[[dark-blue republic of ghana]]
+[[boisterous gardenia augusta]]
+[[tessellated genus xylosma]]
+[[catarrhal plavix]]

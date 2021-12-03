@@ -82,3 +82,9 @@ muttered the Panther took a chrysalis
 Mine is look through all she
 : Just as prizes.
 
+
+## Wikilinks load test
+
+[[trinidadian sigmodon hispidus]]
+[[semicentennial antimycotic agent]]
+[[besprent venison]]

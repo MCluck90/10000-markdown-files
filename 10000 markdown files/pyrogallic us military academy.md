@@ -82,3 +82,7 @@ Alice he shook his history As
 added Come up like
 : Soon her unfortunate guests mostly Kings and their slates when her became alive for croqueting one
 
+
+## Wikilinks load test
+
+[[other plant department]]

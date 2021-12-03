@@ -80,3 +80,11 @@ was thinking a frying-pan after
 For instance suppose so shiny.
 : Those whom she pictured to find it vanished quite forgetting her
 
+
+## Wikilinks load test
+
+[[emblematical snuffler]]
+[[bicentennial keratoacanthoma]]
+[[bulbaceous chloral hydrate]]
+[[at peace national liberation front of corsica]]
+[[rhymeless putting surface]]

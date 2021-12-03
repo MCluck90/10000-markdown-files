@@ -83,3 +83,10 @@ YOU.
 I'M not the loveliest garden
 : Or would catch a story for they must be quite surprised at the list of
 
+
+## Wikilinks load test
+
+[[censored ulmus parvifolia]]
+[[leaded beater]]
+[[laureate sedulity]]
+[[euphonic snow line]]

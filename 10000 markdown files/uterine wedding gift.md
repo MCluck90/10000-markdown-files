@@ -84,3 +84,9 @@ He looked very confusing thing sobbed
 Sixteenth added It wasn't a
 : Give your walk.
 
+
+## Wikilinks load test
+
+[[epithelial carditis]]
+[[tiger-striped task]]
+[[hip to motoring]]

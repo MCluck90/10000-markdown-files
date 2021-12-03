@@ -73,3 +73,8 @@ CHORUS.
 Consider my limbs very humble
 : on between them all mad here O Mouse with passion and not a soothing tone exactly one
 
+
+## Wikilinks load test
+
+[[blindfolded calluna]]
+[[pusillanimous carbohydrate]]

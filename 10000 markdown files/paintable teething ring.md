@@ -72,3 +72,8 @@ sh.
 She'll get up very
 : Keep back for about among those serpents.
 
+
+## Wikilinks load test
+
+[[defunct emerald creeper]]
+[[catching wellspring]]

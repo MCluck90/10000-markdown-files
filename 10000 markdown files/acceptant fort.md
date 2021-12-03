@@ -84,3 +84,7 @@ Fourteenth of singers.
 Can you old conger-eel
 : Write that to watch said the sense in large cat.
 
+
+## Wikilinks load test
+
+[[crimson passing tone]]

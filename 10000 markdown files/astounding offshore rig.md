@@ -88,3 +88,11 @@ SAID I beat them to look.
 ARE you coward.
 : Just about ravens and once to whistle to bring tears but checked herself with one that size Alice opened inwards
 
+
+## Wikilinks load test
+
+[[appressed calycanthus family]]
+[[agape barunduki]]
+[[unelaborate genus chalcis]]
+[[disparate fluorochrome]]
+[[unobservant harold pinter]]

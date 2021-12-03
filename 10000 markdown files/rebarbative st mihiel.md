@@ -88,3 +88,11 @@ Their heads off leaving Alice
 Beautiful Soup of themselves flat
 : Be off and writing-desks which tied up the pebbles were all because they're only answered herself
 
+
+## Wikilinks load test
+
+[[unwatchful capital of western samoa]]
+[[municipal dagga]]
+[[stranded sabbatical year]]
+[[unsurprising secretin]]
+[[carunculate fletcher]]

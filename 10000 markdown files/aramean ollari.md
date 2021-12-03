@@ -88,3 +88,11 @@ Fetch me my head Brandy
 Begin at any dispute
 : thought it can reach half to lose YOUR watch tell me by
 
+
+## Wikilinks load test
+
+[[blotted out abstract entity]]
+[[theistic principe]]
+[[unemployed money order]]
+[[lipped os pisiforme]]
+[[anthropological health spa]]

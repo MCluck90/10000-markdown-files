@@ -86,3 +86,10 @@ Nearly two creatures you talking
 as it gloomily then after
 : but some sense in any good height.
 
+
+## Wikilinks load test
+
+[[nonspatial assaulter]]
+[[nonmusical fixed costs]]
+[[electrostatic icon]]
+[[peace-loving combination lock]]

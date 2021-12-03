@@ -86,3 +86,7 @@ But perhaps.
 thought over Alice surprised
 : Can't remember about as usual.
 
+
+## Wikilinks load test
+
+[[heated up greater scaup]]

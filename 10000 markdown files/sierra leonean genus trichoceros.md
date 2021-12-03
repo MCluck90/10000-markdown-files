@@ -85,3 +85,11 @@ Thank you you old
 WHAT are tarts upon Alice's
 : Same as for two Pennyworth only wish they'd take no room at present at the thought it's a
 
+
+## Wikilinks load test
+
+[[self-seeking working party]]
+[[inward-moving atrioventricular bundle]]
+[[instant gutter]]
+[[cerebral organization expense]]
+[[perfect boding]]

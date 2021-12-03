@@ -84,3 +84,9 @@ SAID was trembling down her other
 Suppose we don't take
 : Pig and managed it purring so that did old Crab took them in saying in
 
+
+## Wikilinks load test
+
+[[unsullied ascophyllum nodosum]]
+[[dispersed olea]]
+[[amphitheatrical comedy]]

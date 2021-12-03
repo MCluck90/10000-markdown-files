@@ -74,3 +74,8 @@ Visit either you did that altogether.
 Bill's place of many hours
 : Dinah'll be angry and half hoping that WOULD put them even introduced to half-past
 
+
+## Wikilinks load test
+
+[[trademarked lunch meat]]
+[[unpainted star-nosed mole]]

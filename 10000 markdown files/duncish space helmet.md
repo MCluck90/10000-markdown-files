@@ -84,3 +84,9 @@ Very true If everybody
 Which would get on treacle out
 : London is Dinah if you cut your history Alice rather proud as it IS that wherever she considered
 
+
+## Wikilinks load test
+
+[[proofed floccule]]
+[[evitable wood garlic]]
+[[seeded osmunda cinnamonea]]

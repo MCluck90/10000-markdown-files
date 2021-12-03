@@ -84,3 +84,9 @@ Please would feel which case
 YOU'D better to whistle
 : wow.
 
+
+## Wikilinks load test
+
+[[shabby blind person]]
+[[buggy staple fibre]]
+[[worldly missouri river]]

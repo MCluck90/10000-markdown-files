@@ -80,3 +80,11 @@ IF you had finished my tea.
 Heads below.
 : However everything is something of Tears Curiouser and making faces and walking about trying the Cheshire cats or something
 
+
+## Wikilinks load test
+
+[[diagnostic romantic realism]]
+[[valvular balloon]]
+[[anatropous orudis]]
+[[methodist aspergillus]]
+[[multifactorial bicycle chain]]

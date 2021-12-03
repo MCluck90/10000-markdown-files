@@ -82,3 +82,7 @@ Last came first verdict he checked
 While the blades of
 : Our family always growing near here.
 
+
+## Wikilinks load test
+
+[[ongoing power meter]]

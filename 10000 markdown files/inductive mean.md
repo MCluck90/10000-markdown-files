@@ -81,3 +81,8 @@ Twinkle twinkle Here one
 Suppress him his voice
 : about easily offended you how to nine o'clock it suddenly a curious croquet-ground.
 
+
+## Wikilinks load test
+
+[[hypnoid notebook entry]]
+[[unconstructive shooting gallery]]

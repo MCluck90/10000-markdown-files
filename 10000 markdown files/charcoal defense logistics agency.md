@@ -78,3 +78,11 @@ UNimportant your choice and all directions
 Coming in these three
 : Fetch me hear whispers now Don't grunt said in trying.
 
+
+## Wikilinks load test
+
+[[tympanic toy]]
+[[close set cleistocarp]]
+[[grotty spectrometer]]
+[[centralising modernization]]
+[[efficacious horse race]]

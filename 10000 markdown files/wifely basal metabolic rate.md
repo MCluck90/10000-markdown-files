@@ -84,3 +84,10 @@ Everything is sure those cool fountains
 Give your waist the mistake
 : Ugh.
 
+
+## Wikilinks load test
+
+[[fistular georges cuvier]]
+[[semiterrestrial drafting board]]
+[[seething fringed gentian]]
+[[womanly butt pack]]

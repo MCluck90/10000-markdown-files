@@ -74,3 +74,8 @@ Run home the arch I've
 Pat what's that wherever you
 : Found WHAT.
 
+
+## Wikilinks load test
+
+[[greyish-black judicial writ]]
+[[telescopic avionics]]

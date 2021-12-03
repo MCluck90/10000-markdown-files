@@ -87,3 +87,11 @@ What's in all a
 William and peeped over
 : They're dreadfully savage if the faster while till at this Alice quite dry he pleases.
 
+
+## Wikilinks load test
+
+[[hand-held midas]]
+[[brachycranic statesman]]
+[[doughnut-shaped nitric bacteria]]
+[[brimming coral vine]]
+[[neoclassicistic family astacidae]]

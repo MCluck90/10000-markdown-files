@@ -79,3 +79,8 @@ You'll get dry leaves that
 What's in reply it
 : Nearly two guinea-pigs cheered.
 
+
+## Wikilinks load test
+
+[[double-bedded passing shot]]
+[[wrinkleproof sir robert walpole]]

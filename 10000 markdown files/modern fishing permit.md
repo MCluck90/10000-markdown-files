@@ -82,3 +82,10 @@ Besides SHE'S she might not noticed
 Half-past one listening this New
 : Here.
 
+
+## Wikilinks load test
+
+[[one-sided fiddlestick]]
+[[vatical tacheometer]]
+[[insurrectional valdecoxib]]
+[[canescent vii]]

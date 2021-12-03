@@ -83,3 +83,7 @@ CHORUS.
 Soo oop of court without
 : Soo oop.
 
+
+## Wikilinks load test
+
+[[adventuresome lifesaving]]

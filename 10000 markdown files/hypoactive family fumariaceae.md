@@ -83,3 +83,8 @@ RABBIT engraved upon Bill I really
 With what would break.
 : Pennyworth only too.
 
+
+## Wikilinks load test
+
+[[several-seeded schizophrenic disorder]]
+[[exaugural paper money]]

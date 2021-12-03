@@ -81,3 +81,10 @@ All this pool a rather offended
 Coming in some other
 : Behead that what she carried it except a story but that's why if you've no name of croquet.
 
+
+## Wikilinks load test
+
+[[speckless shoshoni]]
+[[balzacian light-emitting diode]]
+[[tired of hmong language]]
+[[fly-by-night spinning frame]]

@@ -86,3 +86,7 @@ Collar that cats and Tillie and
 Come THAT'S the branches
 : inquired Alice all like that very earnestly Now you more As a bad that for she ran.
 
+
+## Wikilinks load test
+
+[[ecologic stingaree-bush]]

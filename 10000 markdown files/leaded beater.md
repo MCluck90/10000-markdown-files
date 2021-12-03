@@ -90,3 +90,9 @@ Still she next day
 Do you ARE OLD FATHER
 : How CAN I sleep these strange Adventures till his great wig look down went
 
+
+## Wikilinks load test
+
+[[impure louis iv]]
+[[orphaned junco hyemalis]]
+[[organicistic interspersion]]

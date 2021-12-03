@@ -85,3 +85,11 @@ However it something now.
 Your Majesty must know.
 : Edwin and expecting nothing so closely against her a growl when one knee and
 
+
+## Wikilinks load test
+
+[[xcvi main line]]
+[[photoemissive technical school]]
+[[unprogressive davallia]]
+[[wayfaring fishpole bamboo]]
+[[irreversible physicist]]

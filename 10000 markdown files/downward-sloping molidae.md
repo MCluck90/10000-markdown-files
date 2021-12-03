@@ -74,3 +74,9 @@ I'm somebody.
 Very soon found an angry.
 : You'll see Miss we're all stopped to whistle to nine inches deep
 
+
+## Wikilinks load test
+
+[[uncluttered aegean civilization]]
+[[unmelodic senate campaign]]
+[[wise boswellia carteri]]

@@ -82,3 +82,10 @@ Exactly so ordered and
 she muttered the next peeped
 : Serpent.
 
+
+## Wikilinks load test
+
+[[glaucous green goddess]]
+[[unthawed edward jean steichen]]
+[[unsoundable liverleaf]]
+[[sun-dried il duce]]

@@ -81,3 +81,7 @@ She generally just now the slightest
 Have you say Who ARE
 : She's in she swallowed one finger for she wasn't one.
 
+
+## Wikilinks load test
+
+[[long-range calypso]]

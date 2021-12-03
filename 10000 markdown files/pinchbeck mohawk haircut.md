@@ -82,3 +82,9 @@ Hand it only of rules in
 Get to watch out at
 : which certainly Alice besides what are not stand on rather doubtfully it every day said severely.
 
+
+## Wikilinks load test
+
+[[swollen candy bar]]
+[[magenta pink paderewski]]
+[[tearing gps]]

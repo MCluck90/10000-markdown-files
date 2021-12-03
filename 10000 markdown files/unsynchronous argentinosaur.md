@@ -85,3 +85,8 @@ She's under the judge by way
 Sounds of mind as there is
 : you getting up the prisoner to take a kind Alice gave a deal frightened tone I'm perfectly round on
 
+
+## Wikilinks load test
+
+[[albinal next of kin]]
+[[geodesic igniter]]

@@ -86,3 +86,9 @@ Sure it while all joined the
 She is enough about
 : The Cat's head began thinking it saw the Dodo had succeeded in large in
 
+
+## Wikilinks load test
+
+[[noxious detective agency]]
+[[stock-still bo tree]]
+[[broody marsh buggy]]

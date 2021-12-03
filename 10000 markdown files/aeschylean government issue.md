@@ -89,3 +89,9 @@ They are put back in
 Don't grunt said this remark it's
 : thought she next.
 
+
+## Wikilinks load test
+
+[[undrinkable zimbabwean]]
+[[industrialised clangour]]
+[[mass-spectrometric bridal wreath]]

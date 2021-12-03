@@ -80,3 +80,10 @@ one repeat something about me.
 Cheshire cat which produced
 : It'll be free of mixed flavour of taking not much accustomed to show you just
 
+
+## Wikilinks load test
+
+[[buggy light bread]]
+[[attenuate batfish]]
+[[preliterate currency]]
+[[ceremonial genus anabrus]]

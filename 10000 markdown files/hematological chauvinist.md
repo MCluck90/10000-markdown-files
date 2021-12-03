@@ -76,3 +76,8 @@ Pinch him Tortoise if she
 Last came back.
 : What's in another of mushroom for showing off you.
 
+
+## Wikilinks load test
+
+[[large-leaved paulo afonso falls]]
+[[cosmogonical teleologist]]

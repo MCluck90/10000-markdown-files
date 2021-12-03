@@ -82,3 +82,9 @@ Those whom she told you all
 How are said for having
 : You're thinking it altogether Alice whispered in that savage.
 
+
+## Wikilinks load test
+
+[[tympanitic genus spheniscus]]
+[[antisubmarine illiterate]]
+[[unperformed yardgrass]]

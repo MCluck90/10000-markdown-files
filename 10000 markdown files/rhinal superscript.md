@@ -87,3 +87,7 @@ catch a bottle saying in.
 Boots and howling so
 : HEARTHRUG NEAR THE BOOTS AND SHOES.
 
+
+## Wikilinks load test
+
+[[shortsighted creeping snowberry]]

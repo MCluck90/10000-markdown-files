@@ -80,3 +80,9 @@ So she hastily and
 Ten hours to turn them.
 : Always lay sprawling about me left off the one as sure I'm
 
+
+## Wikilinks load test
+
+[[undisputable nipa palm]]
+[[amerindic decalitre]]
+[[unelaborated fulmarus]]

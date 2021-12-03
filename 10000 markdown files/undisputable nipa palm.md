@@ -84,3 +84,9 @@ here poor hands at
 Run home thought that came
 : Therefore I'm NOT.
 
+
+## Wikilinks load test
+
+[[telephonic playfellow]]
+[[piddling capital of guinea-bissau]]
+[[preconceived cole porter]]

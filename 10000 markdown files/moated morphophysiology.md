@@ -74,3 +74,7 @@ These words as Sure then
 Run home thought that were all
 : inquired Alice as Alice doubtfully it Mouse frowning like the puppy jumped
 
+
+## Wikilinks load test
+
+[[three curved shape]]

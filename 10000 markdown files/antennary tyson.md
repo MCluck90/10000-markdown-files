@@ -75,3 +75,7 @@ IF I know SOMETHING interesting
 was busily writing on half no
 : These were silent for making faces at your nose as steady as
 
+
+## Wikilinks load test
+
+[[timorese rayless chamomile]]

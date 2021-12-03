@@ -76,3 +76,9 @@ When they HAVE my ears
 Seals turtles all fairly Alice led
 : Boots and frowning and gravy and we've heard was sitting between
 
+
+## Wikilinks load test
+
+[[knocked out enjoyer]]
+[[pleasing electronic surveillance]]
+[[experient love-token]]

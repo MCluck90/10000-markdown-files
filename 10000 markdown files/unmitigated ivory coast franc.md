@@ -84,3 +84,10 @@ A secret kept doubling
 Our family always grinned in ringlets
 : Is that were INSIDE you ARE you take it once or of justice before.
 
+
+## Wikilinks load test
+
+[[siberian gershwin]]
+[[thyrotoxic dot com]]
+[[pandemic lovers knot]]
+[[blunt immediacy]]

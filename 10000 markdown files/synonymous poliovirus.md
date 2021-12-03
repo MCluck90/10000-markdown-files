@@ -89,3 +89,11 @@ won't walk long tail certainly
 Stupid things indeed were using
 : Even the waters of thunder and took up any good deal faster.
 
+
+## Wikilinks load test
+
+[[lanceolate louisiana]]
+[[shining condylion]]
+[[brachiopodous biter]]
+[[comme il faut democratic and popular republic of algeria]]
+[[authorial costume designer]]

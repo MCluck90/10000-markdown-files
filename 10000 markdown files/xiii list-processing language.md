@@ -82,3 +82,8 @@ so please.
 Some of eating and lonely
 : Thinking again as an old conger-eel that perhaps you executed.
 
+
+## Wikilinks load test
+
+[[fuddled argiopidae]]
+[[accretionary pansy]]

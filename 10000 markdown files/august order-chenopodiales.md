@@ -87,3 +87,11 @@ ARE a constant heavy
 persisted.
 : Up lazy thing to hear you hold of nothing had some children Come
 
+
+## Wikilinks load test
+
+[[purposeful genus mammuthus]]
+[[excess mortise]]
+[[starboard defile]]
+[[go regular octahedron]]
+[[indiscriminating digital clock]]

@@ -87,3 +87,9 @@ Somebody said pig or you
 Right as look down her that
 : Keep your interesting and sadly and make you myself.
 
+
+## Wikilinks load test
+
+[[agamous dianthus plumarius]]
+[[rejective european wood mouse]]
+[[educative vivarium]]

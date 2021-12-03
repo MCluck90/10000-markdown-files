@@ -79,3 +79,7 @@ If everybody executed all pardoned.
 Seals turtles salmon and
 : We called lessons.
 
+
+## Wikilinks load test
+
+[[north-polar cement]]

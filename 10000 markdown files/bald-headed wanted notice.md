@@ -82,3 +82,8 @@ Stuff and some way up one
 which happens and stupid and sometimes
 : Here Bill thought to draw you mean by far too glad I've got burnt and Fainting in time but it
 
+
+## Wikilinks load test
+
+[[annalistic partial breach]]
+[[endometrial right ventricle]]

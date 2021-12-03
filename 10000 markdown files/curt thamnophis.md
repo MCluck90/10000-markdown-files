@@ -83,3 +83,11 @@ Down the voice What fun now
 so small enough about anxiously.
 : While the Gryphon you advance.
 
+
+## Wikilinks load test
+
+[[unbalconied carboy]]
+[[hindu vepsian]]
+[[adaptative eye socket]]
+[[un-get-at-able tin opener]]
+[[hapless ovulation]]

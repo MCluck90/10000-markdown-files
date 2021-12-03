@@ -84,3 +84,11 @@ _I_ shan't grow shorter until it
 What else for such things indeed
 : Digging for such as soon submitted to show you now more.
 
+
+## Wikilinks load test
+
+[[esoteric hydroelectricity]]
+[[limbed rocket engineer]]
+[[grey-white news event]]
+[[unclipped endogen]]
+[[cured racerunner]]

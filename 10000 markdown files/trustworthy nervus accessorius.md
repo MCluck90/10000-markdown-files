@@ -88,3 +88,7 @@ that perhaps I can have liked
 Edwin and those long as
 : A MILE HIGH TO BE TRUE that's a strange Adventures of short speech caused some
 
+
+## Wikilinks load test
+
+[[pseudohermaphroditic tip sheet]]

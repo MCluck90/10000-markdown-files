@@ -85,3 +85,10 @@ Alice when I'm on then said
 Always lay on yawning.
 : wow.
 
+
+## Wikilinks load test
+
+[[ready and waiting valvulotomy]]
+[[blowsy kaffir corn]]
+[[centralistic valkyrie]]
+[[motherlike hook wrench]]

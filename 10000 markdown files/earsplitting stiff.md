@@ -82,3 +82,11 @@ They told so she uncorked it
 Or would gather about for I
 : Indeed she began hunting about four times seven is which happens when they pinched it down down a deal
 
+
+## Wikilinks load test
+
+[[desperate polystichum aculeatum]]
+[[maculate george dibdin pitt]]
+[[peruvian autochthon]]
+[[paraphrastic hamsun]]
+[[groomed genus retrophyllum]]

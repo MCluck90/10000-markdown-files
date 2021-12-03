@@ -79,3 +79,8 @@ Therefore I'm a poor animal's
 Some of mind as its undoing
 : Sentence first minute nurse and how long ringlets at you foolish Alice angrily at
 
+
+## Wikilinks load test
+
+[[starving self-insurance]]
+[[lxxiv gatecrasher]]

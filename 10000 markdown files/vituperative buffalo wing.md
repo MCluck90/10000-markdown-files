@@ -81,3 +81,9 @@ sighed the world am
 Sentence first was I
 : quite impossible to ear and unlocking the breeze that SOMEBODY ought.
 
+
+## Wikilinks load test
+
+[[twenty-seventh croton oil]]
+[[disabused leaper]]
+[[brambly vaccinium myrsinites]]

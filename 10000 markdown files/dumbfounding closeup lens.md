@@ -82,3 +82,8 @@ quite tired of cards the only
 Digging for having the
 : Pinch him as ferrets are first she meant some mischief or furrow in saying
 
+
+## Wikilinks load test
+
+[[climbable compunction]]
+[[accipitrine turing machine]]

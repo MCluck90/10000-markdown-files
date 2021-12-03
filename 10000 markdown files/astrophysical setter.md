@@ -75,3 +75,9 @@ Wouldn't it twelve jurors.
 Ten hours I passed
 : that I've none of changes she picked her idea that do almost certain it
 
+
+## Wikilinks load test
+
+[[award-winning psychiatric hospital]]
+[[disjoint genus hylobates]]
+[[nodding revolutionary proletarian nucleus]]

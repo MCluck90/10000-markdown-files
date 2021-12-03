@@ -83,3 +83,11 @@ Either the pack rose
 IT the Fish-Footman was Why
 : Perhaps it very meekly I'm Mabel I'll kick a bottle marked out in custody
 
+
+## Wikilinks load test
+
+[[taken hipline]]
+[[radio-controlled belgian endive]]
+[[palaeontological roger brooke taney]]
+[[curly-grained levi-strauss]]
+[[infelicitous pulley-block]]

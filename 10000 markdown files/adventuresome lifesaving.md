@@ -82,3 +82,8 @@ Five and reduced the Tarts.
 At last resource she still
 : Alas.
 
+
+## Wikilinks load test
+
+[[ulcerative stockbroker]]
+[[nude crestless wave]]

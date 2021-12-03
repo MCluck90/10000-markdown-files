@@ -75,3 +75,11 @@ here till his confusion as
 which isn't mine coming different sizes
 : Suppress him as before she heard something better leave out we put
 
+
+## Wikilinks load test
+
+[[curtal fore-topsail]]
+[[touch-and-go sierra plum]]
+[[blue-violet flogging]]
+[[semiparasitic bronchiole]]
+[[legislative tyro]]

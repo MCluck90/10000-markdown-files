@@ -86,3 +86,11 @@ Soup does yer honour
 First she concluded that all
 : Which brought it home the cake.
 
+
+## Wikilinks load test
+
+[[jawless hypoadrenocorticism]]
+[[hatted metronome]]
+[[euphoriant heliolatry]]
+[[compendious central processing unit]]
+[[inspired stoup]]

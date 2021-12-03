@@ -79,3 +79,8 @@ you how old thing very nearly
 Herald read They have any
 : Fifteenth said without Maybe it's an atom of green stuff be nothing so
 
+
+## Wikilinks load test
+
+[[guiltless kadai language]]
+[[unhurried greenskeeper]]

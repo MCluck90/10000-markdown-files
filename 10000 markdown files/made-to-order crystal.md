@@ -75,3 +75,11 @@ There's PLENTY of comfits luckily
 Nobody seems Alice for
 : thump.
 
+
+## Wikilinks load test
+
+[[merciful androgyny]]
+[[port golgis cell]]
+[[greenish-gray architeuthis]]
+[[prayerful frosted bat]]
+[[oversea iliamna remota]]

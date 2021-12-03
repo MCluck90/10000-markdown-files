@@ -88,3 +88,7 @@ With gently smiling at them
 All this young man
 : that stuff.
 
+
+## Wikilinks load test
+
+[[lucky art nouveau]]

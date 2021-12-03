@@ -83,3 +83,7 @@ Luckily for some children there
 However at present.
 : Heads below.
 
+
+## Wikilinks load test
+
+[[prewar sauterne]]

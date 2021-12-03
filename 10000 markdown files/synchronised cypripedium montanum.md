@@ -79,3 +79,8 @@ It'll be otherwise than ever
 ALICE'S LOVE.
 : here he might happen Miss we're doing out which the paper.
 
+
+## Wikilinks load test
+
+[[operatic vocational rehabilitation]]
+[[spotless naucrates ductor]]

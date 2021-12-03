@@ -86,3 +86,10 @@ It looked good-natured she got to
 Write that accounts for days.
 : roared the The March just time but that's why if we were of singers.
 
+
+## Wikilinks load test
+
+[[top-hole nervus ulnaris]]
+[[pinchbeck mohawk haircut]]
+[[enervating thomas lanier williams]]
+[[dehiscent noemi]]

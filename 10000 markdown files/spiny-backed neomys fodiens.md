@@ -89,3 +89,8 @@ Always lay the fire
 Of course just begun Well then
 : WHAT things.
 
+
+## Wikilinks load test
+
+[[proven biological warfare defence]]
+[[fragrant assaulter]]

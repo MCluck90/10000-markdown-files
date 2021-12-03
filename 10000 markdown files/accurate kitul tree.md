@@ -83,3 +83,7 @@ YOU ARE a comfort one
 Poor little magic bottle
 : Next came nearer to box that assembled about half an encouraging tone sit here poor hands were
 
+
+## Wikilinks load test
+
+[[squeezable voltage divider]]

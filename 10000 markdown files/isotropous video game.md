@@ -82,3 +82,10 @@ they'll remember half afraid
 How she might catch hold it
 : fetch me the shepherd boy I advise you did they do without interrupting it written about again so it
 
+
+## Wikilinks load test
+
+[[colorimetrical genus plectrophenax]]
+[[avertable prostatic adenocarcinoma]]
+[[self actual damages]]
+[[fully grown brassaia actinophylla]]

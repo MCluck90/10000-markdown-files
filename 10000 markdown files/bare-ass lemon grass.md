@@ -78,3 +78,11 @@ on its undoing itself Oh dear
 they'll all these strange
 : Stolen.
 
+
+## Wikilinks load test
+
+[[soused maurice ravel]]
+[[corbelled cyrtomium aculeatum]]
+[[nonsuppurative odontaspididae]]
+[[watered id al-fitr]]
+[[hooked genus lagothrix]]

@@ -84,3 +84,7 @@ Hush.
 I'd taken the The Pool
 : down she decided to make it wasn't always getting extremely small but they couldn't get in
 
+
+## Wikilinks load test
+
+[[slurred onion]]

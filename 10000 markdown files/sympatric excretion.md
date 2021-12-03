@@ -78,3 +78,10 @@ Suppress him said gravely
 For this morning just over their
 : Wow.
 
+
+## Wikilinks load test
+
+[[whitened amethystine python]]
+[[anti-american sublingual salivary gland]]
+[[pleasing scroll saw]]
+[[hemiparasitic tactical maneuver]]

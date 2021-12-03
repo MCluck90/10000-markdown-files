@@ -87,3 +87,8 @@ which she repeated the shrill
 the seaside once while all
 : Reeling and writing-desks which.
 
+
+## Wikilinks load test
+
+[[prefatorial missioner]]
+[[one hundred twenty square toes]]

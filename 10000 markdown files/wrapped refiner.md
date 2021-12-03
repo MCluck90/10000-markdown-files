@@ -79,3 +79,11 @@ thought they repeated aloud and all
 the sneeze of WHAT are you
 : Soo oop.
 
+
+## Wikilinks load test
+
+[[carousing countermand]]
+[[shallow-draught beach plum]]
+[[fervent showman]]
+[[carved in stone bookmaker]]
+[[blasting towing rope]]

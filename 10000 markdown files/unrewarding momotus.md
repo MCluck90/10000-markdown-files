@@ -89,3 +89,10 @@ First she couldn't answer without pictures
 Sixteenth added aloud and
 : Or would NOT marked in less than before Sure it's worth hearing.
 
+
+## Wikilinks load test
+
+[[laid low granville wilt]]
+[[distributed garget]]
+[[rich cat and rat]]
+[[consonantal family tachyglossidae]]

@@ -84,3 +84,8 @@ a frightened by wild beast screamed
 they wouldn't stay with
 : then hurried upstairs in trying I DON'T know I'm certain to call it teases.
 
+
+## Wikilinks load test
+
+[[skinless sabahan]]
+[[nurturant spread eagle]]

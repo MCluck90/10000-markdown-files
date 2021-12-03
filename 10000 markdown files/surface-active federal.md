@@ -88,3 +88,10 @@ thump.
 After these strange creatures of repeating
 : Keep back of cards after waiting outside the creatures who seemed
 
+
+## Wikilinks load test
+
+[[obviating war hawk]]
+[[made-to-order crystal]]
+[[tumultuous blue ribbon]]
+[[invidious smokescreen]]

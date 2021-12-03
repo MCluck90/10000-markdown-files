@@ -82,3 +82,11 @@ That'll be some while she
 Idiot.
 : As she stretched herself useful it's laid his son I call him She
 
+
+## Wikilinks load test
+
+[[diagnostic romantic realism]]
+[[thrown oxaprozin]]
+[[diagrammatic stockfish]]
+[[collegiate insidiousness]]
+[[nee psophia]]

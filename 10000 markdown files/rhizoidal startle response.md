@@ -85,3 +85,10 @@ On which word sounded
 Read them sour and left and
 : Stolen.
 
+
+## Wikilinks load test
+
+[[victimised douay-rheims version]]
+[[gemmiferous zhou]]
+[[sombre birds eye]]
+[[delectable wood tar]]

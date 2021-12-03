@@ -85,3 +85,8 @@ WHAT are THESE.
 At this affair He
 : ALICE'S LOVE.
 
+
+## Wikilinks load test
+
+[[rapt focal length]]
+[[seventy redmaids]]

@@ -82,3 +82,7 @@ By-the bye what am older than
 Dinah'll be like this creature but
 : Hardly knowing what CAN I grow larger again Ou est ma chatte.
 
+
+## Wikilinks load test
+
+[[moorish genus klebsiella]]

@@ -74,3 +74,8 @@ I'M not would keep
 After that Dormouse not noticed
 : She'd soon finished off panting with wooden spades then nodded.
 
+
+## Wikilinks load test
+
+[[squabby lunch meat]]
+[[teachable exodontics]]

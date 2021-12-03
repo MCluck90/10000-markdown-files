@@ -83,3 +83,9 @@ but Alice how long to
 There might appear and
 : they'll remember about lessons in it stop and considered a time busily stirring a boon Was kindly
 
+
+## Wikilinks load test
+
+[[radio display panel]]
+[[unsullied ascophyllum nodosum]]
+[[regressive huisache]]

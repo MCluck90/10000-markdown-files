@@ -77,3 +77,10 @@ Cheshire Cat.
 Mind now thought there must be
 : Explain all what.
 
+
+## Wikilinks load test
+
+[[hurried calochortus macrocarpus]]
+[[miry north korea]]
+[[depicted genus priacanthus]]
+[[curtal obligate anaerobe]]

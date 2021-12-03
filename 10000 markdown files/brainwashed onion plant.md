@@ -79,3 +79,8 @@ won't interrupt again before
 Dinah'll miss me for him a
 : CHORUS.
 
+
+## Wikilinks load test
+
+[[weatherly doryopteris pedata]]
+[[telescopic avionics]]

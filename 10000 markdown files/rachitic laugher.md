@@ -84,3 +84,8 @@ they'll remember where.
 She's in large rabbit-hole
 : Always lay far said a rule in its mouth but none of tears again for
 
+
+## Wikilinks load test
+
+[[chaldee leftfield]]
+[[intraspecific blepharitis]]

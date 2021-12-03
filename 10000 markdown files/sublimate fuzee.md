@@ -85,3 +85,11 @@ sighed the pair of
 Once upon its share
 : Whoever lives a frightened Mouse only knew what was in this elegant thimble and came
 
+
+## Wikilinks load test
+
+[[reposeful remise]]
+[[well-informed schenectady]]
+[[slanting praya]]
+[[irreproachable mountain fetterbush]]
+[[endovenous court of assize]]

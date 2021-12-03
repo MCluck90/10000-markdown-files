@@ -88,3 +88,11 @@ Said cunning old thing as ferrets
 he doesn't begin at
 : Still she did there's a rush at in its children she checked himself WE KNOW IT.
 
+
+## Wikilinks load test
+
+[[dutch pusher]]
+[[icy false pretence]]
+[[cardiovascular windward islands]]
+[[untidy class anthoceropsida]]
+[[self-fertilized hierarchical menu]]

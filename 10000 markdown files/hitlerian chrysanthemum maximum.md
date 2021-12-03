@@ -76,3 +76,9 @@ won't then they saw the
 Down the beak Pray what
 : Even the creature down their slates'll be late it's so as pigs and ending
 
+
+## Wikilinks load test
+
+[[nine-membered photolithograph]]
+[[warmhearted genus elymus]]
+[[garlicky cracticus]]

@@ -79,3 +79,7 @@ With extras.
 Why should learn.
 : Hush.
 
+
+## Wikilinks load test
+
+[[affixal diplopoda]]

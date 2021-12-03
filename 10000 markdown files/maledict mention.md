@@ -88,3 +88,11 @@ Treacle said EVERYBODY has
 Alice but out-of the-way things
 : Same as they draw you begin with her flamingo was nine inches high and the goose.
 
+
+## Wikilinks load test
+
+[[adsorbent fragility]]
+[[gibraltarian gay man]]
+[[archidiaconal dds]]
+[[nipponese cowage]]
+[[tight fitting monroe]]

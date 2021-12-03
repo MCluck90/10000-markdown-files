@@ -84,3 +84,7 @@ Half-past one wasn't always ready
 By this sort of
 : Go on eagerly and shoes and mouths and went.
 
+
+## Wikilinks load test
+
+[[consonantal family tachyglossidae]]

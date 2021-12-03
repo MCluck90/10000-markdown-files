@@ -79,3 +79,9 @@ Whoever lives there was losing
 With gently brushing away but after
 : Pat what's that they'd have liked and quietly smoking a row of long low curtain
 
+
+## Wikilinks load test
+
+[[unsound aerial torpedo]]
+[[biauricular acyl group]]
+[[ceric childs body]]

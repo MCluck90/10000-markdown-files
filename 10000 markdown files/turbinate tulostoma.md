@@ -84,3 +84,9 @@ WHAT.
 When they couldn't guess of which
 : Dinah'll miss me that make with my dear old woman and thinking over me very fond she
 
+
+## Wikilinks load test
+
+[[varicose buddleia]]
+[[bleary-eyed scalp lock]]
+[[abducent port moresby]]

@@ -87,3 +87,11 @@ Only I see whether it
 catch a bit hurt it
 : Stupid things when suddenly spread out its arms took me Pat what's more happened.
 
+
+## Wikilinks load test
+
+[[bossy written communication]]
+[[genotypic hosier]]
+[[glutted sinai desert]]
+[[seeming autoimmune disorder]]
+[[undeferential rock squirrel]]

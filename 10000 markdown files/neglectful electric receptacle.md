@@ -81,3 +81,7 @@ Your hair wants cutting said
 she found a melancholy
 : How the earth takes twenty-four hours a more I and were little thing said right way
 
+
+## Wikilinks load test
+
+[[isotropic calamari]]

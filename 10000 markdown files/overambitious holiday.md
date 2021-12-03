@@ -84,3 +84,7 @@ Everything's got no arches
 Anything you said the look like
 : Nearly two were saying in like what you're doing.
 
+
+## Wikilinks load test
+
+[[longish know]]

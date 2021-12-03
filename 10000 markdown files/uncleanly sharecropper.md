@@ -83,3 +83,10 @@ exclaimed turning to remark
 Fetch me hear him
 : Take care where.
 
+
+## Wikilinks load test
+
+[[reassuring dacryocystitis]]
+[[red-fruited con]]
+[[approved silkweed]]
+[[vigorous instruction]]

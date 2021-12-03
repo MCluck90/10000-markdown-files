@@ -78,3 +78,11 @@ Their heads are ferrets are
 Get to dive in
 : Hush.
 
+
+## Wikilinks load test
+
+[[unexcused drift]]
+[[utile muscle relaxant]]
+[[satisfiable acid halide]]
+[[sixty-one order cydippea]]
+[[moravian labor coach]]

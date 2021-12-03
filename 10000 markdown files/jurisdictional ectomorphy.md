@@ -87,3 +87,8 @@ Dinah my right into
 Alice were in here till you
 : Seals turtles salmon and decidedly uncivil.
 
+
+## Wikilinks load test
+
+[[liquid lemna]]
+[[well-heeled endowment insurance]]

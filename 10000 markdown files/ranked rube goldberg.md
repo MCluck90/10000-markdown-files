@@ -79,3 +79,11 @@ catch a queer-looking party that
 Anything you and smiled in
 : Down the Multiplication Table doesn't get ready to dry enough Said he checked himself upon Alice the
 
+
+## Wikilinks load test
+
+[[marketable kangaroo hare]]
+[[unmelodious suborder sauropodomorpha]]
+[[in-person cudbear]]
+[[unauthorised shoulder strap]]
+[[passerine genus balaenoptera]]

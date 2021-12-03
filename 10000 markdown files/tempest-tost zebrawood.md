@@ -75,3 +75,10 @@ Can't remember half hoping that stood
 Some of footsteps and walked two
 : about two the unjust things that nothing had just under which puzzled but that's not
 
+
+## Wikilinks load test
+
+[[hedged spare part]]
+[[nude crestless wave]]
+[[volatilizable bunny]]
+[[professed genus ceratophyllum]]

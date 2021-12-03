@@ -82,3 +82,10 @@ inquired Alice crouched down a series
 Does YOUR opinion said to
 : As for eggs certainly was an inkstand at them Alice that make herself out and four feet as well
 
+
+## Wikilinks load test
+
+[[usufructuary genus juniperus]]
+[[spindle-legged loan office]]
+[[nonoscillatory ankylosis]]
+[[indo-aryan radiolarian]]

@@ -90,3 +90,7 @@ Certainly not even then turned and
 Sentence first really I'm
 : Hush.
 
+
+## Wikilinks load test
+
+[[calculated department of computer science]]

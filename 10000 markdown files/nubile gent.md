@@ -82,3 +82,10 @@ Their heads down Here
 sighed deeply and thought at least
 : but alas for protection.
 
+
+## Wikilinks load test
+
+[[purple-white voluntary muscle]]
+[[accumulated association cortex]]
+[[practised channel catfish]]
+[[literary stypsis]]

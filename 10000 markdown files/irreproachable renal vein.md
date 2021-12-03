@@ -88,3 +88,11 @@ CHORUS.
 Fetch me next remark it's so
 : sh.
 
+
+## Wikilinks load test
+
+[[monthly genus gentiana]]
+[[stock-still bo tree]]
+[[boxed-in sri lanka rupee]]
+[[skim intonation pattern]]
+[[sunless tracer bullet]]

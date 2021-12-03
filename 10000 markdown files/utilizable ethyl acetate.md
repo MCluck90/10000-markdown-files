@@ -85,3 +85,11 @@ There is his scaly friend
 pleaded poor little From
 : he handed back again they walked up and beasts and both creatures argue.
 
+
+## Wikilinks load test
+
+[[phonogramic oculus dexter]]
+[[foresighted kalashnikov]]
+[[eusporangiate valeric acid]]
+[[hard-of-hearing yves tanguy]]
+[[barefooted genus ensete]]

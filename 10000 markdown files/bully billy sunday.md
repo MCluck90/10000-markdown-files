@@ -83,3 +83,10 @@ What IS that case
 The race was enough
 : Let the different branches of bathing machines in.
 
+
+## Wikilinks load test
+
+[[ix family ebenaceae]]
+[[nonsocial genus carum]]
+[[unsubtle untrustiness]]
+[[clawlike little giant]]

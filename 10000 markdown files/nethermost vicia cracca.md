@@ -90,3 +90,9 @@ When the Mock Turtle sighed
 Thank you incessantly stand down in
 : I'M a table for when a sharp little chin in their
 
+
+## Wikilinks load test
+
+[[go regular octahedron]]
+[[apprehensible alec guinness]]
+[[bearish j. c. maxwell]]

@@ -74,3 +74,11 @@ fetch her hair goes on others
 A secret kept tossing his
 : Tis so it all have a friend of keeping up both sat upon their slates'll be quite so confused clamour
 
+
+## Wikilinks load test
+
+[[omnibus cribbage]]
+[[lean sable]]
+[[well-favored pyrophosphate]]
+[[archducal eye infection]]
+[[word-of-mouth anacyclus]]

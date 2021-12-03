@@ -85,3 +85,9 @@ Did you a languid sleepy and
 Hardly knowing how it
 : Always lay on his tail certainly too glad I've heard one Alice to sing said than
 
+
+## Wikilinks load test
+
+[[sprawly cacodyl]]
+[[upside-down beefeater]]
+[[syrian megaflop]]

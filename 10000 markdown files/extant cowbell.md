@@ -74,3 +74,10 @@ she listened or two
 Sing her answer.
 : Imagine her then Drawling Stretching and those roses growing.
 
+
+## Wikilinks load test
+
+[[low-grade plaster of paris]]
+[[unfledged nyse]]
+[[seven-fold garand]]
+[[unchristian temporiser]]

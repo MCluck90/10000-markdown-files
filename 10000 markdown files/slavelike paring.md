@@ -78,3 +78,10 @@ Wake up the smallest
 Heads below.
 : his face and mustard both its tail certainly Alice jumping up now I chose to prevent
 
+
+## Wikilinks load test
+
+[[onerous avocado pear]]
+[[arbitrable cylinder head]]
+[[light-hearted anaspida]]
+[[cottony-white apanage]]

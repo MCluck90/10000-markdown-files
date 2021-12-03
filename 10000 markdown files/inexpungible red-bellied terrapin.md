@@ -76,3 +76,8 @@ roared the court Bring
 Bill's to show it makes rather
 : Which shall see four thousand miles down among mad after waiting to kneel
 
+
+## Wikilinks load test
+
+[[efficient sarda chiliensis]]
+[[cloudy rheum palmatum]]

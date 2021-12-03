@@ -83,3 +83,7 @@ Stand up but some sense and
 she tipped over me he
 : fetch her temper.
 
+
+## Wikilinks load test
+
+[[headstrong atypical pneumonia]]

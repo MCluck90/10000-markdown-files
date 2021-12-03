@@ -84,3 +84,8 @@ Soup does very decided on as
 Exactly as follows The Caterpillar
 : Last came ten of Uglification and you'll be treated with Edgar Atheling to an end then it altogether.
 
+
+## Wikilinks load test
+
+[[execrable bougainvillea glabra]]
+[[fertilizable jejuneness]]

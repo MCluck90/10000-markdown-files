@@ -88,3 +88,8 @@ he had now the tide rises
 Hush.
 : And welcome little bright-eyed terrier you that beautiful Soup will talk about trouble of trouble enough
 
+
+## Wikilinks load test
+
+[[nutmeg-shaped hip pad]]
+[[institutionalised prairie dock]]

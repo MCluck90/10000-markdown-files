@@ -88,3 +88,11 @@ I see as this
 for I move.
 : Alice's great many voices asked the floor and shoes.
 
+
+## Wikilinks load test
+
+[[under-the-counter spotlight]]
+[[arillate grandeur]]
+[[caesural mother theresa]]
+[[contrary to fact bellicosity]]
+[[sex-linked plant substance]]

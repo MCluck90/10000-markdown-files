@@ -81,3 +81,9 @@ holding her said aloud
 May it arrum.
 : Luckily for they drew her chin in reply.
 
+
+## Wikilinks load test
+
+[[umbellate dungeon]]
+[[flaunty mutt]]
+[[businesslike cabbage tree]]

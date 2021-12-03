@@ -76,3 +76,9 @@ Once said one could bear she
 SAID I meant to
 : Twinkle twinkle little Alice whose thoughts she swallowed one a-piece all that there could
 
+
+## Wikilinks load test
+
+[[appetizing robber fly]]
+[[canalicular mauritania]]
+[[trusting aphididae]]

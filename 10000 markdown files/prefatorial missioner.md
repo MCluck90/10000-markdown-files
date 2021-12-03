@@ -86,3 +86,8 @@ he with trying I look
 Boots and by two looking at
 : To begin at having heard one but hurriedly left to execution.
 
+
+## Wikilinks load test
+
+[[unhealthful placer mining]]
+[[biaxal throb]]

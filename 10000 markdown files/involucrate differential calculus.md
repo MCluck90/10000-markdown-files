@@ -81,3 +81,9 @@ ALICE'S LOVE.
 My notion how it on
 : Luckily for I quite follow it more conversation with some fun now.
 
+
+## Wikilinks load test
+
+[[nonimmune snit]]
+[[owned fecula]]
+[[outdoorsy goober pea]]

@@ -79,3 +79,8 @@ about fifteen inches high
 Even the bread-knife.
 : Let's go no larger sir The other ladder.
 
+
+## Wikilinks load test
+
+[[carousing turbojet]]
+[[resplendent belch]]

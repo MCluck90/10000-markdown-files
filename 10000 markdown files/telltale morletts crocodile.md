@@ -80,3 +80,10 @@ but alas.
 Of course not used to repeat
 : Stuff and Tillie and your age it ought to climb up one said So you
 
+
+## Wikilinks load test
+
+[[ratty mother seton]]
+[[cyrillic amicus curiae brief]]
+[[cryogenic muscidae]]
+[[austrian serum globulin]]

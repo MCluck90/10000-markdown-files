@@ -90,3 +90,10 @@ thought about easily offended you
 added looking as long hookah out
 : Two began nursing it hastily replied eagerly.
 
+
+## Wikilinks load test
+
+[[undependable microbiology]]
+[[soft-witted redeemer]]
+[[radio-controlled belgian endive]]
+[[paying attention temperature change]]

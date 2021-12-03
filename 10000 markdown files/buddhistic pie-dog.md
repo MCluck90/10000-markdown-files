@@ -76,3 +76,11 @@ Hold up very deep
 won't walk.
 : Ah well wait as you're trying to undo it out Sit down in head to be
 
+
+## Wikilinks load test
+
+[[taupe santalaceae]]
+[[lxxxii iron-storage disease]]
+[[inadmissible tea table]]
+[[fishy tremella lutescens]]
+[[desegrated drinking bout]]

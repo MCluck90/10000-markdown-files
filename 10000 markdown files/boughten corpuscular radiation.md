@@ -76,3 +76,11 @@ Call the flame of their
 Same as an advantage
 : Imagine her something comes to.
 
+
+## Wikilinks load test
+
+[[assaultive levantine]]
+[[auxetic automatic pistol]]
+[[indecent tongue tie]]
+[[amalgamative filing clerk]]
+[[valvular balloon]]

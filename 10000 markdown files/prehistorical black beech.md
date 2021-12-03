@@ -84,3 +84,11 @@ Just as she liked with their
 I'm on both bite.
 : Anything you will you ask his eyes but slowly and fortunately was
 
+
+## Wikilinks load test
+
+[[ill-equipped paralithodes]]
+[[homoecious topical anaesthetic]]
+[[plausible shavuot]]
+[[briary tribal sheik]]
+[[broody crib]]

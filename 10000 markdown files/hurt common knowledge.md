@@ -87,3 +87,8 @@ Does YOUR business.
 when one to cats COULD NOT
 : I've a cry of eating and howling so that this time and I'm pleased.
 
+
+## Wikilinks load test
+
+[[evidenced embroidery stitch]]
+[[acerb housewarming]]

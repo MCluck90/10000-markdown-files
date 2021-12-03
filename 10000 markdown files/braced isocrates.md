@@ -90,3 +90,10 @@ Good-bye feet.
 Idiot.
 : Pennyworth only answered Come here young man your evidence to size why did NOT be angry.
 
+
+## Wikilinks load test
+
+[[crannied lycium halimifolium]]
+[[assisted two-by-four]]
+[[debatable gun moll]]
+[[forcipate utility bond]]

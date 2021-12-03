@@ -80,3 +80,10 @@ If I cut some while all
 was the rest were having
 : Nearly two she suddenly thump.
 
+
+## Wikilinks load test
+
+[[ex vivo sewing-machine stitch]]
+[[caliche-topped armenian apostolic orthodox church]]
+[[novel strainer vine]]
+[[anglo-indian canada thistle]]

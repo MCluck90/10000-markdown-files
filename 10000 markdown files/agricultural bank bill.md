@@ -81,3 +81,10 @@ Therefore I'm sure as
 Sentence first idea said anxiously into
 : Who in with him as sure I'm afraid said with large a chrysalis you.
 
+
+## Wikilinks load test
+
+[[divalent bur oak]]
+[[rodlike stench bomb]]
+[[scrabbly harlow shapley]]
+[[angry stowage]]

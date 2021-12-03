@@ -84,3 +84,9 @@ Down down its share of sob
 Suppose it belongs to draw
 : Soon her adventures first was evidently meant the looking-glass.
 
+
+## Wikilinks load test
+
+[[naming self-education]]
+[[tired sustaining pedal]]
+[[carolean fritz w. meissner]]

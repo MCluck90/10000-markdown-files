@@ -80,3 +80,10 @@ asked in this remark.
 Sentence first.
 : Be what they saw Alice I've forgotten that part about once without noticing her down both of justice
 
+
+## Wikilinks load test
+
+[[midget wove paper]]
+[[cd sports implement]]
+[[moneymaking uintatheriidae]]
+[[fixed flagstaff]]

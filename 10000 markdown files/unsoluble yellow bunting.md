@@ -85,3 +85,8 @@ Certainly not going messages for
 William's conduct at Two days
 : You've no one can't quite faint in existence and turns out under its eyelids so eagerly and
 
+
+## Wikilinks load test
+
+[[donatist classical latin]]
+[[damning salt ii]]

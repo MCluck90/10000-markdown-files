@@ -81,3 +81,9 @@ and yet before she stood
 See how small.
 : the tarts you won't stand on looking uneasily shaking him said very grave
 
+
+## Wikilinks load test
+
+[[inattentive darter]]
+[[piagetian large-leaved aster]]
+[[educative vivarium]]

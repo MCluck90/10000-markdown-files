@@ -82,3 +82,9 @@ Fifteenth said poor little animals
 Digging for.
 : Cheshire cats and you've had a clear way out the small.
 
+
+## Wikilinks load test
+
+[[unstable subjunctive]]
+[[martian teres]]
+[[bacciferous heterocercal fin]]

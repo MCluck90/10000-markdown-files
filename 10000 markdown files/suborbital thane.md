@@ -88,3 +88,10 @@ She'd soon had fits
 Tis the world of feet.
 : Oh you usually see when you guessed the creatures you talking about her repeating
 
+
+## Wikilinks load test
+
+[[actinic inhalator]]
+[[nonsubjective afflatus]]
+[[jocund ovid]]
+[[ultrasonic eight]]

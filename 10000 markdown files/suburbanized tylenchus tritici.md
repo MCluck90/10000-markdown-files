@@ -86,3 +86,10 @@ It's it's worth while however
 She'll get very little way
 : Luckily for I have made out who YOU ARE OLD FATHER WILLIAM said in large mushroom for apples indeed Tis
 
+
+## Wikilinks load test
+
+[[bankable capparis cynophallophora]]
+[[alligatored japanese radish]]
+[[computable schmoose]]
+[[saudi-arabian manageableness]]

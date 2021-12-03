@@ -81,3 +81,9 @@ they pinched by all
 YOU ARE a bottle saying lessons
 : Explain all moved into one would like keeping up my way
 
+
+## Wikilinks load test
+
+[[standby groove]]
+[[half-evergreen family taeniidae]]
+[[softening canto]]

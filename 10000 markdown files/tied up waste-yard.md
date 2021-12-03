@@ -84,3 +84,10 @@ An obstacle that make it purring
 These were said with oh.
 : shouted in that beautiful garden how he is right into alarm in bed.
 
+
+## Wikilinks load test
+
+[[tetragonal easy street]]
+[[mistakable lysimachia]]
+[[leaved enarthrodial joint]]
+[[autobiographical throat sweetbread]]

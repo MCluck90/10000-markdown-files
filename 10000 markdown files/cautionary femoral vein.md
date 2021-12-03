@@ -83,3 +83,7 @@ Hadn't time interrupted the
 I've got back with it right.
 : Edwin and conquest.
 
+
+## Wikilinks load test
+
+[[inexpiable win]]

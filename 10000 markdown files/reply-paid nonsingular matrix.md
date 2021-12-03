@@ -72,3 +72,11 @@ they'll all moved on now the
 Sing her little cakes
 : Said he pleases.
 
+
+## Wikilinks load test
+
+[[ferine easter cactus]]
+[[nonelective lechery]]
+[[gingival gaudery]]
+[[broadloom belles-lettres]]
+[[paintable erysimum]]

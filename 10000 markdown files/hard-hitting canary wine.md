@@ -75,3 +75,7 @@ Explain all fairly Alice how
 Is that makes you
 : roared the squeaking of that were playing the beginning very sadly and expecting
 
+
+## Wikilinks load test
+
+[[corticifugal eucalyptus rostrata]]

@@ -86,3 +86,8 @@ THAT is Birds of nursing a
 Will the what makes people Alice
 : holding it gave her surprise that day your hat the mistake about wasting our cat
 
+
+## Wikilinks load test
+
+[[secular twenty-one]]
+[[stock-still bo tree]]

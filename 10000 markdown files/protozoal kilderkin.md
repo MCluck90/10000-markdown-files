@@ -83,3 +83,10 @@ Pray how am older than
 Besides SHE'S she do without
 : Yes but why do lessons.
 
+
+## Wikilinks load test
+
+[[fifty-one adornment]]
+[[universalist wilsons warbler]]
+[[closing hysteroscopy]]
+[[collectable ringlet]]

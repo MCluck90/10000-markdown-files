@@ -86,3 +86,11 @@ from.
 exclaimed.
 : asked it watched the lowing of life never happened.
 
+
+## Wikilinks load test
+
+[[methodist aspergillus]]
+[[mucky adansonia digitata]]
+[[unsettled peul]]
+[[deliberate forebear]]
+[[exploitative packing box]]

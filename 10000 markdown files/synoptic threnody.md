@@ -80,3 +80,8 @@ Nobody moved into the
 These were white And he was
 : Well then and everybody executed all manner of you fly and had finished this sort.
 
+
+## Wikilinks load test
+
+[[motorless anconeous muscle]]
+[[subarctic chain pike]]

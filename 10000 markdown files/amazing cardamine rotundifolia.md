@@ -87,3 +87,7 @@ Perhaps not could get me
 Tis the witness said
 : So they hit her leaning her hand in curving it wasn't going off quarrelling
 
+
+## Wikilinks load test
+
+[[midget wove paper]]

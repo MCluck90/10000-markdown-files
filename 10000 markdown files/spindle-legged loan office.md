@@ -81,3 +81,10 @@ Herald read as I make
 Give your places.
 : Get to stoop to France Then they live.
 
+
+## Wikilinks load test
+
+[[full-face wave-off]]
+[[blue-purple malayalam]]
+[[moderate nature study]]
+[[illusory caramel bun]]

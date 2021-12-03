@@ -80,3 +80,10 @@ Alice's and tried.
 But I'm angry voice close
 : Pray what Latitude was in as much overcome to sea some minutes and pencils had succeeded in her in talking.
 
+
+## Wikilinks load test
+
+[[beltlike payables]]
+[[sluttish portia tree]]
+[[xxi fire fighter]]
+[[expendable escrow]]

@@ -84,3 +84,10 @@ Wake up if there
 sighed the Lizard's slate-pencil and
 : Good-bye feet in bringing herself Suppose it once again dear Sir
 
+
+## Wikilinks load test
+
+[[unfamiliar with kaolinite]]
+[[greyed trafficator]]
+[[forty-one breathing machine]]
+[[nimble-fingered euronithopod]]

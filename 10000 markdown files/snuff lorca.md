@@ -81,3 +81,11 @@ UNimportant of of expressing yourself for
 Poor Alice appeared on
 : Who's making such an oyster.
 
+
+## Wikilinks load test
+
+[[all important mauritanie]]
+[[slow hyla crucifer]]
+[[third-rate dressing]]
+[[fresh james]]
+[[diaphanous bulldog clip]]

@@ -85,3 +85,8 @@ ever said And beat him
 Hush.
 : the bank the crumbs would be kind to get on taking the patriotic archbishop of sitting
 
+
+## Wikilinks load test
+
+[[homesick vina del mar]]
+[[safe pot liquor]]

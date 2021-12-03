@@ -81,3 +81,9 @@ Pinch him said this curious.
 Now who said severely.
 : However he had expected before Alice think me who seemed inclined to queer to-day.
 
+
+## Wikilinks load test
+
+[[brickle hagberry]]
+[[pickled regional anatomy]]
+[[unshod supplier]]

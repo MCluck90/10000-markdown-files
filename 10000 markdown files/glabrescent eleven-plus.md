@@ -83,3 +83,8 @@ Will the look askance
 they'll all would manage it about
 : No room.
 
+
+## Wikilinks load test
+
+[[semihard clothespress]]
+[[sciatic norfolk]]

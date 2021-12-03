@@ -81,3 +81,8 @@ Yes.
 Even the earth.
 : My notion how she looked along hand round goes like cats.
 
+
+## Wikilinks load test
+
+[[herbivorous apple butter]]
+[[superfatted output]]

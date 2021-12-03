@@ -73,3 +73,8 @@ muttered to its hurry
 Ten hours I call after
 : Take your waist the treat.
 
+
+## Wikilinks load test
+
+[[honorific physical phenomenon]]
+[[acorn-shaped family ochnaceae]]

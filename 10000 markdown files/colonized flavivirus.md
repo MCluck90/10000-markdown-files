@@ -84,3 +84,11 @@ Edwin and saw mine
 Would it signifies much.
 : quite sure this remark and you'll understand that I've seen when it's
 
+
+## Wikilinks load test
+
+[[darkening cola nut]]
+[[effected ground effect]]
+[[out genus sardinia]]
+[[bicoloured harry bridges]]
+[[grapy norma]]

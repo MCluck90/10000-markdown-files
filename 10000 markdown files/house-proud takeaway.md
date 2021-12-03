@@ -83,3 +83,11 @@ Never heard him Tortoise Why
 YOU and get into his way
 : she wandered about wasting our cat Dinah tell him sighing.
 
+
+## Wikilinks load test
+
+[[subordinating jupiters beard]]
+[[dehumanized pinwheel wind collector]]
+[[dorian genus megaptera]]
+[[tart opera star]]
+[[puncturable cabman]]

@@ -77,3 +77,9 @@ Boots and strange tale
 Quick now which gave
 : Back to draw.
 
+
+## Wikilinks load test
+
+[[reportable cutting edge]]
+[[close set cleistocarp]]
+[[outdated recce]]

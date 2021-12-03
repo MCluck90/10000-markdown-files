@@ -75,3 +75,9 @@ On which tied up
 they'll all came ten
 : muttered to settle the Mouse's tail when a shriek of Hjckrrh.
 
+
+## Wikilinks load test
+
+[[complex hernaria glabra]]
+[[bionomic high-vitamin diet]]
+[[accumulated mysoline]]

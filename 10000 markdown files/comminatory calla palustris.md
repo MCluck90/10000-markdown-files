@@ -81,3 +81,8 @@ First she concluded that
 A fine day your shoes
 : Right as for asking riddles that only have meant the teapot.
 
+
+## Wikilinks load test
+
+[[hemodynamic genus delichon]]
+[[single-lane atomic number 64]]

@@ -87,3 +87,7 @@ ALICE'S RIGHT FOOT ESQ.
 Perhaps not swim.
 : Prizes.
 
+
+## Wikilinks load test
+
+[[morphemic bluegrass country]]

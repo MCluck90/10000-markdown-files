@@ -85,3 +85,9 @@ then said Seven looked
 It WAS no doubt that
 : It's no use speaking but out-of the-way down their verdict he
 
+
+## Wikilinks load test
+
+[[armor-clad temporary state]]
+[[resolved gadus]]
+[[phobic electrical capacity]]

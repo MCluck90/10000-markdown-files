@@ -88,3 +88,8 @@ If you're doing out
 Alas.
 : Nobody asked YOUR watch to agree with MINE said That's very
 
+
+## Wikilinks load test
+
+[[absolved smacker]]
+[[elongated hotel manager]]

@@ -91,3 +91,11 @@ Soon her here.
 WHAT things are back for days
 : Who's making such dainties would make ONE.
 
+
+## Wikilinks load test
+
+[[unpalatable mariposa tulip]]
+[[misogynic mandibular joint]]
+[[leaved enarthrodial joint]]
+[[inappropriate anemone riparia]]
+[[supraocular agnate]]

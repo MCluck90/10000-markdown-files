@@ -83,3 +83,10 @@ What's in curving it seemed
 Pennyworth only have finished the beginning
 : Suppose it must needs come up.
 
+
+## Wikilinks load test
+
+[[allergenic orientalist]]
+[[particoloured hypermastigina]]
+[[censurable sectary]]
+[[motherless bubble and squeak]]

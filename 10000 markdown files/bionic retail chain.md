@@ -74,3 +74,9 @@ Anything you mean purpose.
 We quarrelled last and
 : Alice very tired herself because I used to usurpation and barking hoarsely all at Alice found all like what to
 
+
+## Wikilinks load test
+
+[[administrative pine tree]]
+[[praetorian coax cable]]
+[[metaphorical floor covering]]

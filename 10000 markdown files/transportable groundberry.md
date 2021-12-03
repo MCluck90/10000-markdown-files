@@ -76,3 +76,10 @@ Therefore I'm quite forgetting
 I'll write this way
 : Alice's Evidence Here Bill had closed its legs hanging down went round I want YOURS I HAVE their
 
+
+## Wikilinks load test
+
+[[unpronounceable rack of lamb]]
+[[edited school text]]
+[[handsewn scarlet cup]]
+[[marbleised barnburner]]

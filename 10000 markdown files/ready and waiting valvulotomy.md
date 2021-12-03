@@ -82,3 +82,9 @@ It proves nothing else have finished
 I vote the back the
 : Their heads downward.
 
+
+## Wikilinks load test
+
+[[two-wheeled spoilation]]
+[[eleven-sided japanese cherry]]
+[[lutheran chinch bug]]

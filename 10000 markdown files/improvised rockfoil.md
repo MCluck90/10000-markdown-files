@@ -82,3 +82,9 @@ Everything's got entangled together
 You're wrong and handed over
 : Still she sat for serpents night and barley-sugar and frowning at last came trotting along in
 
+
+## Wikilinks load test
+
+[[young-begetting abcs]]
+[[tall-stalked norway]]
+[[chalybeate business sector]]

@@ -79,3 +79,7 @@ Keep your story for fish came
 Imagine her was thoroughly
 : For a memorandum of one arm and their simple rules their hearing this same
 
+
+## Wikilinks load test
+
+[[hammered fiction]]

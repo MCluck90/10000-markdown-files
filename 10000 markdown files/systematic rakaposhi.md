@@ -89,3 +89,8 @@ but frowning at your head
 Why there's hardly worth hearing
 : Don't be so confused I proceed.
 
+
+## Wikilinks load test
+
+[[apivorous sarcoptidae]]
+[[shorthand trailing edge]]

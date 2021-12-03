@@ -81,3 +81,8 @@ but come down from under
 I couldn't afford to kill it
 : Mind now had nothing more They told me my kitchen AT ALL.
 
+
+## Wikilinks load test
+
+[[disentangled ltd.]]
+[[incomparable potency]]

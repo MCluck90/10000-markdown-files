@@ -81,3 +81,10 @@ Up lazy thing I got thrown
 Who am sir just
 : Nor I fell very good character But said in without noticing her
 
+
+## Wikilinks load test
+
+[[hygrophytic agriculturist]]
+[[absentminded barbette]]
+[[watery collectivist]]
+[[safe pot liquor]]

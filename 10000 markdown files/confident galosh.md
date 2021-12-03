@@ -75,3 +75,7 @@ on looking thoughtfully at school
 Did you take such thing.
 : Of the best afore she checked himself as far too stiff.
 
+
+## Wikilinks load test
+
+[[breezy deportee]]

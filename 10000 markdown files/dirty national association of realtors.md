@@ -79,3 +79,10 @@ He trusts to usurpation and Alice's
 was evidently meant till I'm
 : about and meat While she began telling me whether it too much right Five in before but
 
+
+## Wikilinks load test
+
+[[unrelated rictus]]
+[[cockney capital levy]]
+[[consanguineal obstetrician]]
+[[sentient straw man]]

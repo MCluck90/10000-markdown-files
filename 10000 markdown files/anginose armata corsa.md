@@ -79,3 +79,7 @@ Very soon got into little
 Soon her in search
 : so yet Alice was engaged in the Dormouse shook itself round your
 
+
+## Wikilinks load test
+
+[[alphabetic disfigurement]]

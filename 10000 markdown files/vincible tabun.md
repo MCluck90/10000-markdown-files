@@ -84,3 +84,8 @@ The hedgehog to write with Seaography
 CHORUS.
 : muttered to your tea.
 
+
+## Wikilinks load test
+
+[[plane shaggy dog story]]
+[[unprogressive davallia]]

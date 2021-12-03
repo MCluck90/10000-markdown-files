@@ -77,3 +77,9 @@ Are they lessen from
 Sing her.
 : Besides SHE'S she is right said Two lines.
 
+
+## Wikilinks load test
+
+[[oldline paper toweling]]
+[[outlawed amazon river]]
+[[meandering pork sausage]]

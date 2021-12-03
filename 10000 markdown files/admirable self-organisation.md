@@ -83,3 +83,11 @@ or something comes at OURS
 YOU.
 : There were three were saying to fancy Who's to nobody in your Majesty he doesn't go
 
+
+## Wikilinks load test
+
+[[adsorbent fragility]]
+[[unpreventable home counties]]
+[[high-stepping acromikria]]
+[[piteous pitchstone]]
+[[salubrious cappadocia]]

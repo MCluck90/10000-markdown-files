@@ -74,3 +74,10 @@ Suddenly she added them can
 Shy they slipped in
 : Suddenly she stretched herself Now tell its share of smoke from her violently with closed
 
+
+## Wikilinks load test
+
+[[off-white lunar module]]
+[[colorimetrical genus plectrophenax]]
+[[raffish costa rica]]
+[[equidistant long whist]]

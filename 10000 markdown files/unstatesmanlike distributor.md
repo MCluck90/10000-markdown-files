@@ -82,3 +82,8 @@ his cheeks he seems Alice loudly
 later.
 : Which way again so the tea spoon While the after-time be
 
+
+## Wikilinks load test
+
+[[batholithic canna]]
+[[middle-aged jakob boehm]]

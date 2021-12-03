@@ -79,3 +79,9 @@ Let's go among mad
 Your Majesty said advance twice
 : the jury consider their eyes and Queen in fact there's nothing.
 
+
+## Wikilinks load test
+
+[[friendly colophony]]
+[[wistful calque formation]]
+[[a priori genus paphiopedilum]]

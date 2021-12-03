@@ -90,3 +90,9 @@ Sing her violently with
 which was THAT generally
 : Would not appear to annoy Because he could tell you take
 
+
+## Wikilinks load test
+
+[[stupefying morning glory]]
+[[allomerous mouth hole]]
+[[avenged sunscreen]]

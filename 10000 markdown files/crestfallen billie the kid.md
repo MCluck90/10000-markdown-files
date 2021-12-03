@@ -77,3 +77,9 @@ Turn them a different and
 Of the rattling teacups as politely
 : Mine is twelve.
 
+
+## Wikilinks load test
+
+[[millenary charades]]
+[[awesome handrest]]
+[[professed wild ox]]

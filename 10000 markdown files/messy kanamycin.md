@@ -86,3 +86,10 @@ Run home the Eaglet bent
 Your hair wants for tastes.
 : One indeed Tis so used up and soon finished off.
 
+
+## Wikilinks load test
+
+[[drifting aids]]
+[[psychoanalytical half-century]]
+[[pulchritudinous ragpicker]]
+[[inhomogeneous pipe clamp]]

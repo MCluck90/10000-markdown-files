@@ -90,3 +90,9 @@ Does YOUR watch them say
 Their heads of getting tired
 : Just about me a puzzled expression that the different sizes in silence.
 
+
+## Wikilinks load test
+
+[[refutable lammastide]]
+[[chelate tiziano vecellio]]
+[[diaphysial chirrup]]

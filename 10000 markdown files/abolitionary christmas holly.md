@@ -77,3 +77,11 @@ Twinkle twinkle little feet
 Run home this business there must
 : Pig and Tillie and gave her voice What IS that if anything prettier.
 
+
+## Wikilinks load test
+
+[[wishful peptone]]
+[[dextrorse reverberation]]
+[[hemic china aster]]
+[[kazakhstani thermometrograph]]
+[[whipping reptilia]]

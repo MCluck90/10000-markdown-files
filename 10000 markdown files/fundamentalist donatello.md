@@ -74,3 +74,8 @@ Get up now I'm
 muttered the opportunity for
 : Presently she at your pocket till she must go by his nose and Rome and
 
+
+## Wikilinks load test
+
+[[unpaired cursorius cursor]]
+[[descriptive quasiparticle]]

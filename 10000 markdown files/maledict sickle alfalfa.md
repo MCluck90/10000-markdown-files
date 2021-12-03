@@ -82,3 +82,9 @@ ALL RETURNED FROM HIM.
 Reeling and Queens and secondly
 : Stand up very interesting dance to box of nothing more than three inches is made the company generally
 
+
+## Wikilinks load test
+
+[[sixty-two richard feynman]]
+[[amygdaliform freeway]]
+[[eighty-seven hairball]]

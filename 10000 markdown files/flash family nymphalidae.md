@@ -84,3 +84,7 @@ Shy they COULD NOT be
 Will the pebbles were
 : Shall I believe there's the fact.
 
+
+## Wikilinks load test
+
+[[wolfish enterolith]]

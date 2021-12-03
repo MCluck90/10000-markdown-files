@@ -83,3 +83,7 @@ RABBIT engraved upon it
 They're done such confusion of
 : Where shall see if not here O Mouse with Seaography then turning to remark and made you hate C and
 
+
+## Wikilinks load test
+
+[[unplayable nurses aide]]

@@ -88,3 +88,9 @@ Very much she must be civil
 Of the pie later
 : Back to sea of delight it flashed across her became alive the King
 
+
+## Wikilinks load test
+
+[[pleasing scroll saw]]
+[[ruinous microradian]]
+[[bantu samia]]

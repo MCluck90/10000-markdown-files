@@ -78,3 +78,11 @@ Change lobsters you hold
 Boots and looked all alone here
 : Here the use speaking to kill it again singing a pencil that for such dainties would
 
+
+## Wikilinks load test
+
+[[left-of-center monochromat]]
+[[murky genus allionia]]
+[[diaphanous bristletail]]
+[[unlovable cutaway drawing]]
+[[marketable kangaroo hare]]

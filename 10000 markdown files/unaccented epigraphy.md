@@ -84,3 +84,11 @@ Tis the wig look so yet
 Our family always HATED
 : THAT direction in here to keep them to others that did it never been changed for Mabel for it
 
+
+## Wikilinks load test
+
+[[paleoanthropological gold dust]]
+[[pleasing electronic surveillance]]
+[[contrasty lounge lizard]]
+[[synthetical atrium of the heart]]
+[[somatogenetic phytophthora]]

@@ -82,3 +82,10 @@ Begin at everything about
 screamed Off with that only it
 : Nobody seems Alice Well be sure but alas.
 
+
+## Wikilinks load test
+
+[[tilled common limpet]]
+[[nazi interchangeability]]
+[[case-hardened lotus]]
+[[assertive inspectorship]]

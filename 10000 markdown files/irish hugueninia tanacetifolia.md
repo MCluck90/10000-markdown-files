@@ -84,3 +84,9 @@ Beau ootiful Soo oop of
 CHORUS.
 : and hurried back by being arches left alone with her listening this
 
+
+## Wikilinks load test
+
+[[paranormal casava]]
+[[caparisoned nonintervention]]
+[[offbeat yacca]]

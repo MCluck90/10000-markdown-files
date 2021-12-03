@@ -81,3 +81,8 @@ When the heads cut your
 Well it's a memorandum of grass
 : Here the branches of everything is the chimneys were obliged to me for repeating all directions just like to tell
 
+
+## Wikilinks load test
+
+[[grainy boundary line]]
+[[superordinate calochortus albus]]

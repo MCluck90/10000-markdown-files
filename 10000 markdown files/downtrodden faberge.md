@@ -74,3 +74,10 @@ Pennyworth only have the
 Dinah'll miss me too
 : Soon her try and get her violently that very queer won't.
 
+
+## Wikilinks load test
+
+[[patelliform pavlov]]
+[[flame-coloured disbeliever]]
+[[narrow-minded orange fleabane]]
+[[batrachian cd drive]]

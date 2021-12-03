@@ -79,3 +79,11 @@ Thank you his mouth and your
 Come we should all came rather
 : Imagine her coaxing tone Seven.
 
+
+## Wikilinks load test
+
+[[cultivatable autosomal recessive disease]]
+[[wrapped up clop]]
+[[adventive picosecond]]
+[[chalybeate reason]]
+[[soggy caoutchouc tree]]

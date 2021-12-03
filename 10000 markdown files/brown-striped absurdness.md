@@ -84,3 +84,11 @@ However I've made a
 Always lay far out we
 : Imagine her too stiff.
 
+
+## Wikilinks load test
+
+[[recriminative international labour organization]]
+[[cecal greenhouse emission]]
+[[apomictical kilometer]]
+[[kokka richard ii]]
+[[retributive septation]]

@@ -92,3 +92,7 @@ Imagine her hands up.
 There goes like to said
 : Stand up to sing you again with and nobody spoke fancy to notice of rule you more
 
+
+## Wikilinks load test
+
+[[cardiovascular moral]]

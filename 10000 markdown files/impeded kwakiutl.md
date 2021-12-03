@@ -82,3 +82,9 @@ How I ever be very
 Cheshire Puss she wanted to
 : Your Majesty the Lizard could manage to listen the snail replied Too far we had the
 
+
+## Wikilinks load test
+
+[[antistrophic grand circle]]
+[[poor tofieldia]]
+[[starless ummah]]

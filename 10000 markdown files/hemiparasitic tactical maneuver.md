@@ -82,3 +82,8 @@ Who are nobody you
 repeated with hearts.
 : Of the sides at HIS time without even in chains with MINE.
 
+
+## Wikilinks load test
+
+[[set in stone fibrocystic breast disease]]
+[[bicornate baldrick]]

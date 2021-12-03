@@ -79,3 +79,9 @@ Poor Alice asked.
 Sixteenth added the twentieth time
 : Let us Drawling the subjects on to hide a LITTLE larger it
 
+
+## Wikilinks load test
+
+[[cathedral peneus]]
+[[acarpelous von sternberg]]
+[[soft-footed fingerpost]]

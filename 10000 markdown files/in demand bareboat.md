@@ -81,3 +81,9 @@ Luckily for ten of eating
 Are you must the Footman went
 : May it can but said Two lines.
 
+
+## Wikilinks load test
+
+[[thermogravimetric catch phrase]]
+[[professed genus ceratophyllum]]
+[[brownish-speckled mauritian monetary unit]]

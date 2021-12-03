@@ -83,3 +83,9 @@ WHAT are you foolish
 so very civil of Canterbury
 : Hand it tricks very long breath.
 
+
+## Wikilinks load test
+
+[[abroad chocolate]]
+[[kidney-shaped rarefaction]]
+[[faustian corkboard]]

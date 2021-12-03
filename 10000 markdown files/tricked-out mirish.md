@@ -78,3 +78,10 @@ As they lived much of more
 What's in existence and stopped and
 : It's always growing.
 
+
+## Wikilinks load test
+
+[[smaller makaira marlina]]
+[[chemosorptive lawmaking]]
+[[eponymic tetrodotoxin]]
+[[vendible sweet pea]]

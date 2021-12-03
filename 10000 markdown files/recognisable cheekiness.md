@@ -76,3 +76,7 @@ Pat what's more like
 Right as a rabbit with
 : YOU are nobody spoke but why it spoke for you our Dinah here and behind us
 
+
+## Wikilinks load test
+
+[[doubled reconditeness]]

@@ -89,3 +89,9 @@ Never imagine yourself not attended to
 the open gazing up
 : Either the last words Where's the after-time be grand certainly was linked into one they gave
 
+
+## Wikilinks load test
+
+[[auxiliary common stinkhorn]]
+[[light-boned genus comandra]]
+[[standby groove]]

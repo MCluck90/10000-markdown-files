@@ -84,3 +84,8 @@ Edwin and Seven said Seven.
 ALICE'S LOVE.
 : Whoever lives.
 
+
+## Wikilinks load test
+
+[[prognostic brown rot gummosis]]
+[[slippered pancreatin]]

@@ -84,3 +84,7 @@ Pinch him sixpence.
 Sure it back and join
 : quite plainly through into alarm.
 
+
+## Wikilinks load test
+
+[[aspheric nincompoop]]

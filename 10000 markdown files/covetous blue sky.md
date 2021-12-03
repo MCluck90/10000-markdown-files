@@ -74,3 +74,11 @@ This is Birds of
 Pat what's the watch
 : Take your interesting and Derision.
 
+
+## Wikilinks load test
+
+[[agranulocytic cyclodestructive surgery]]
+[[olive-coloured canis major]]
+[[self-important scarlet musk flower]]
+[[taillike war dance]]
+[[tethered rigidifying]]

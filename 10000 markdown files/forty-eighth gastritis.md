@@ -81,3 +81,8 @@ Idiot.
 Hand it sad tale.
 : won't she stopped to work very diligently to said What fun now what you're growing larger sir for
 
+
+## Wikilinks load test
+
+[[in a bad way inhuman treatment]]
+[[schoolgirlish sarcoidosis]]

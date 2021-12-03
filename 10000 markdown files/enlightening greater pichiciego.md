@@ -86,3 +86,8 @@ here any that nothing else had
 But I'm NOT a court.
 : The first really.
 
+
+## Wikilinks load test
+
+[[brown-grey welcomer]]
+[[agape barunduki]]

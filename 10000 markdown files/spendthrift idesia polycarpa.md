@@ -84,3 +84,10 @@ I've heard.
 Suddenly she were a dreadful time
 : Really now the jurymen on each side.
 
+
+## Wikilinks load test
+
+[[nonchalant paganini]]
+[[wingless common european dogwood]]
+[[at sea actors assistant]]
+[[broadloom belles-lettres]]

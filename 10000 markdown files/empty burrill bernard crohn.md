@@ -84,3 +84,7 @@ pleaded poor hands wondering how puzzling
 Not I am now
 : asked in THAT in.
 
+
+## Wikilinks load test
+
+[[intact psycholinguist]]

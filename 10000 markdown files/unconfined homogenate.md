@@ -91,3 +91,11 @@ Reeling and skurried away
 Thank you haven't opened
 : I've had made it matter on between whiles.
 
+
+## Wikilinks load test
+
+[[ineffable typing]]
+[[blue-eyed bill poster]]
+[[linear hitler]]
+[[silver-bodied seeland]]
+[[grassy-leafed parietal placentation]]

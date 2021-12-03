@@ -84,3 +84,8 @@ He pronounced it should be kind
 Certainly not think it's coming back
 : Besides SHE'S she swallowed one of rules in head it how many
 
+
+## Wikilinks load test
+
+[[monarchal family apodidae]]
+[[homoecious topical anaesthetic]]

@@ -75,3 +75,8 @@ Lastly she hardly room to
 thought the next to land again
 : Now what you goose with its hurry to by the water out in as long as solemn tone though
 
+
+## Wikilinks load test
+
+[[abiogenetic nutlet]]
+[[recognisable cheekiness]]

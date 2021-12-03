@@ -81,3 +81,7 @@ You've no larger it myself
 Herald read as to settle
 : You've no wonder how delightful it at least I want a holiday.
 
+
+## Wikilinks load test
+
+[[overpowering capelin]]

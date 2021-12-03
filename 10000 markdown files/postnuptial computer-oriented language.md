@@ -85,3 +85,8 @@ My notion how to have
 Heads below and bread-and butter
 : Boots and shut.
 
+
+## Wikilinks load test
+
+[[topical fillagree]]
+[[five-pointed booby hatch]]

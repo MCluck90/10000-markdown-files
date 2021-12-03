@@ -84,3 +84,9 @@ Wow.
 Pennyworth only see it
 : catch a sky-rocket.
 
+
+## Wikilinks load test
+
+[[downtrodden faberge]]
+[[fretted consultant]]
+[[achondroplastic hairspring]]

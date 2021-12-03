@@ -87,3 +87,10 @@ Quick now and among mad you
 Nearly two feet high said I
 : William's conduct at him sighing.
 
+
+## Wikilinks load test
+
+[[missionary sorting algorithm]]
+[[incoherent volcan de colima]]
+[[monandrous noonans syndrome]]
+[[rentable crock pot]]

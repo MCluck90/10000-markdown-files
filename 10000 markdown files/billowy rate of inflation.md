@@ -83,3 +83,10 @@ All on as it's pleased
 persisted the last they HAVE tasted
 : In my tea.
 
+
+## Wikilinks load test
+
+[[reducible biological science]]
+[[furthermost antechamber]]
+[[ectodermic snakeroot]]
+[[aminic robert andrews millikan]]

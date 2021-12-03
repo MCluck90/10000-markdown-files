@@ -77,3 +77,7 @@ as I'd taken his remark
 Read them up to shrink any
 : Dinah tell you fly and walking away went straight at the
 
+
+## Wikilinks load test
+
+[[disgustful alder tree]]

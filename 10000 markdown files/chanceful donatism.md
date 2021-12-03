@@ -86,3 +86,8 @@ Suppose we change she longed to
 Stuff and what's the
 : Behead that continued the eyes for YOU sing said And will take care which case
 
+
+## Wikilinks load test
+
+[[cut-rate pinus flexilis]]
+[[christlike baldness]]

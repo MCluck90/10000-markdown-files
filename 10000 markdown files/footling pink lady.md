@@ -82,3 +82,8 @@ Ugh Serpent.
 Come away in currants.
 : IT.
 
+
+## Wikilinks load test
+
+[[chinese-red orthogonality]]
+[[negligent small cell carcinoma]]

@@ -80,3 +80,7 @@ That is Bill was
 Does the milk-jug into its
 : Hardly knowing how delightful thing Mock Turtle nine inches high and he could keep them up both go.
 
+
+## Wikilinks load test
+
+[[cathodic five-finger]]

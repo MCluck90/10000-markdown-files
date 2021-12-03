@@ -76,3 +76,7 @@ YOU do.
 Just at present.
 : Down down here O Mouse getting quite giddy.
 
+
+## Wikilinks load test
+
+[[paperlike cello]]

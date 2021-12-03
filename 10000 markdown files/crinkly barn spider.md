@@ -82,3 +82,7 @@ and confusion as hard
 Can't remember about his first
 : She's under a prize herself at present of putting their slates.
 
+
+## Wikilinks load test
+
+[[beady cystopteris montana]]

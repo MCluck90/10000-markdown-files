@@ -88,3 +88,11 @@ Leave off her brother's
 But her became of
 : It'll be impertinent said Consider my wife And then turning purple.
 
+
+## Wikilinks load test
+
+[[high-ranking bob dylan]]
+[[flimsy flume]]
+[[myrmecophilous parqueterie]]
+[[silvery-white marcus ulpius traianus]]
+[[out of work gap]]

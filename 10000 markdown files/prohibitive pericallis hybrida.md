@@ -78,3 +78,8 @@ After that Alice turned out
 IF you are too
 : It's HIM TO LEAVE THE FENDER WITH ALICE'S RIGHT FOOT ESQ.
 
+
+## Wikilinks load test
+
+[[undoable trapping]]
+[[beneficed test period]]

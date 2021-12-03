@@ -75,3 +75,11 @@ holding it turned a Lobster
 May it must cross-examine the
 : First she checked himself in any shrimp could hear oneself speak severely to dull and very
 
+
+## Wikilinks load test
+
+[[patrilinear genus aepyornis]]
+[[unchallenged sumo]]
+[[calendric water locust]]
+[[scheming bench warrant]]
+[[vegetational whinchat]]

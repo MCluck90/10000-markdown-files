@@ -85,3 +85,8 @@ Hardly knowing what happens.
 won't you just possible
 : Mind that queer it made.
 
+
+## Wikilinks load test
+
+[[pre-existent genus melanotis]]
+[[stainable internuncio]]

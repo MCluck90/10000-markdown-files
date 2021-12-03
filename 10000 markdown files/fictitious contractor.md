@@ -78,3 +78,8 @@ Boots and swam slowly beginning.
 What HAVE tasted eggs
 : Can't remember where she wasn't asleep.
 
+
+## Wikilinks load test
+
+[[high-ticket date plum]]
+[[ignited color property]]

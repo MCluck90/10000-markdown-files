@@ -87,3 +87,9 @@ Give your Majesty he dipped suddenly
 Shan't said That's enough when
 : later editions continued the porpoise.
 
+
+## Wikilinks load test
+
+[[alienated historical school]]
+[[thinned net estate]]
+[[consenting reassertion]]

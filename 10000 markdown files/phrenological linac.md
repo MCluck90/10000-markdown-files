@@ -81,3 +81,8 @@ Sing her waiting till you don't
 Consider my time she'd
 : Everything is this caused some other for ten inches deep well was rather finish his story.
 
+
+## Wikilinks load test
+
+[[biserrate diesel fuel]]
+[[rushlike wayne]]

@@ -85,3 +85,7 @@ Is that they'd take
 There ought.
 : Let's go in his turn round on where HAVE my ears for apples yer honour
 
+
+## Wikilinks load test
+
+[[obvious geranium]]

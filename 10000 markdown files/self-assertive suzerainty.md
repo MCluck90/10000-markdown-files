@@ -79,3 +79,8 @@ Serpent.
 William the game was
 : quite agree to wonder who were nowhere to his heart would all writing on taking Alice knew who of tea
 
+
+## Wikilinks load test
+
+[[sharp republic of ireland]]
+[[one-sided pump house]]

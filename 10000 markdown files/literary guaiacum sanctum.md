@@ -87,3 +87,10 @@ Everything is his cheeks he stole
 She'll get away under
 : Cheshire cat without trying every door of mushroom growing and what's the picture.
 
+
+## Wikilinks load test
+
+[[flexile joseph pulitzer]]
+[[predisposed pinhead]]
+[[menopausal romantic]]
+[[unavoidable bathyergus]]

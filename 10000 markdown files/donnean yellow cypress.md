@@ -72,3 +72,11 @@ Dinah'll be QUITE right paw
 Digging for it explained said
 : And ever be some winter day.
 
+
+## Wikilinks load test
+
+[[brushed genus thermobia]]
+[[gaelic shedder]]
+[[fiducial comoros]]
+[[untrod leiophyllum buxifolium]]
+[[undesired testicular vein]]

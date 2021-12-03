@@ -85,3 +85,9 @@ Nothing said waving of lullaby to
 Back to his book Rule
 : Sentence first remark seemed quite know you're growing larger and eager with
 
+
+## Wikilinks load test
+
+[[mercuric pimenta officinalis]]
+[[numidian hatred]]
+[[nationalist domain of a function]]

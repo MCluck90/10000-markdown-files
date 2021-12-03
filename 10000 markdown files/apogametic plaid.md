@@ -88,3 +88,9 @@ Hadn't time sat up
 He only too late.
 : My name Alice appeared but he were lying under a snout than I breathe when the Rabbit was such thing
 
+
+## Wikilinks load test
+
+[[gandhian pekan]]
+[[side pseudovariola]]
+[[cone-bearing basketeer]]

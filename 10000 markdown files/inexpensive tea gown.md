@@ -83,3 +83,8 @@ Prizes.
 Back to shillings and
 : Certainly not mad.
 
+
+## Wikilinks load test
+
+[[centralised beggary]]
+[[vile john constable]]

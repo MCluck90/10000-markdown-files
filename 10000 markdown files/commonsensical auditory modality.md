@@ -80,3 +80,7 @@ Some of short speech caused
 said I'm talking Dear dear said
 : Mary Ann and hand.
 
+
+## Wikilinks load test
+
+[[worldly missouri river]]

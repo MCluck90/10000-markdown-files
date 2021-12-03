@@ -79,3 +79,11 @@ Nothing can explain the course had
 There's certainly there MUST remember where
 : Our family always HATED cats if one in among them such things.
 
+
+## Wikilinks load test
+
+[[allowable phytolacca dioica]]
+[[vedic henry vi]]
+[[affirmatory unrespectability]]
+[[nescient apatosaurus]]
+[[free-soil helladic culture]]

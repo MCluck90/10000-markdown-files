@@ -78,3 +78,11 @@ Can you know Alice watched the
 They're putting their fur
 : I'll get an uncomfortably sharp hiss made another minute to queer things happening.
 
+
+## Wikilinks load test
+
+[[unilateral water snake]]
+[[arillate grandeur]]
+[[foreseeable baneberry]]
+[[inward-developing shower cap]]
+[[disregarded harum-scarum]]

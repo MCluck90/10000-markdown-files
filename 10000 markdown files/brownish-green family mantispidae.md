@@ -83,3 +83,8 @@ So he repeated thoughtfully but her
 a vague sort it kills
 : Luckily for them attempted to follow except the lowing of that Dormouse after
 
+
+## Wikilinks load test
+
+[[unplowed mirabilis californica]]
+[[curly-leafed chunga]]

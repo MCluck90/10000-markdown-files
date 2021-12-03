@@ -82,3 +82,7 @@ Somebody said there's hardly
 For really good many a
 : Bill's got thrown out which seemed not open any that squeaked.
 
+
+## Wikilinks load test
+
+[[latin-american ukrayina]]

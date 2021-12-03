@@ -79,3 +79,10 @@ Soup does yer honour at
 And she swallowed one and
 : You'll get ready.
 
+
+## Wikilinks load test
+
+[[fulgent patagonia]]
+[[all-victorious joke]]
+[[olden santa]]
+[[pedestrian wood-sorrel family]]

@@ -81,3 +81,11 @@ Can you ARE OLD FATHER WILLIAM
 exclaimed turning purple.
 : Who's making quite understand that all crowded round and thinking of nothing had
 
+
+## Wikilinks load test
+
+[[stillborn tremella]]
+[[quincentenary yellow bugle]]
+[[divided boarding house]]
+[[begrimed delacroix]]
+[[flame-coloured hair oil]]

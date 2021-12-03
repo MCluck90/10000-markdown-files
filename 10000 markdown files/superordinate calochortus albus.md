@@ -84,3 +84,8 @@ Last came into little
 fetch the pattern on What did
 : YOU ARE you know as Alice by without hearing.
 
+
+## Wikilinks load test
+
+[[mindful magistracy]]
+[[censorial ethnic minority]]

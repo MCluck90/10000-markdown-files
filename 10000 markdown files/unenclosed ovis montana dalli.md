@@ -83,3 +83,11 @@ Heads below.
 Dinah was gently brushing
 : You ought.
 
+
+## Wikilinks load test
+
+[[professed martes martes]]
+[[galilean laity]]
+[[unpleasing maoist]]
+[[in dishabille acalypha virginica]]
+[[un-get-at-able hyoscyamus]]

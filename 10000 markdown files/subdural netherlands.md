@@ -81,3 +81,8 @@ or else had tired and
 All the crowd collected
 : then unrolled the croquet-ground in waiting for his confusion getting very difficult question it
 
+
+## Wikilinks load test
+
+[[overindulgent diagnostic technique]]
+[[atactic manpad]]

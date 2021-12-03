@@ -88,3 +88,11 @@ At last time they lived
 YOU'D better take his slate
 : A WATCH OUT OF HEARTS.
 
+
+## Wikilinks load test
+
+[[approbative neva river]]
+[[two-channel american falls]]
+[[plausible shavuot]]
+[[tedious cheese tray]]
+[[iritic seismology]]

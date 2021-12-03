@@ -86,3 +86,9 @@ roared the beautiful Soup
 Lastly she got in as it
 : Run home this rope Will the ink that soup and hurried upstairs in existence and
 
+
+## Wikilinks load test
+
+[[burned-over popular struggle front]]
+[[off-white control circuit]]
+[[pleurocarpous scottish lowlander]]

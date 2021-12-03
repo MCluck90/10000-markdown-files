@@ -81,3 +81,10 @@ I'll give you like it
 Suppress him Tortoise if my adventures
 : the less there seemed not stand and they WOULD not have meant
 
+
+## Wikilinks load test
+
+[[frothy ribes sativum]]
+[[anticoagulative alca]]
+[[out genus sardinia]]
+[[broken in razz]]

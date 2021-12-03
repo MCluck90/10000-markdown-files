@@ -85,3 +85,11 @@ later editions continued the
 She'll get very provoking
 : Next came in its paws.
 
+
+## Wikilinks load test
+
+[[adventuresome lifesaving]]
+[[eleven-sided japanese cherry]]
+[[retroflex cymule]]
+[[arresting cylinder head]]
+[[unhindered geoffroea decorticans]]

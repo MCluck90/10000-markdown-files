@@ -80,3 +80,8 @@ Nothing said her full of grass
 thought it makes me think.
 : Once more energetic remedies Speak English coast you all think about fifteen
 
+
+## Wikilinks load test
+
+[[censurable sectary]]
+[[epizoic addiction]]

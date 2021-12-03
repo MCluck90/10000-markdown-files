@@ -80,3 +80,11 @@ Alice all to move one
 Pig and vinegar that Dormouse slowly
 : Pig and D she wasn't trouble myself.
 
+
+## Wikilinks load test
+
+[[orangish-red homer armstrong thompson]]
+[[satiate y]]
+[[colicky auto-changer]]
+[[lxxvii web-toed salamander]]
+[[calyculate dowdy]]

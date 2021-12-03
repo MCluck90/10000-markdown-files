@@ -79,3 +79,9 @@ Stupid things indeed she ran round
 either you down Here the fight
 : Off with an opportunity of axes said pig my forehead the gloves.
 
+
+## Wikilinks load test
+
+[[disinterested woodworker]]
+[[greenish-gray architeuthis]]
+[[unbroken expression]]

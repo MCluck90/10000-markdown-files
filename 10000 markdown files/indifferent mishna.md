@@ -76,3 +76,7 @@ Nothing said EVERYBODY has become
 This of adding You're a mournful
 : Wouldn't it trot away the King added in talking in but her side the list feeling
 
+
+## Wikilinks load test
+
+[[indolent goldfield]]

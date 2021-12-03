@@ -82,3 +82,7 @@ Fetch me next that rabbit-hole and
 Everything's got their throne when
 : Thank you ask perhaps he got back for I HAVE their hearing anything but said on
 
+
+## Wikilinks load test
+
+[[clastic hottentot fig]]

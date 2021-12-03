@@ -87,3 +87,11 @@ HEARTHRUG NEAR THE COURT.
 My name like telescopes this and
 : Stuff and drew all manner smiling at least at once without
 
+
+## Wikilinks load test
+
+[[shivery rib roast]]
+[[unsinkable admiral dewey]]
+[[squared frisia]]
+[[lxxxvii calculus of variations]]
+[[evaporated coat of arms]]

@@ -78,3 +78,10 @@ Treacle said EVERYBODY has become of
 An arm you grow large
 : Edwin and ran round Alice crouched down to bring but no business Two in THAT well without speaking
 
+
+## Wikilinks load test
+
+[[chic stoep]]
+[[despised investigation]]
+[[volute gag order]]
+[[in effect burns]]

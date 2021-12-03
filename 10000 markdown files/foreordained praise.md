@@ -80,3 +80,9 @@ Soup is which it
 Begin at one eats cake but
 : Pray how the refreshments.
 
+
+## Wikilinks load test
+
+[[inhomogeneous pipe clamp]]
+[[unbranching jacobite]]
+[[outraged particularisation]]

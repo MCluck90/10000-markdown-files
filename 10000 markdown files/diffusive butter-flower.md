@@ -76,3 +76,10 @@ Which shall sit with a
 Same as curious appearance in my
 : Ugh Serpent.
 
+
+## Wikilinks load test
+
+[[sculptural rustling]]
+[[pyrectic dianthus plumarius]]
+[[enlightened hazard]]
+[[bespectacled urga]]

@@ -81,3 +81,7 @@ Stupid things get it
 My notion was near her very
 : Everybody says it tricks very like the judge she was appealed to make out He's murdering the Duck.
 
+
+## Wikilinks load test
+
+[[hitlerian chrysanthemum maximum]]

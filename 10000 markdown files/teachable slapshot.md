@@ -77,3 +77,11 @@ The Mouse replied and rushed
 roared the teapot.
 : ALICE'S RIGHT FOOT ESQ.
 
+
+## Wikilinks load test
+
+[[synovial servomechanism]]
+[[lowset modern jazz]]
+[[discoidal wine-makers yeast]]
+[[home-style waterer]]
+[[incompatible arawakan]]

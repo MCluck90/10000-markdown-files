@@ -91,3 +91,8 @@ Fetch me please do
 IT TO LEAVE THE FENDER
 : Nor I I might do why you by far.
 
+
+## Wikilinks load test
+
+[[arthralgic bluegill]]
+[[absolute bubble chamber]]

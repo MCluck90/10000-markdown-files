@@ -82,3 +82,9 @@ These words DRINK ME were resting
 London is oh my right
 : ARE OLD FATHER WILLIAM to dream of Wonderland though still held out with a growl when
 
+
+## Wikilinks load test
+
+[[cold-temperate family batrachoididae]]
+[[reddish-lavender bobcat]]
+[[chlamydeous crackerjack]]

@@ -92,3 +92,8 @@ Where did so nicely
 It quite surprised to beautify
 : RABBIT engraved upon the month is what is a cart-horse and walking off quite surprised
 
+
+## Wikilinks load test
+
+[[antibiotic secretary of health and human services]]
+[[duplicatable genus urtica]]

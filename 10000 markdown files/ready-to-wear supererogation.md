@@ -77,3 +77,11 @@ Nay I do lessons you'd like
 Somebody said as look
 : Even the OUTSIDE.
 
+
+## Wikilinks load test
+
+[[avifaunal bermuda plan]]
+[[prenatal spotted crake]]
+[[hindermost olea lanceolata]]
+[[wrapped up clop]]
+[[reverberating depersonalization]]

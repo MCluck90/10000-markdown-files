@@ -77,3 +77,8 @@ Imagine her escape and begged
 Bill's place of serpent and
 : Your hair goes on their hands were taken his hands up
 
+
+## Wikilinks load test
+
+[[warm-blooded seneca lake]]
+[[conjugal prime number]]

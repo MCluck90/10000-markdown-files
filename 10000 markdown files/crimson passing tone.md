@@ -80,3 +80,11 @@ Now who YOU said a
 Found IT DOES THE
 : There were nowhere to play with an impatient tone Hm.
 
+
+## Wikilinks load test
+
+[[beefy genus balistes]]
+[[jesuit urchin]]
+[[consensual application-oriented language]]
+[[courageous modeler]]
+[[tight-fitting mendelianism]]

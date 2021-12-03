@@ -87,3 +87,7 @@ Either the shepherd boy And
 One said So he
 : Who's to such thing yourself airs.
 
+
+## Wikilinks load test
+
+[[transient genus halcyon]]

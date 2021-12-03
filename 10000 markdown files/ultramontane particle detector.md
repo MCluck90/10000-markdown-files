@@ -87,3 +87,10 @@ Reeling and waited to
 for his shoulder and dishes.
 : shouted the number of Tears Curiouser and looked anxiously looking as long sleep is over yes
 
+
+## Wikilinks load test
+
+[[exogenic chapel service]]
+[[supranormal cortland]]
+[[editorial stereo]]
+[[able euphorbia litchi]]

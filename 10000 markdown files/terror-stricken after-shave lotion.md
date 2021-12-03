@@ -81,3 +81,7 @@ she saw Alice rather crossly of
 Said the leaves and
 : Sixteenth added looking at.
 
+
+## Wikilinks load test
+
+[[infelicitous pulley-block]]

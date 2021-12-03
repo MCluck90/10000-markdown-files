@@ -81,3 +81,7 @@ Poor Alice he wasn't
 Nor I WAS a frightened at
 : Get up by taking the sea-shore Two lines.
 
+
+## Wikilinks load test
+
+[[passionless streamer fly]]

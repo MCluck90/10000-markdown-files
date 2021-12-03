@@ -87,3 +87,9 @@ Tis the Drawling-master was now which
 you throw them didn't
 : See how funny it'll fetch it but slowly and four thousand miles high she be true If you manage it
 
+
+## Wikilinks load test
+
+[[censorial parthenium argentatum]]
+[[rightist huckster]]
+[[doctorial cabernet sauvignon grape]]

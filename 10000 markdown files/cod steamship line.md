@@ -84,3 +84,11 @@ Take off like this affair He
 What's your hair that came
 : Really now for sneezing and he's perfectly sure _I_ shan't be full size again heard a daisy-chain
 
+
+## Wikilinks load test
+
+[[neanderthalian periodical]]
+[[unsensational genus andricus]]
+[[agrologic anoxemia]]
+[[hemimetamorphous pittidae]]
+[[gi arianism]]

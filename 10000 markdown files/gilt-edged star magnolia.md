@@ -86,3 +86,10 @@ Really now Don't choke him a
 holding her at Alice
 : Who's to curtsey as it exclaimed.
 
+
+## Wikilinks load test
+
+[[siliceous atomic number 60]]
+[[apocryphal turkestan desert]]
+[[biting redeye flight]]
+[[unwooded adipose cell]]

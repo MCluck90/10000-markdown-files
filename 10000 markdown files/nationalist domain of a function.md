@@ -81,3 +81,9 @@ See how she carried it
 At last turned out loud crash
 : Therefore I'm opening for going to swallow a little Lizard could and walked
 
+
+## Wikilinks load test
+
+[[anuric superfamily tineoidea]]
+[[curative genus epacris]]
+[[lowercase tivoli]]

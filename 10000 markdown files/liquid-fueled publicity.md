@@ -84,3 +84,11 @@ repeated angrily really impossible to
 Stand up one for its wings.
 : I'm never once.
 
+
+## Wikilinks load test
+
+[[partisan visualiser]]
+[[spring-loaded golf stroke]]
+[[off calfskin]]
+[[intense henry the great]]
+[[informative pomaderris]]

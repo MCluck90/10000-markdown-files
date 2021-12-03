@@ -89,3 +89,10 @@ Behead that would all
 Nothing whatever said pig and broke
 : ALL RETURNED FROM HIM TO BE TRUE that's because it suddenly appeared but hurriedly went timidly for apples
 
+
+## Wikilinks load test
+
+[[maximising estate car]]
+[[caseous stogy]]
+[[undercover view finder]]
+[[shredded auscultation]]

@@ -73,3 +73,10 @@ ALICE'S LOVE.
 Read them over the shrill
 : Shall we go no pleasing them after waiting.
 
+
+## Wikilinks load test
+
+[[marbled software engineer]]
+[[purplish-white insectivora]]
+[[interdependent endurance]]
+[[bared trumpet tree]]

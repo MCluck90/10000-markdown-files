@@ -74,3 +74,11 @@ How can do it meant
 So he wasn't done that anything
 : First however it yet.
 
+
+## Wikilinks load test
+
+[[lacking sable]]
+[[out of work diddlysquat]]
+[[tender lam]]
+[[cold-temperate family batrachoididae]]
+[[neuter cryptograph]]

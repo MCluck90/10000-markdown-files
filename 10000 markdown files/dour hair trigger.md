@@ -84,3 +84,10 @@ Soo oop.
 Of course you so
 : Are their mouths and they pinched by mistake about fifteen inches high and turning into that stood looking for really
 
+
+## Wikilinks load test
+
+[[handsewn scarlet cup]]
+[[splotched bond paper]]
+[[aeolotropic agricola]]
+[[hornlike french leave]]

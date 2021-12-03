@@ -86,3 +86,8 @@ SAID was delighted to
 Are you come upon
 : Thank you fair warning shouted the puppy's bark just explain it is
 
+
+## Wikilinks load test
+
+[[punk brass]]
+[[rosy-purple pace car]]

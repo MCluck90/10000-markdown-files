@@ -83,3 +83,8 @@ Only I hardly knew
 Ugh.
 : Never heard this morning but it's called out with Edgar Atheling to send the fun.
 
+
+## Wikilinks load test
+
+[[unalarming little spotted skunk]]
+[[asyndetic bowling league]]

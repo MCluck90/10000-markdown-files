@@ -81,3 +81,10 @@ Herald read as Sure
 Who am to guard
 : Good-bye feet.
 
+
+## Wikilinks load test
+
+[[squeezable voltage divider]]
+[[self-assertive suzerainty]]
+[[libyan lithuresis]]
+[[monatomic pulpit]]

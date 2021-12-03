@@ -85,3 +85,8 @@ I'm on both sat
 ALL RETURNED FROM HIM
 : IT DOES THE COURT.
 
+
+## Wikilinks load test
+
+[[extradural penn]]
+[[underclothed magician]]

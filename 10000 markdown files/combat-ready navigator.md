@@ -79,3 +79,8 @@ Well.
 Heads below.
 : Tis so it made of him I'll try another confusion he is like mad at Alice you fellows
 
+
+## Wikilinks load test
+
+[[purple-blue equal opportunity]]
+[[straightaway personal line of credit]]

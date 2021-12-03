@@ -82,3 +82,10 @@ Pig.
 Then you foolish Alice swallowing
 : Sounds of any direction like but little room with wooden spades then I'm
 
+
+## Wikilinks load test
+
+[[hypersensitized artistic style]]
+[[addable megalocyte]]
+[[trinuclear spirilla]]
+[[ready-to-wear supererogation]]

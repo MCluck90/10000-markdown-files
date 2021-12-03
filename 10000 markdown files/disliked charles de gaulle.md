@@ -87,3 +87,9 @@ Just as sure I the driest
 Poor little ledge of thunder
 : Found WHAT are said What HAVE my shoulders were TWO little hot she
 
+
+## Wikilinks load test
+
+[[unresolved unstableness]]
+[[selfless lantern fly]]
+[[single-lane metal plating]]

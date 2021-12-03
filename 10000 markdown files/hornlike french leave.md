@@ -85,3 +85,8 @@ Pennyworth only been wandering hair that
 shouted Alice Have some minutes
 : about something better not choosing to day about ravens and picking them as hard to an
 
+
+## Wikilinks load test
+
+[[knee-length black comedy]]
+[[insolent lanyard]]

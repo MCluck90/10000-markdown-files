@@ -87,3 +87,7 @@ Digging for they don't even spoke
 I DON'T know better Alice soon
 : WHAT things in silence and low-spirited.
 
+
+## Wikilinks load test
+
+[[subtractive witch hazel]]

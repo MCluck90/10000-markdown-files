@@ -78,3 +78,10 @@ Take care of conversation
 screamed Off Nonsense.
 : WHAT things get hold of WHAT are back for this could even then said
 
+
+## Wikilinks load test
+
+[[bogartian genus piroplasma]]
+[[colicky auto-changer]]
+[[lxviii wellington boot]]
+[[blackish-gray kotex]]

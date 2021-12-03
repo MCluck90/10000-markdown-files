@@ -77,3 +77,11 @@ Same as politely for fear
 later.
 : interrupted in curving it likes.
 
+
+## Wikilinks load test
+
+[[shallow-draught beach plum]]
+[[seventy-four penstemon cyananthus]]
+[[gray-green week from monday]]
+[[tetragonal easy street]]
+[[sneezy sarracenia]]

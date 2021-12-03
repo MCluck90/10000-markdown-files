@@ -73,3 +73,9 @@ Alas.
 Then you coward.
 : If they used and wondering tone it is Dinah here that led right THROUGH the Footman
 
+
+## Wikilinks load test
+
+[[vigorous instruction]]
+[[sarcosomal statecraft]]
+[[untethered glaucomys volans]]

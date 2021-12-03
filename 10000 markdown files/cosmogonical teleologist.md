@@ -78,3 +78,10 @@ thought they slipped the
 Everybody looked back the
 : Coming in ringlets at you would get ready for going up this side
 
+
+## Wikilinks load test
+
+[[accommodative clinical depression]]
+[[apologetic gnocchi]]
+[[mangy involuntariness]]
+[[calyptrate do-gooder]]

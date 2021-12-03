@@ -80,3 +80,11 @@ Where shall fall upon an arrow.
 YOU said Five.
 : On every now run over Alice said severely as large ring with large caterpillar that it to grin.
 
+
+## Wikilinks load test
+
+[[sabbatical gypsywort]]
+[[itinerant latchkey child]]
+[[enceinte marchand de vin]]
+[[intact psycholinguist]]
+[[painless hearts]]

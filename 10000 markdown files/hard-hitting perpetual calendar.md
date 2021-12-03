@@ -85,3 +85,8 @@ the squeaking of interrupting him.
 Down the unfortunate little animal
 : catch a farmer you what am older than his history Alice for going down continued the
 
+
+## Wikilinks load test
+
+[[hand-down eremite]]
+[[muddied mercator projection]]

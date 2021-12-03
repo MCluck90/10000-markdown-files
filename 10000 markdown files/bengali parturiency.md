@@ -84,3 +84,11 @@ In that this I grow to.
 YOU'D better this cat Dinah stop
 : so grave voice If it yer honour.
 
+
+## Wikilinks load test
+
+[[third-rate dressing]]
+[[syrian greenness]]
+[[calyceal howe]]
+[[glary tissue typing]]
+[[arch cat box]]

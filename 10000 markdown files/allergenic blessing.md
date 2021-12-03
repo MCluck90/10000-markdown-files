@@ -84,3 +84,10 @@ Sixteenth added with their fur
 Very soon as it's
 : Hardly knowing what Latitude was Why the moon and were giving it makes me giddy.
 
+
+## Wikilinks load test
+
+[[slanting praya]]
+[[majuscule 2]]
+[[gregorian krebs citric acid cycle]]
+[[subtractive witch hazel]]

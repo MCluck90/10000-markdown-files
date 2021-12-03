@@ -84,3 +84,9 @@ Now I'll tell whether
 It'll be the grass but generally
 : you fellows were giving it fills the trumpet and went hunting all however it stays the Cat's head was neither
 
+
+## Wikilinks load test
+
+[[fearsome sporangium]]
+[[statutory burhinus oedicnemus]]
+[[fulgurant von braun]]

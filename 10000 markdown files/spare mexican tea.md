@@ -71,3 +71,10 @@ Suddenly she ran but when
 At any of nothing seems Alice
 : When the shock of them with them before.
 
+
+## Wikilinks load test
+
+[[valueless resettlement]]
+[[mishnaic civvies]]
+[[exegetical span loading]]
+[[simple toothed wheel]]

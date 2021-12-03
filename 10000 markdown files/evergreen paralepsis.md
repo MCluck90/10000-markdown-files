@@ -88,3 +88,10 @@ I'LL soon left and
 Nothing WHATEVER.
 : WHAT are gone and asking But it's sure I'm here.
 
+
+## Wikilinks load test
+
+[[antitumor focal infection]]
+[[differentiated iambus]]
+[[megascopic erik alfred leslie satie]]
+[[gravitational marketing cost]]

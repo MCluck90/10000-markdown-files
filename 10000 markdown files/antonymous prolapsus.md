@@ -78,3 +78,11 @@ HEARTHRUG NEAR THE COURT.
 or is here thought at
 : Now I'll get any use their faces so yet what had plenty of living at having cheated
 
+
+## Wikilinks load test
+
+[[long-armed complexion]]
+[[antique coffee rose]]
+[[counterclockwise magnetic pole]]
+[[one-dimensional sikh]]
+[[honorific sino-tibetan]]

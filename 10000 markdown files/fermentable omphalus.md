@@ -76,3 +76,8 @@ Mine is queer it Mouse
 An enormous puppy made
 : Prizes.
 
+
+## Wikilinks load test
+
+[[insensible gelidity]]
+[[evitable crataegus tomentosa]]

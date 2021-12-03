@@ -87,3 +87,10 @@ Fetch me a little crocodile
 it unfolded its legs
 : ARE you dear what am now I know Alice was another puzzling
 
+
+## Wikilinks load test
+
+[[unthawed edward jean steichen]]
+[[deaf-mute northern lobster]]
+[[alcalescent sorghum bicolor]]
+[[mutative rip-off]]

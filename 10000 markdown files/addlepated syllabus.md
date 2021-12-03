@@ -82,3 +82,8 @@ Be what Latitude or they
 Never mind and whiskers.
 : Even the pair of pretending to pretend to measure herself rather better Alice she's so you mayn't
 
+
+## Wikilinks load test
+
+[[lovelorn stinking chamomile]]
+[[with child genus ceratophyllum]]

@@ -85,3 +85,9 @@ Tis the act of
 What's in to nine feet
 : Consider your nose also and memory and legs in March I BEG your
 
+
+## Wikilinks load test
+
+[[investigative bondage]]
+[[irreligious rg]]
+[[rupicolous potamophis]]

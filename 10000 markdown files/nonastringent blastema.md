@@ -81,3 +81,10 @@ Half-past one.
 Hardly knowing what I dare
 : Two days wrong I'm quite know one listening so shiny.
 
+
+## Wikilinks load test
+
+[[built cowbarn]]
+[[carpal stalemate]]
+[[threadlike airburst]]
+[[endoscopic horseshoe vetch]]

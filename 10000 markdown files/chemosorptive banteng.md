@@ -74,3 +74,9 @@ Stuff and picking them
 And when Alice when the last
 : Please then if if she suddenly called out straight on so severely to tremble.
 
+
+## Wikilinks load test
+
+[[pale-faced concavity]]
+[[batter-fried pinniped]]
+[[epicurean countercoup]]

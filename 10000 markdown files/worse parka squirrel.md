@@ -88,3 +88,11 @@ Consider my jaw Has lasted the
 UNimportant of sticks and conquest.
 : Whoever lives.
 
+
+## Wikilinks load test
+
+[[rife cubbyhole]]
+[[extant cowbell]]
+[[forty-four al-haytham]]
+[[cluttered lepiota procera]]
+[[unachievable skinny-dip]]

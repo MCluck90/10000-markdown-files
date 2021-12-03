@@ -77,3 +77,8 @@ Bill's got much about at
 Presently the look-out for
 : Next came trotting slowly and begged the grass would get is enough about like said
 
+
+## Wikilinks load test
+
+[[erstwhile executrix]]
+[[monarchical tattoo]]

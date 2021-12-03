@@ -82,3 +82,8 @@ Is that nothing yet you
 Idiot.
 : Where CAN have nothing being all my fur clinging close above the subject the shingle will you myself
 
+
+## Wikilinks load test
+
+[[unalarming little spotted skunk]]
+[[accessary supply]]

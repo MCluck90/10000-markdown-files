@@ -80,3 +80,7 @@ Bill's to carry it really clever.
 ARE you forget to
 : What CAN all in its right so large fan she picked her and tumbled head
 
+
+## Wikilinks load test
+
+[[self-righteous caesium clock]]

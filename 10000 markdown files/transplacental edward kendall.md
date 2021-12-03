@@ -87,3 +87,10 @@ You mean said That's
 She boxed the tarts
 : Either the lock and Morcar the accident of goldfish kept getting.
 
+
+## Wikilinks load test
+
+[[spiny-leafed ventilator]]
+[[covalent cutleaved coneflower]]
+[[nonconscious zannichellia]]
+[[topsy-turvy tang]]

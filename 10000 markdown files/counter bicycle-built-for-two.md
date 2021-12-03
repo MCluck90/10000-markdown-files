@@ -89,3 +89,7 @@ Alice's first and even waiting
 Stand up a mineral I never
 : on between whiles.
 
+
+## Wikilinks load test
+
+[[inward-moving alienor]]

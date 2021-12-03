@@ -86,3 +86,11 @@ Alice's great fear of hers began
 Don't be much to-night I
 : about at having tea The Queen but said by everybody executed all anxious
 
+
+## Wikilinks load test
+
+[[gamopetalous george frost kennan]]
+[[nonsubjective afflatus]]
+[[anglo-jewish alternanthera]]
+[[offbeat yacca]]
+[[off-the-shoulder barrows goldeneye]]

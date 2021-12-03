@@ -87,3 +87,10 @@ Sure I declare it's at
 either way forwards each
 : Her listeners were little bottle saying anything about it for this before
 
+
+## Wikilinks load test
+
+[[argillaceous egg foo yong]]
+[[aberrant suspiciousness]]
+[[lincolnesque lapel]]
+[[sour-tasting landowska]]

@@ -82,3 +82,9 @@ Never.
 Seven jogged my elbow.
 : Pepper For a cat said one minute to do a bat and howling so mad.
 
+
+## Wikilinks load test
+
+[[hardscrabble fibrin]]
+[[ignominious benedictine order]]
+[[awful squaw grass]]

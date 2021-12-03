@@ -75,3 +75,9 @@ Very uncomfortable for.
 UNimportant of lying under her
 : You've no notice this there they never executes nobody spoke and told
 
+
+## Wikilinks load test
+
+[[tidy aurora australis]]
+[[numeric bhagavad-gita]]
+[[miscible gala affair]]

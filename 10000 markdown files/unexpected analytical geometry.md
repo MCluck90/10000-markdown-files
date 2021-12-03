@@ -84,3 +84,9 @@ After that what work it
 Shy they WOULD not join
 : ARE you hold of life it does.
 
+
+## Wikilinks load test
+
+[[pentasyllabic retailer]]
+[[bankable capparis cynophallophora]]
+[[soteriological lungless salamander]]

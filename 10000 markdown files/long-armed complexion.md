@@ -81,3 +81,7 @@ so indeed said I
 Pray how the English
 : These were silent.
 
+
+## Wikilinks load test
+
+[[intense henry the great]]

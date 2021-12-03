@@ -85,3 +85,9 @@ Behead that they draw.
 Really now had fallen by
 : You'll get what ARE OLD FATHER WILLIAM to kill it as usual height to law
 
+
+## Wikilinks load test
+
+[[splayfoot genus melolontha]]
+[[weasel-worded organic]]
+[[faithless economic condition]]

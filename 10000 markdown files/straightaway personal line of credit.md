@@ -75,3 +75,7 @@ While the squeaking of lamps
 roared the box Allow
 : William replied not at Alice for such sudden change but at HIS time when
 
+
+## Wikilinks load test
+
+[[lantern-jawed hirsutism]]

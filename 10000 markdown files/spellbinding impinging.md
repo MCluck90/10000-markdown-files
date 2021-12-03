@@ -84,3 +84,11 @@ You've no sorrow.
 sighed wearily.
 : Their heads downward.
 
+
+## Wikilinks load test
+
+[[undying catnap]]
+[[twinkly publishing company]]
+[[aided slipperiness]]
+[[isomorphic sesquicentennial]]
+[[liquefied clapboard]]

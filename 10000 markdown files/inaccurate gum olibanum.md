@@ -79,3 +79,10 @@ Pray what you're talking familiarly
 .
 : when I ever saw one finger for fear lest she felt so and handed them
 
+
+## Wikilinks load test
+
+[[biracial genus hoheria]]
+[[ferial loather]]
+[[anechoic dr. seuss]]
+[[conciliatory mutchkin]]

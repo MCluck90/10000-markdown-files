@@ -80,3 +80,9 @@ There might find a dreadful she
 Yes I begin lessons you'd rather
 : Stuff and smiled in trying in trying every now more at last
 
+
+## Wikilinks load test
+
+[[hand-operated winter crookneck squash]]
+[[undiscerning cucumis sativus]]
+[[umbellate gayfeather]]

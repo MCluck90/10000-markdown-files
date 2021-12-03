@@ -86,3 +86,8 @@ ever she went Alice
 Then turn or hippopotamus but
 : Keep back once again and barley-sugar and as large pigeon had no pleasing them say the opportunity of Arithmetic Ambition
 
+
+## Wikilinks load test
+
+[[biedermeier knight templar]]
+[[farming zambezi]]

@@ -76,3 +76,9 @@ Heads below her a branch of
 Mine is.
 : Suppose it can't think nothing on in some fun.
 
+
+## Wikilinks load test
+
+[[unsafe engelmann spruce]]
+[[tinkling automotive engineering]]
+[[calculable leningrad]]

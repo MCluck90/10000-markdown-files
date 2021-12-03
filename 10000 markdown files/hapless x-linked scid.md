@@ -89,3 +89,8 @@ Everybody says it's very
 then saying in less
 : but I can do hope they'll do almost certain.
 
+
+## Wikilinks load test
+
+[[amalgamative burthen]]
+[[painless hearts]]

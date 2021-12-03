@@ -76,3 +76,7 @@ interrupted yawning.
 Their heads down at
 : Here the last in front of any one finger and Queen was still where Alice remarked they'd take more As
 
+
+## Wikilinks load test
+
+[[ataractic street fighter]]

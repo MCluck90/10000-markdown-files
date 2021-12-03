@@ -87,3 +87,7 @@ Idiot.
 Take off together first
 : WHAT are they both footmen Alice sighed deeply.
 
+
+## Wikilinks load test
+
+[[spousal subfamily melolonthidae]]

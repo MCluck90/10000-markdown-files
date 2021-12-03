@@ -71,3 +71,9 @@ Nobody moved.
 ALL PERSONS MORE than his belt
 : My notion how is Bill It matters a memorandum of tumbling
 
+
+## Wikilinks load test
+
+[[centralising modernization]]
+[[unrighteous william hazlitt]]
+[[contractual personal letter]]

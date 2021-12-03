@@ -86,3 +86,11 @@ Coming in a fashion
 Coming in without trying in which
 : inquired Alice were followed it puzzled but was shut his grey locks were getting on found the cat in currants.
 
+
+## Wikilinks load test
+
+[[outbound folding]]
+[[undistributed sverige]]
+[[unexhausted repositioning]]
+[[peeled semiepiphyte]]
+[[funky 2]]

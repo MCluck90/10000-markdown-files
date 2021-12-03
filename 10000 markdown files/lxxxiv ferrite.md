@@ -82,3 +82,7 @@ Those whom she listened
 _I_ don't quite out
 : on if my throat.
 
+
+## Wikilinks load test
+
+[[pink-collar spatulate leaf]]

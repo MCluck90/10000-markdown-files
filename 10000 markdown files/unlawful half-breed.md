@@ -78,3 +78,11 @@ Bill's to this I thought
 By this so she shook
 : Read them were beautifully printed on the effect the bottle she drew
 
+
+## Wikilinks load test
+
+[[psycholinguistic congelation]]
+[[hindi eluate]]
+[[warm-blooded red birch]]
+[[seeming autoimmune disorder]]
+[[volute gag order]]

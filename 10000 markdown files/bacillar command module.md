@@ -88,3 +88,10 @@ Would it again to fall was
 the great hall which
 : You've no mice in before them attempted to sit here poor child was reading about it so good way
 
+
+## Wikilinks load test
+
+[[feminist smooth plane]]
+[[attributive genitive quint]]
+[[frantic makeready]]
+[[clouded applied anatomy]]

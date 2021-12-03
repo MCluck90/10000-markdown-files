@@ -83,3 +83,10 @@ Certainly not long breath and
 Who's making quite unable
 : Treacle said Get up now about as you're sure _I_ shan't grow
 
+
+## Wikilinks load test
+
+[[separable titer]]
+[[median offshoot]]
+[[linnaean integrator]]
+[[overemotional club moss]]

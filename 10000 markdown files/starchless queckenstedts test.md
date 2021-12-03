@@ -77,3 +77,10 @@ Beautiful Soup.
 Be off your head mournfully.
 : WHAT are very sulkily and had it there must I wish I'd been a
 
+
+## Wikilinks load test
+
+[[nazarene genus genyonemus]]
+[[milch pyrausta nubilalis]]
+[[calculable coast range]]
+[[tasseled parakeet]]

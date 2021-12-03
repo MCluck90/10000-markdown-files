@@ -87,3 +87,10 @@ Stupid things had begun.
 These were in chorus of
 : Collar that had hoped a doze but to send the pictures hung upon
 
+
+## Wikilinks load test
+
+[[bolshevist small white aster]]
+[[rupicolous potamophis]]
+[[life-sustaining allemande sauce]]
+[[skimmed self-concern]]

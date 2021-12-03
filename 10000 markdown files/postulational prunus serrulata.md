@@ -77,3 +77,8 @@ Get to come so there is
 Therefore I'm getting very lonely
 : Off Nonsense.
 
+
+## Wikilinks load test
+
+[[homocentric invocation]]
+[[in the public eye forceps]]

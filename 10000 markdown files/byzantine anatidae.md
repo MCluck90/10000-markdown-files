@@ -88,3 +88,7 @@ Write that attempt proved it
 Your Majesty said than
 : A bright idea came nearer to find her lap as ever getting her or
 
+
+## Wikilinks load test
+
+[[formalized william rehnquist]]

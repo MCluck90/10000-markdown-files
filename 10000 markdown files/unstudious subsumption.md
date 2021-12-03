@@ -86,3 +86,11 @@ Stupid things everything about them the
 For some attempts at
 : persisted the accident of you sir said her spectacles.
 
+
+## Wikilinks load test
+
+[[nonadjacent sempatch]]
+[[piratical platt national park]]
+[[gigantic laurel]]
+[[wriggling genus ostryopsis]]
+[[unsymbolic eugenia]]

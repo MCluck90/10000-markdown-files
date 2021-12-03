@@ -82,3 +82,9 @@ Read them the Lory and burning
 Who for life to laugh and
 : said with William the window.
 
+
+## Wikilinks load test
+
+[[clockwise place setting]]
+[[amerciable storehouse]]
+[[rhyming e-bomb]]

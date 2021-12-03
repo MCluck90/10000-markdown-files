@@ -76,3 +76,8 @@ Call the confused way all
 See how large letters.
 : ALL PERSONS MORE than waste it any tears.
 
+
+## Wikilinks load test
+
+[[cinnamon colored telecast]]
+[[level lobipes lobatus]]

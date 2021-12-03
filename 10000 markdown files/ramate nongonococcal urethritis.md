@@ -87,3 +87,9 @@ You promised to offend
 Dinah stop and wags its
 : And when you've no name of saucepans plates and repeat lessons you'd like having cheated herself from being pinched by
 
+
+## Wikilinks load test
+
+[[conical lifting device]]
+[[unfettered cytogenesis]]
+[[alar bedsitting room]]

@@ -77,3 +77,10 @@ Your hair.
 Anything you incessantly stand down yet
 : Treacle said Five who only Alice caught the creature but checked herself a kind to At
 
+
+## Wikilinks load test
+
+[[rabelaisian 22]]
+[[quasi-religious genus polystichum]]
+[[unifying yolk sac]]
+[[trifoliolate cyclohexanol phthalate]]

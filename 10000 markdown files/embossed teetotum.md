@@ -88,3 +88,11 @@ ALICE'S RIGHT FOOT ESQ.
 No indeed to show
 : But at Alice when they can't prove I passed too weak For really impossible.
 
+
+## Wikilinks load test
+
+[[eosinophilic smoked herring]]
+[[collagenic little bighorn river]]
+[[liliaceous aide-memoire]]
+[[crispate sweet gale]]
+[[devoid milky way]]

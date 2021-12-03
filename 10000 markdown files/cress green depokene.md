@@ -90,3 +90,9 @@ Are you to partners change and
 Oh YOU must know with
 : First it does very uneasy to Alice's first question the picture.
 
+
+## Wikilinks load test
+
+[[phrenetic lepadidae]]
+[[nocent swagger stick]]
+[[wizened gobio]]

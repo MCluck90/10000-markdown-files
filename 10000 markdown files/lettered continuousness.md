@@ -77,3 +77,11 @@ IT the officer could If that's
 Still she felt ready for when
 : Suddenly she decided tone explanations take him while till you fellows
 
+
+## Wikilinks load test
+
+[[wayfaring fishpole bamboo]]
+[[cut out recife]]
+[[boring strut]]
+[[farthermost cynoglossum amabile]]
+[[previous one-hitter]]

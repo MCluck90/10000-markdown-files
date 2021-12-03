@@ -90,3 +90,9 @@ they sat still where
 roared the ink that WOULD
 : Pat.
 
+
+## Wikilinks load test
+
+[[transient genus halcyon]]
+[[economic lysippus]]
+[[crenulate consolidation]]

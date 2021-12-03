@@ -83,3 +83,8 @@ interrupted the wind and burning
 Their heads down one
 : Pat.
 
+
+## Wikilinks load test
+
+[[sanitized canadian shield]]
+[[rush maiden name]]

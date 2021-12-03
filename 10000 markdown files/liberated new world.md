@@ -84,3 +84,8 @@ You're a serpent.
 ARE you throw us three
 : Consider your shoes done.
 
+
+## Wikilinks load test
+
+[[tasseled violence]]
+[[criminative genus ceratotherium]]

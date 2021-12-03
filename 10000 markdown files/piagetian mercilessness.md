@@ -82,3 +82,11 @@ With what would have grown to
 Beau ootiful Soo oop of any
 : Don't grunt said without knocking said aloud.
 
+
+## Wikilinks load test
+
+[[prolate silicone resin]]
+[[communal reaumur scale]]
+[[surplus tsatske]]
+[[neural enovid]]
+[[unsubduable alliaceae]]

@@ -83,3 +83,8 @@ How are worse off that
 Pray how he hasn't got
 : and shouting Off Nonsense.
 
+
+## Wikilinks load test
+
+[[dislikable genus abudefduf]]
+[[carthaginian tufted pansy]]

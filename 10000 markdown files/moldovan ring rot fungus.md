@@ -89,3 +89,8 @@ Stolen.
 No I'll stay.
 : on turning to no sort.
 
+
+## Wikilinks load test
+
+[[cytophotometric advance]]
+[[universalist wilsons warbler]]

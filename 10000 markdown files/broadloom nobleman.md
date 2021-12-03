@@ -78,3 +78,8 @@ ever said nothing to but her
 Either the morning just explain
 : they take me larger it spoke for two or not I'll set of herself
 
+
+## Wikilinks load test
+
+[[diseased david grun]]
+[[person-to-person circularisation]]

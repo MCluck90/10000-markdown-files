@@ -82,3 +82,11 @@ Indeed she carried it
 it began by being
 : You're wrong.
 
+
+## Wikilinks load test
+
+[[ataraxic trespass de bonis asportatis]]
+[[pennate inductor]]
+[[tameable jamison]]
+[[overpowering capelin]]
+[[malodorous genus commiphora]]

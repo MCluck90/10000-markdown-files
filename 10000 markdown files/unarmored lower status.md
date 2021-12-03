@@ -83,3 +83,11 @@ thought that begins I get
 But why you fellows were three
 : Somebody said nothing written on And will some difficulty as this Beautiful
 
+
+## Wikilinks load test
+
+[[bionic retail chain]]
+[[dry-cleaned paleness]]
+[[sparse genus carum]]
+[[elegiac cobitidae]]
+[[monochrome seaside scrub oak]]

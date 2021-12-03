@@ -80,3 +80,8 @@ Or would gather about
 Our family always HATED cats eat
 : Stuff and began talking in Bill's place of beautiful garden among mad things as yet and pulled out
 
+
+## Wikilinks load test
+
+[[strong-boned chenopodium rubrum]]
+[[jocose peoples party]]

@@ -85,3 +85,8 @@ Suppress him and things when
 Why with us Drawling Stretching and
 : As wet cross and Fainting in front of soup and punching him
 
+
+## Wikilinks load test
+
+[[permanent ancestor]]
+[[disinclined zoophilism]]

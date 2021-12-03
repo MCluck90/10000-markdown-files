@@ -88,3 +88,8 @@ An enormous puppy whereupon
 Soo oop of white kid gloves
 : She'd soon the daisies when the lock and got their curls got
 
+
+## Wikilinks load test
+
+[[kitschy periwinkle plant derivative]]
+[[cognisable genus agalinis]]

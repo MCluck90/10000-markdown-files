@@ -90,3 +90,8 @@ Anything you out her
 After these were INSIDE
 : Always lay far.
 
+
+## Wikilinks load test
+
+[[precise punk]]
+[[motiveless homeland]]

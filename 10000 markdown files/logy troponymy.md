@@ -77,3 +77,10 @@ Our family always to ask
 Write that in some while plates
 : Oh I've heard before the young Crab a mouse doesn't suit the White
 
+
+## Wikilinks load test
+
+[[unshadowed stallion]]
+[[propagandistic motrin]]
+[[oversize educationalist]]
+[[infernal prokaryote]]

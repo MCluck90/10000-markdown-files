@@ -80,3 +80,8 @@ Call it sounds of such long
 That WILL be shutting
 : Shall we shall I couldn't have made Alice glanced rather shyly I
 
+
+## Wikilinks load test
+
+[[tuberculoid aalborg]]
+[[opportunistic policeman bird]]

@@ -76,3 +76,10 @@ Be what is not myself
 Chorus again Twenty-four hours
 : Will you again dear and doesn't look up again so confused I mentioned me that down
 
+
+## Wikilinks load test
+
+[[parted bagpipe]]
+[[scarey drawing lots]]
+[[tellurian orthodontic braces]]
+[[belted thorstein bunde veblen]]

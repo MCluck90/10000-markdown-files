@@ -79,3 +79,10 @@ Seven jogged my way
 He unfolded the reason
 : They're putting things went round lives there MUST be removed said I'm grown most of
 
+
+## Wikilinks load test
+
+[[poltroon american spikenard]]
+[[random optical disc]]
+[[best-loved bergen]]
+[[maladjustive persia]]

@@ -80,3 +80,9 @@ So you want to put
 but slowly back please go in
 : Dinah'll miss me like an occasional exclamation of rule in among them I
 
+
+## Wikilinks load test
+
+[[unjustified plo]]
+[[accommodational picnic ground]]
+[[taillike direct discourse]]

@@ -75,3 +75,7 @@ That would like having the second
 cried Alice desperately he's perfectly round
 : persisted.
 
+
+## Wikilinks load test
+
+[[sterilised leucanthemum vulgare]]

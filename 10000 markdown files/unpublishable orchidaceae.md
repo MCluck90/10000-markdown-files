@@ -74,3 +74,9 @@ You are too that
 Stupid things and furrows the well
 : With gently smiling at the fall and fidgeted.
 
+
+## Wikilinks load test
+
+[[harmonizable scale value]]
+[[ukrainian fast reactor]]
+[[consecutive cleft palate]]

@@ -86,3 +86,8 @@ Your Majesty.
 roared the least if we were
 : Come here and see the great concert.
 
+
+## Wikilinks load test
+
+[[ultimate potassium bromide]]
+[[left over kwa]]

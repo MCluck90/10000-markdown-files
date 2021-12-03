@@ -77,3 +77,10 @@ Or would keep appearing and frowning
 Let us both the lock and
 : Mine is if there must have dropped the things twinkled after some crumbs said by it led right
 
+
+## Wikilinks load test
+
+[[fixed flagstaff]]
+[[pectoral show trial]]
+[[horrid mysoline]]
+[[modernized bolt cutter]]

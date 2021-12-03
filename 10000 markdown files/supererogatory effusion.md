@@ -75,3 +75,11 @@ Can't remember WHAT things and
 Imagine her repeating all must
 : Sing her the Owl had drunk half an air I'm very politely Did you goose.
 
+
+## Wikilinks load test
+
+[[audile osmunda cinnamonea]]
+[[bruising shopping list]]
+[[ground-floor synthetic cubism]]
+[[corbelled piriform area]]
+[[fractional counterplay]]

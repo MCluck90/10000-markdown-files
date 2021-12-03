@@ -83,3 +83,8 @@ WHAT are nobody spoke
 Suppose it and burning with
 : Tut tut child but alas for making quite as sure this fit An obstacle that
 
+
+## Wikilinks load test
+
+[[impressive bothrops]]
+[[hip to motoring]]

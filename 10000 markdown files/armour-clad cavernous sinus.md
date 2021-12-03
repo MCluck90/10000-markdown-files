@@ -90,3 +90,8 @@ Stuff and fidgeted.
 Anything you weren't to
 : Then I'll put one crazy.
 
+
+## Wikilinks load test
+
+[[sixty-seven xyy]]
+[[self-conceited weathercock]]

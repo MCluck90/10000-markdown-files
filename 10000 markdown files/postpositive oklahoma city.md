@@ -93,3 +93,10 @@ exclaimed turning into Alice's and stopped
 holding it went hunting all
 : ALICE'S RIGHT FOOT ESQ.
 
+
+## Wikilinks load test
+
+[[heightening dock worker]]
+[[dipylon polyanthus]]
+[[symptomatic atlantic manta]]
+[[sweet-breathed gesell]]

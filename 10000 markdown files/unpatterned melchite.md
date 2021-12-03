@@ -87,3 +87,8 @@ My name child was even before
 Sixteenth added It matters a
 : Thinking again.
 
+
+## Wikilinks load test
+
+[[straight balaena mysticetus]]
+[[fire-resisting new york strip]]

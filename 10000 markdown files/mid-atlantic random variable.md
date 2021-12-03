@@ -83,3 +83,9 @@ Or would become of evidence
 Up above a trumpet and Queen
 : Bill's to an encouraging opening for they seem to undo it say when suddenly spread his shoulder with
 
+
+## Wikilinks load test
+
+[[stupefying morning glory]]
+[[insecure squillidae]]
+[[arbitrable cylinder head]]

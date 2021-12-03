@@ -81,3 +81,8 @@ IT TO YOU said
 They're putting down here
 : Found IT.
 
+
+## Wikilinks load test
+
+[[inflatable disembodied spirit]]
+[[chemosorptive banteng]]

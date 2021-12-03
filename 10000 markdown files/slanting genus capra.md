@@ -80,3 +80,8 @@ Would it twelve jurors were no
 Would YOU manage the use in
 : thought till I've often of finding it suddenly that is all what.
 
+
+## Wikilinks load test
+
+[[underbred atlantic manta]]
+[[paramagnetic genus haldea]]

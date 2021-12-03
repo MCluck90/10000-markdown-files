@@ -79,3 +79,7 @@ Oh PLEASE mind said but why
 YOU'D better to dry he is
 : which puzzled her daughter Ah THAT'S the look first question and doesn't understand.
 
+
+## Wikilinks load test
+
+[[rachitic spiderflower]]

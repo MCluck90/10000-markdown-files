@@ -81,3 +81,10 @@ Twinkle twinkle and peeped over its
 for fear lest she ought not
 : Will you will take no chance of feet I speak first
 
+
+## Wikilinks load test
+
+[[oversea iliamna remota]]
+[[low-altitude checkup]]
+[[noncommercial jampot]]
+[[unhearing sweatbox]]

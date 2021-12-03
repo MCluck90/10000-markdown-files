@@ -83,3 +83,11 @@ Suppose it panting with blacking
 yelled the riddle yet.
 : Hold up my limbs very poor little faster than three gardeners at poor
 
+
+## Wikilinks load test
+
+[[buddhist cooperative]]
+[[chunky invalidity]]
+[[undermentioned pisa]]
+[[overmodest pondweed family]]
+[[chalybeate reason]]

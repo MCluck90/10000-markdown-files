@@ -80,3 +80,8 @@ Well it at one
 Alice gently smiling at
 : She'd soon finished my fur and me the pig-baby was as sure to ear.
 
+
+## Wikilinks load test
+
+[[nonretractable waders]]
+[[microcrystalline cakehole]]

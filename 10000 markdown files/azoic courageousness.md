@@ -82,3 +82,7 @@ Write that came different and
 Let us all would
 : they COULD.
 
+
+## Wikilinks load test
+
+[[registered gambol]]

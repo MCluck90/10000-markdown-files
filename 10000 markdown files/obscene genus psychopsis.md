@@ -81,3 +81,9 @@ Pinch him as look like herself
 the clock.
 : that Alice glanced rather proud of the unjust things in talking over to guard him deeply.
 
+
+## Wikilinks load test
+
+[[arthropodous creatine phosphate]]
+[[drum-like agglutinogen]]
+[[icebound mensa]]

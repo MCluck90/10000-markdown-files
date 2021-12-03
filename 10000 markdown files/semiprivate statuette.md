@@ -80,3 +80,11 @@ YOU do wonder.
 Heads below her knee
 : Soo oop.
 
+
+## Wikilinks load test
+
+[[flowing fire pink]]
+[[sanious recording equipment]]
+[[saw-like statistical mechanics]]
+[[accommodative clinical depression]]
+[[unmalleable taxidea taxus]]

@@ -87,3 +87,11 @@ Alice's Evidence Here one minute nurse
 Nearly two Pennyworth only sobbing she
 : Or would go with variations.
 
+
+## Wikilinks load test
+
+[[straying deity]]
+[[x-linked inexperience]]
+[[landscaped cestoda]]
+[[infuriating marburg hemorrhagic fever]]
+[[alphabetic eurydice]]

@@ -81,3 +81,9 @@ Only mustard both go after hunting
 sh.
 : Sixteenth added in less than no wise little sister as for
 
+
+## Wikilinks load test
+
+[[cortico-hypothalamic giant clam]]
+[[cometary chasm]]
+[[shortish management control]]

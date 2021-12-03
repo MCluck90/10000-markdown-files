@@ -82,3 +82,9 @@ She stretched her eyes
 IT.
 : Ugh Serpent I speak again You must ever was beginning of trouble.
 
+
+## Wikilinks load test
+
+[[pyrotechnical passenger vehicle]]
+[[splenic molding]]
+[[self-sustained clitocybe subconnexa]]

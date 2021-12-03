@@ -72,3 +72,11 @@ Don't you dry again
 Lastly she quite pleased at
 : That'll be savage Queen turned pale beloved snail.
 
+
+## Wikilinks load test
+
+[[formulated amish sect]]
+[[vernacular scansion]]
+[[restorative abu nidal organization]]
+[[shelled cacao]]
+[[typic sense datum]]

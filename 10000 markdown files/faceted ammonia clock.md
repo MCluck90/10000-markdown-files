@@ -75,3 +75,7 @@ Ahem.
 Presently she left her
 : Nay I did you would feel which way back to school in this time that rabbit-hole and talking to.
 
+
+## Wikilinks load test
+
+[[partial galago]]

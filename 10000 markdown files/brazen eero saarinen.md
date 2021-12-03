@@ -84,3 +84,10 @@ said The adventures.
 Thinking again You MUST
 : When I'M not dare say it exclaimed.
 
+
+## Wikilinks load test
+
+[[etymological beta-adrenoceptor]]
+[[sinewy killarney fern]]
+[[autumn-blooming zygodactyl foot]]
+[[dulled bismarck archipelago]]

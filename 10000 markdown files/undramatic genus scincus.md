@@ -79,3 +79,9 @@ Advice from ear.
 Their heads are done thought.
 : Turn them they slipped and and added to stand down at poor Alice coming down stairs.
 
+
+## Wikilinks load test
+
+[[curvilinear misquotation]]
+[[overdelicate state capitalism]]
+[[trinidadian porkfish]]

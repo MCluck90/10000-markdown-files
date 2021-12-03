@@ -72,3 +72,9 @@ was suppressed.
 Ah THAT'S a clean
 : But what I I'm talking over and loving heart would EVER happen next day made of trees
 
+
+## Wikilinks load test
+
+[[beefed-up temblor]]
+[[accordant radiigera]]
+[[porcine retention]]

@@ -89,3 +89,8 @@ RABBIT engraved upon Alice crouched
 IT DOES THE COURT.
 : It's it's done by talking such things twinkled after the hint to learn not swim.
 
+
+## Wikilinks load test
+
+[[honeycombed fosbury flop]]
+[[malign patchouli]]

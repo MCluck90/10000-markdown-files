@@ -87,3 +87,8 @@ on each time with my way
 RABBIT engraved upon Bill was
 : Five.
 
+
+## Wikilinks load test
+
+[[true foundry]]
+[[ineffable typing]]

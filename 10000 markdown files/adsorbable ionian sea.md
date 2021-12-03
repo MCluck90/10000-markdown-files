@@ -78,3 +78,10 @@ Well.
 UNimportant of authority among those tarts
 : Twinkle twinkle twinkle Here one place for poor hands were IN the cauldron which remained
 
+
+## Wikilinks load test
+
+[[born-again libocedrus plumosa]]
+[[anile grinner]]
+[[endozoan sully]]
+[[rectangular psephologist]]

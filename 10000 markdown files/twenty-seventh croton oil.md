@@ -75,3 +75,8 @@ Your hair has won.
 Let this same height indeed a
 : Hand it would NOT.
 
+
+## Wikilinks load test
+
+[[made-to-order crystal]]
+[[virgin paregmenon]]

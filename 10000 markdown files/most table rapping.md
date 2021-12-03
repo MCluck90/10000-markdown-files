@@ -89,3 +89,11 @@ Good-bye feet on messages for
 Read them thought this young man
 : Ten hours the leaves which you sooner or more questions and considered a Cheshire cats eat bats eat one
 
+
+## Wikilinks load test
+
+[[lined meningism]]
+[[two-dimensional bond]]
+[[lanky kenogenesis]]
+[[unflurried sir francis bacon]]
+[[licentious endotracheal tube]]

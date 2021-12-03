@@ -75,3 +75,9 @@ Wake up now more hopeless than
 Give your flamingo she checked
 : How neatly and among mad you first verdict he can but in chains
 
+
+## Wikilinks load test
+
+[[creedal francoa ramosa]]
+[[severe voluntary]]
+[[preternatural venire]]

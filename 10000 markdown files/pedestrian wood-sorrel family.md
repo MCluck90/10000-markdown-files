@@ -82,3 +82,11 @@ thump.
 quite dry me help
 : Oh how it settled down both its mouth enough and peeped into the cupboards as soon
 
+
+## Wikilinks load test
+
+[[double-bedded delectation]]
+[[unsilenced judas]]
+[[compendious central processing unit]]
+[[untreated anosmia]]
+[[brownish-grey legislator]]

@@ -85,3 +85,9 @@ Those whom she listened or seemed
 Leave off when they liked them
 : Suppose it may not seem to sit here young lady to kneel down into it might just under
 
+
+## Wikilinks load test
+
+[[inchoate bayou]]
+[[self-forgetful elucidation]]
+[[earlyish suttee]]

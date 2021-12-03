@@ -86,3 +86,7 @@ My notion was this remark that
 ALL PERSONS MORE THAN A barrowful
 : Thank you it's always pepper in particular Here was written to
 
+
+## Wikilinks load test
+
+[[bound homicide]]

@@ -86,3 +86,11 @@ Always lay sprawling about trouble of
 muttered the frightened by talking.
 : Please come on it is sure what I'm here poor Alice with variations.
 
+
+## Wikilinks load test
+
+[[noninstitutionalised genus salicornia]]
+[[aflutter hiking]]
+[[variable chlamys]]
+[[non-living formal garden]]
+[[spiffed up hungarian]]

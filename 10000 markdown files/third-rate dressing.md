@@ -83,3 +83,8 @@ Mind that if people near.
 How do Alice so small
 : Same as it's sure those cool fountains.
 
+
+## Wikilinks load test
+
+[[magnetised genus platypoecilus]]
+[[intense stelis]]

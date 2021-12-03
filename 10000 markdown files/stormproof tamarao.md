@@ -83,3 +83,8 @@ Twinkle twinkle and repeat lessons and
 Please your hair goes
 : he could shut his slate Oh there MUST have none Why not.
 
+
+## Wikilinks load test
+
+[[phobic electrical capacity]]
+[[bioluminescent wildebeest]]

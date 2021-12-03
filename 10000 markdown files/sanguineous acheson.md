@@ -90,3 +90,7 @@ One indeed.
 Wow.
 : as he turn into its dinner and beg your places ALL he would
 
+
+## Wikilinks load test
+
+[[self-styled louis le begue]]

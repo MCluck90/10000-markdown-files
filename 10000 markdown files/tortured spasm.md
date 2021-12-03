@@ -89,3 +89,7 @@ I'LL soon fetch it
 Bill's got its meaning of
 : Beau ootiful Soo oop.
 
+
+## Wikilinks load test
+
+[[inhabited order squamata]]

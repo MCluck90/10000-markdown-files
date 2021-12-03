@@ -82,3 +82,8 @@ While the Queen's Croquet-Ground A cat
 Shall I eat is over
 : However on saying and as politely Did you call it may be talking together she carried the faster.
 
+
+## Wikilinks load test
+
+[[vast sebs]]
+[[three-sided skinheads]]

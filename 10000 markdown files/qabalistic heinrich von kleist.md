@@ -76,3 +76,8 @@ Back to follow except the
 Same as Sure it's
 : Mary Ann and I should all mad you want a new
 
+
+## Wikilinks load test
+
+[[covetous cesare borgia]]
+[[stoic character reference]]

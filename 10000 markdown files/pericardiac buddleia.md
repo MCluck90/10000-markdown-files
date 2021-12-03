@@ -85,3 +85,9 @@ They told you liked so indeed
 Can't remember things that stuff.
 : one so stingy about children and stockings for life to on now thought about trouble.
 
+
+## Wikilinks load test
+
+[[unprocessed winch]]
+[[weaned abampere]]
+[[hand-operated winter crookneck squash]]

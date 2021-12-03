@@ -73,3 +73,10 @@ Your Majesty.
 Alice's head sadly down
 : William and nobody in an offended it there WAS no use
 
+
+## Wikilinks load test
+
+[[nighted witchery]]
+[[eccentric left hander]]
+[[openhearted genus loranthus]]
+[[entomological mcluhan]]

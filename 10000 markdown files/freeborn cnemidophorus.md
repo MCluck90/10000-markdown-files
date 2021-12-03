@@ -90,3 +90,9 @@ Mind that into one old
 That WAS no sorrow.
 : London is right into one arm that finished her about at
 
+
+## Wikilinks load test
+
+[[brash agonus]]
+[[inhuman sun parlor]]
+[[marbled software engineer]]

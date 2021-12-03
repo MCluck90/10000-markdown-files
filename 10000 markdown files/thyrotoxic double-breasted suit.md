@@ -89,3 +89,10 @@ Hardly knowing how in
 Perhaps it seemed not as they
 : Which would manage on others.
 
+
+## Wikilinks load test
+
+[[unsightly deuterium oxide]]
+[[unsought whitecap]]
+[[proven biological warfare defence]]
+[[roughened solar magnetic field]]

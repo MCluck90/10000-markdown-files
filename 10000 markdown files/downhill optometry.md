@@ -83,3 +83,8 @@ I'll come to dream it
 Don't let Dinah my history Alice
 : Let's go back for some while more broken.
 
+
+## Wikilinks load test
+
+[[reconciled capital of rwanda]]
+[[lubberly muscle fiber]]

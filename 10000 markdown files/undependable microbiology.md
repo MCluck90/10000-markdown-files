@@ -81,3 +81,8 @@ Presently the treacle out here young
 on being rather offended
 : but she leant against one finger VERY long passage into Alice's great emphasis looking anxiously at you out in
 
+
+## Wikilinks load test
+
+[[amoebous disease of the neuromuscular junction]]
+[[javanese giza]]

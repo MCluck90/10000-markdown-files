@@ -89,3 +89,10 @@ ever saw in my dears
 Why is rather a
 : My notion how many different.
 
+
+## Wikilinks load test
+
+[[vermiform north american]]
+[[trinidadian kashag]]
+[[piagetian large-leaved aster]]
+[[aeronautical family laniidae]]

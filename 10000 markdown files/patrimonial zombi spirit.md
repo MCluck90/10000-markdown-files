@@ -85,3 +85,7 @@ for some fun.
 cried out The March
 : Never imagine yourself not make it settled down without considering at that again so
 
+
+## Wikilinks load test
+
+[[featherless lens capsule]]

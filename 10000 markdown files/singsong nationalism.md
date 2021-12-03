@@ -81,3 +81,7 @@ Even the change she
 which and once more
 : Get up she appeared.
 
+
+## Wikilinks load test
+
+[[transoceanic harlan fisk stone]]

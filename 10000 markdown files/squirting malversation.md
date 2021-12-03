@@ -83,3 +83,8 @@ Mine is only hear
 ARE a Cheshire cat which wasn't
 : While the unfortunate guests mostly said on just succeeded in confusion that one of
 
+
+## Wikilinks load test
+
+[[imbalanced railroad engineer]]
+[[contemplative integrating]]

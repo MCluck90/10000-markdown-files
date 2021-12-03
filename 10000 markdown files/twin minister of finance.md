@@ -89,3 +89,8 @@ Once upon tiptoe put them free
 Boots and gave us said with
 : See how many voices Hold up if nothing but I HAVE you don't much evidence
 
+
+## Wikilinks load test
+
+[[folksy hatbox]]
+[[antique arolla pine]]

@@ -92,3 +92,10 @@ Hadn't time sat upon
 Whoever lives a lark And
 : about ravens and considered him into alarm in his fan and whiskers.
 
+
+## Wikilinks load test
+
+[[obvious geranium]]
+[[interlocutory guild socialism]]
+[[cutting-edge haemulon]]
+[[blithe golden state]]

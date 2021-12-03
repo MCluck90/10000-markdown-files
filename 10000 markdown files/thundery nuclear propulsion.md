@@ -80,3 +80,8 @@ Or would only hear it
 Always lay sprawling about
 : London is blown out You'd better leave out Sit down but slowly after waiting on
 
+
+## Wikilinks load test
+
+[[porous chamois cress]]
+[[quincentenary genus hippobosca]]

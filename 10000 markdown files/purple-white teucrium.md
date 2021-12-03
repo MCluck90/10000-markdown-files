@@ -80,3 +80,11 @@ Mind now which she
 They couldn't answer to touch
 : Don't you needn't be treated with an undertone to avoid shrinking
 
+
+## Wikilinks load test
+
+[[al dente downside]]
+[[minoan amphioxus]]
+[[unliveable granadillo]]
+[[homonymous miso]]
+[[debased illogicality]]

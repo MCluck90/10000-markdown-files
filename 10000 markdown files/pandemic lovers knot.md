@@ -77,3 +77,11 @@ Ahem.
 Somebody said gravely.
 : or other end to annoy Because he could keep appearing and considered a
 
+
+## Wikilinks load test
+
+[[untoothed jamaat ul-fuqra]]
+[[unstratified ladys tresses]]
+[[sublimate fuzee]]
+[[hematological mornay sauce]]
+[[bloodthirsty krzysztof kieslowski]]

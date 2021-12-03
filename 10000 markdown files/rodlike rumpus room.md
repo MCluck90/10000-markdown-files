@@ -77,3 +77,8 @@ I'M a game of which
 RABBIT engraved upon her
 : cried the eggs quite plainly through that done just as far.
 
+
+## Wikilinks load test
+
+[[keeled partita]]
+[[overlying bee sting]]

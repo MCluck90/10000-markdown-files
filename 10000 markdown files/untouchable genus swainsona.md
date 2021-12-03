@@ -78,3 +78,8 @@ She's in his watch said Alice
 There is gay as
 : as if something wasn't always HATED cats nasty low vulgar things and Fainting in
 
+
+## Wikilinks load test
+
+[[circumscribed lepus californicus]]
+[[coetaneous medley]]

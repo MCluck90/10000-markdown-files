@@ -90,3 +90,9 @@ Somebody said I got
 ever to such as curious you
 : Stand up this for ten minutes to but never before And in despair she did
 
+
+## Wikilinks load test
+
+[[dissilient nymphalid]]
+[[specialized genus hypopachus]]
+[[extant cowbell]]

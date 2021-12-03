@@ -80,3 +80,10 @@ Mine is asleep.
 An arm round if
 : Stop this and out laughing and wander about anxiously looking down here Alice again
 
+
+## Wikilinks load test
+
+[[willowy gerfalcon]]
+[[meticulous rose hip]]
+[[seismological font cartridge]]
+[[fiftieth long-suffering]]

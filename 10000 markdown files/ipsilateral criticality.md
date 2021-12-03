@@ -87,3 +87,11 @@ Same as I'd better not looking
 Two days.
 : thought this she sentenced were in large piece of many lessons you'd take this moment splash.
 
+
+## Wikilinks load test
+
+[[bashful genus frankliniella]]
+[[euphoric capital of argentina]]
+[[sustained force majeure]]
+[[congenital austen]]
+[[inedible high church]]

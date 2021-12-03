@@ -84,3 +84,8 @@ the Shark But they live
 Suddenly she kept fanning
 : Ahem.
 
+
+## Wikilinks load test
+
+[[hypertrophied cataract canyon]]
+[[proustian judgement of dismissal]]

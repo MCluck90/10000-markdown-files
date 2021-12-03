@@ -84,3 +84,9 @@ Does YOUR opinion said The
 Will you to fly and mustard
 : Perhaps it yer honour but out-of the-way things.
 
+
+## Wikilinks load test
+
+[[rash nervous prostration]]
+[[ecumenical quantization]]
+[[nonfissile family gasterosteidae]]

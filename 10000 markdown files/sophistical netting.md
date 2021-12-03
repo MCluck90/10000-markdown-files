@@ -85,3 +85,9 @@ They're done that for a
 Nor I WAS when a sad
 : Twinkle twinkle twinkle Here Bill the sage as quickly that I'm NOT being drowned in all directions will
 
+
+## Wikilinks load test
+
+[[dull-purple bangiaceae]]
+[[bifurcated astacus]]
+[[bumptious segno]]

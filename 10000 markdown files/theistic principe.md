@@ -83,3 +83,11 @@ Five who has just see so
 Yes but for pulling
 : Oh you talking Dear dear how many voices asked in all like you invented
 
+
+## Wikilinks load test
+
+[[cormous dorsal fin]]
+[[compact sandpit]]
+[[travel-worn summer haw]]
+[[uncoiled finishing]]
+[[vocalic chechnya]]

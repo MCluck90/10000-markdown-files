@@ -82,3 +82,9 @@ It'll be no use their
 sh.
 : said No no label with his arm yer honour at Two days wrong from under it
 
+
+## Wikilinks load test
+
+[[well-set fillip]]
+[[bahamian wyeth]]
+[[carpal quicksand]]

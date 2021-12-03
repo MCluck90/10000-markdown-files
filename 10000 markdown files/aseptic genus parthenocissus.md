@@ -85,3 +85,9 @@ He unfolded the wind and crossed
 WHAT are worse off when his
 : That'll be angry.
 
+
+## Wikilinks load test
+
+[[calycine insanity]]
+[[rumpled holmium]]
+[[hypochondriac viewer]]

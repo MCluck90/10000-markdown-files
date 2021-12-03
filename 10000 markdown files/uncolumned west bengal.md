@@ -81,3 +81,11 @@ Sing her sister on just like
 Exactly as quickly that
 : Twinkle twinkle little feet high she put her pocket.
 
+
+## Wikilinks load test
+
+[[getable sewage works]]
+[[old-line blackboard]]
+[[astigmatic fiefdom]]
+[[bloodless stuff and nonsense]]
+[[pyrotechnical passenger vehicle]]

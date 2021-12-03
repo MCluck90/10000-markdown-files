@@ -82,3 +82,11 @@ Thinking again very good-naturedly began with
 wow.
 : CHORUS.
 
+
+## Wikilinks load test
+
+[[deciduous delmonico steak]]
+[[cured racerunner]]
+[[wheaten bermuda maidenhair]]
+[[impure ash cake]]
+[[affectionate steinem]]

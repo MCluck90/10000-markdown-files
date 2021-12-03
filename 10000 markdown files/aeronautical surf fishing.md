@@ -75,3 +75,7 @@ Prizes.
 was hardly suppose.
 : Pinch him deeply.
 
+
+## Wikilinks load test
+
+[[squeezable pocket knife]]

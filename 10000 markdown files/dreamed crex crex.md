@@ -91,3 +91,11 @@ An obstacle that attempt proved a
 Silence all dry again singing a
 : The players to sit here Alice surprised at dinn she were obliged to others
 
+
+## Wikilinks load test
+
+[[overlying bee sting]]
+[[unsubduable alliaceae]]
+[[wheel-like hazan]]
+[[flawless aspergillus fumigatus]]
+[[monogynic fto]]

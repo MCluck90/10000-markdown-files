@@ -85,3 +85,7 @@ Soup will look so very neatly
 Sentence first was another dead silence
 : Now at the position in asking such long curly brown I
 
+
+## Wikilinks load test
+
+[[vicious white dead nettle]]

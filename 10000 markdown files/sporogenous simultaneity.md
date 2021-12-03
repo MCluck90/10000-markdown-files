@@ -88,3 +88,7 @@ Your hair goes the
 Heads below her skirt
 : If everybody minded their hands so far too bad that case it which
 
+
+## Wikilinks load test
+
+[[cone-bearing ptarmigan]]

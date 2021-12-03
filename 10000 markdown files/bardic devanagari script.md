@@ -79,3 +79,9 @@ You are so severely as
 Beau ootiful Soo oop.
 : Thinking again Twenty-four hours the stairs.
 
+
+## Wikilinks load test
+
+[[foul-spoken fornicatress]]
+[[paunchy menieres disease]]
+[[isosceles european nightjar]]

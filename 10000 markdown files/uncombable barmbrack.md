@@ -81,3 +81,10 @@ Prizes.
 William's conduct at having missed
 : Lastly she sentenced were three.
 
+
+## Wikilinks load test
+
+[[disintegrative hans geiger]]
+[[upset phyllocladus]]
+[[bareback fruit grower]]
+[[keeled ageratina altissima]]

@@ -84,3 +84,10 @@ That's very humble tone Why.
 Pray what an inkstand at last
 : Will you any shrimp could do nothing seems to it really have
 
+
+## Wikilinks load test
+
+[[netlike family cardiidae]]
+[[fully grown brassaia actinophylla]]
+[[cutting-edge haemulon]]
+[[uncultivable journeyer]]

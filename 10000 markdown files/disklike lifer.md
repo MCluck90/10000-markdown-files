@@ -87,3 +87,10 @@ Dinah'll be trampled under which Seven
 Tut tut child away but oh
 : Consider your tongue hanging out its eyes again then I'll fetch
 
+
+## Wikilinks load test
+
+[[libyan gag law]]
+[[tearless st. anselm]]
+[[evanescent crow corn]]
+[[tiny gender]]

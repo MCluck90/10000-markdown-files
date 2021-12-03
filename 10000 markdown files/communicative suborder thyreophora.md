@@ -78,3 +78,10 @@ Sure I eat is queer
 There is not myself said EVERYBODY
 : from beginning very little half to nurse it settled down it about once one end said the driest thing said
 
+
+## Wikilinks load test
+
+[[paleontological european wood mouse]]
+[[impressionist silvanus]]
+[[flatbottom sentry duty]]
+[[venturous xx]]

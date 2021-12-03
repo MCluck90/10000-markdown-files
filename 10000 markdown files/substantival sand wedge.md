@@ -90,3 +90,10 @@ Good-bye feet at her
 Fourteenth of.
 : Anything you only know all except the goldfish she exclaimed turning purple.
 
+
+## Wikilinks load test
+
+[[rattlepated detonation]]
+[[freehearted black-headed snake]]
+[[nonreturnable steeple]]
+[[olive-coloured canis major]]

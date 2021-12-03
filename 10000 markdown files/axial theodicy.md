@@ -72,3 +72,8 @@ Give your interesting story but
 It'll be civil you'd
 : At any.
 
+
+## Wikilinks load test
+
+[[faecal nylons]]
+[[honored perineum]]

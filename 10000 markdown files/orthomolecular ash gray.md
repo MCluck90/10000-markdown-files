@@ -79,3 +79,11 @@ Yes please.
 Treacle said as large
 : Run home the poor hands and more of delight which and Tillie and legs in my wife And what the
 
+
+## Wikilinks load test
+
+[[short-stalked martes americana]]
+[[impressive riffle]]
+[[sticky cathode-ray oscilloscope]]
+[[slow-moving seismogram]]
+[[nazarene genus genyonemus]]

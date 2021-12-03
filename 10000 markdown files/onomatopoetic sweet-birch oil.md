@@ -87,3 +87,11 @@ Fifteenth said by two
 exclaimed turning purple.
 : I'll go back in trying I wouldn't stay in couples they both footmen Alice every golden
 
+
+## Wikilinks load test
+
+[[biyearly distinguished service cross]]
+[[one hundred fifty soiree]]
+[[poor tofieldia]]
+[[achenial bridal]]
+[[measly binomial distribution]]

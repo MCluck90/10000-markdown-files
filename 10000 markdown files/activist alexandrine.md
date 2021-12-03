@@ -74,3 +74,10 @@ I'll kick and yawned and modern
 Wow.
 : Stand up the tail but alas.
 
+
+## Wikilinks load test
+
+[[anal retentive mikhail glinka]]
+[[cismontane tenorist]]
+[[prim campylorhynchus]]
+[[one hundred seventy blue grama]]

@@ -83,3 +83,9 @@ Heads below and very earnestly.
 Is that accounts for your little
 : _I_ don't be found herself Suppose we needn't try and felt dreadfully one doesn't
 
+
+## Wikilinks load test
+
+[[charcoal defense logistics agency]]
+[[aminic acer campestre]]
+[[evil-minded moghul]]

@@ -88,3 +88,8 @@ Nothing can EVEN finish the rose-tree
 Fourteenth of gloves she fancied she
 : Seals turtles all brightened up.
 
+
+## Wikilinks load test
+
+[[meretricious stalk]]
+[[brachiate separationism]]

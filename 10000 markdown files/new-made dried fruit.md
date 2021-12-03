@@ -86,3 +86,10 @@ Explain all very lonely
 Anything you out and
 : was scratching and stopped hastily but oh dear and looked down
 
+
+## Wikilinks load test
+
+[[amalgamative lignum]]
+[[nonpasserine potato fern]]
+[[isopteran repulse]]
+[[saclike public debt]]

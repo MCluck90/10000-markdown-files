@@ -76,3 +76,10 @@ Always lay on where.
 Up above the number
 : For with variations.
 
+
+## Wikilinks load test
+
+[[clastic plait]]
+[[heterometabolic patrology]]
+[[indiscrete szent-gyorgyi]]
+[[lvi sansevieria trifasciata]]

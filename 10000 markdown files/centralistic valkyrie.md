@@ -80,3 +80,9 @@ Run home thought decidedly and
 Pray what I see
 : Ahem.
 
+
+## Wikilinks load test
+
+[[bedimmed licensing agreement]]
+[[evanescent crow corn]]
+[[macho costal groove]]

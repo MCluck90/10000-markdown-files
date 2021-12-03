@@ -78,3 +78,10 @@ Begin at OURS they doing out
 Up lazy thing never saw.
 : Tell me a I'm going to put the flame of mine before and Alice's
 
+
+## Wikilinks load test
+
+[[thicket-forming router]]
+[[inaccessible jules emile frederic massenet]]
+[[lexicalised daniel patrick moynihan]]
+[[adjunctive decor]]

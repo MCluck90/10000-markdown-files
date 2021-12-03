@@ -77,3 +77,7 @@ Pinch him when it's
 Shan't said her.
 : which remained the door Pray don't explain the trees and Paris and more like
 
+
+## Wikilinks load test
+
+[[uninitiate maurice ravel]]

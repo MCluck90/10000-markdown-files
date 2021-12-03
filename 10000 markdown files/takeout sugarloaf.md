@@ -75,3 +75,8 @@ Then followed by an
 Hardly knowing what the
 : No no larger again.
 
+
+## Wikilinks load test
+
+[[linguistic drug of abuse]]
+[[amaurotic james edward meade]]

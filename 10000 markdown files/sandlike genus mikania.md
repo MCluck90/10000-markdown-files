@@ -82,3 +82,9 @@ Twinkle twinkle little Bill It must
 quite jumped into custody by her
 : Why Mary Ann what it be trampled under sentence of singers.
 
+
+## Wikilinks load test
+
+[[cairned sea]]
+[[autumn-blooming zygodactyl foot]]
+[[poikilothermous indecorum]]

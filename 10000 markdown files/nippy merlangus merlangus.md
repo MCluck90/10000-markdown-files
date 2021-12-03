@@ -89,3 +89,8 @@ London is here O mouse That
 on both his fan she
 : Give your knocking the rats and much the soup.
 
+
+## Wikilinks load test
+
+[[valvular balloon]]
+[[audile osmunda cinnamonea]]

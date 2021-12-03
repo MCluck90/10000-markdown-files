@@ -83,3 +83,8 @@ Wake up a partner.
 Ahem.
 : .
 
+
+## Wikilinks load test
+
+[[starboard magna charta]]
+[[captivated schoolgirl]]

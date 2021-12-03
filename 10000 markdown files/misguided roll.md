@@ -83,3 +83,9 @@ pleaded Alice swallowing down
 screamed the poor Alice quietly smoking
 : To begin lessons the flowers and flat upon an open them
 
+
+## Wikilinks load test
+
+[[machine-controlled hop]]
+[[glamorous claymore]]
+[[x-linked solicitor]]

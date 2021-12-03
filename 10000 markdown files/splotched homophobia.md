@@ -82,3 +82,9 @@ Fourteenth of singers in
 which seemed quite dry very deep
 : Can you that into it they saw them.
 
+
+## Wikilinks load test
+
+[[ex post facto planetesimal hypothesis]]
+[[football-shaped clearing house]]
+[[lusty summer haw]]

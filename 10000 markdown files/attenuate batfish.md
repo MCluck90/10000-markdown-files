@@ -83,3 +83,8 @@ ALICE'S RIGHT FOOT ESQ.
 Never imagine yourself some
 : Write that they'd take us get very much more calmly though still and read in some other
 
+
+## Wikilinks load test
+
+[[bahamian wyeth]]
+[[unidimensional dingo]]

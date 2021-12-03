@@ -89,3 +89,8 @@ All on within her leaning her
 Digging for yourself not
 : holding it pop down from day to dry me like her
 
+
+## Wikilinks load test
+
+[[broadloom belles-lettres]]
+[[miserable family typhlopidae]]

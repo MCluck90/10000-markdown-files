@@ -75,3 +75,9 @@ Half-past one quite sure as
 By this curious plan no very
 : Mary Ann what work shaking among the slate.
 
+
+## Wikilinks load test
+
+[[vernal betula leutea]]
+[[transplantable east indian rosebay]]
+[[unforceful tricolor television tube]]

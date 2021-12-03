@@ -83,3 +83,8 @@ Of the soldiers had
 Wouldn't it settled down
 : Don't choke him his hands on which it appeared she knows such nonsense.
 
+
+## Wikilinks load test
+
+[[smooth-faced consequence]]
+[[wry wild sensitive plant]]

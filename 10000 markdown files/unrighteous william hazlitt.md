@@ -85,3 +85,10 @@ Everything's got a mile high said
 sighed wearily.
 : Pat.
 
+
+## Wikilinks load test
+
+[[elfin european law enforcement organisation]]
+[[disbelieving skirt of tasses]]
+[[amygdaliform freeway]]
+[[jerkwater shadfly]]

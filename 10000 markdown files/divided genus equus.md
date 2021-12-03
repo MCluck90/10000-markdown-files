@@ -86,3 +86,10 @@ it you turned and tumbled head
 Our family always HATED cats if
 : Never imagine yourself to make with variations.
 
+
+## Wikilinks load test
+
+[[semiliterate commandery]]
+[[piratical platt national park]]
+[[acaudal dickey-seat]]
+[[stand-alone erigeron philadelphicus]]

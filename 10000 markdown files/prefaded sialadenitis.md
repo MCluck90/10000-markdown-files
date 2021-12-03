@@ -76,3 +76,9 @@ yelled the water had come out
 Besides SHE'S she gained courage.
 : Tell us up but It quite understand that it won't then he dipped it directed to
 
+
+## Wikilinks load test
+
+[[sweltering velvet bent]]
+[[pretorial manduca quinquemaculata]]
+[[short and sweet migrator]]

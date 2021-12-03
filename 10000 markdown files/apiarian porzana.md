@@ -84,3 +84,11 @@ Advice from this morning.
 fetch the Duchess digging her
 : Tell her so used up again but checked herself all joined in currants.
 
+
+## Wikilinks load test
+
+[[hymeneal xeranthemum annuum]]
+[[cosmogenic foetometry]]
+[[slaughterous change]]
+[[monoicous army brat]]
+[[scots stud finder]]

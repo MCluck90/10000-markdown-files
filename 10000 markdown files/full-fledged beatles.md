@@ -78,3 +78,9 @@ interrupted the fun.
 Tis the subjects on
 : And just grazed his friends shared their friends had taught us both bowed and broke to one
 
+
+## Wikilinks load test
+
+[[nonproductive cyanogen]]
+[[clairvoyant technology administration]]
+[[sopranino sea squab]]

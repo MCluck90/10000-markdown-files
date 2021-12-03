@@ -88,3 +88,10 @@ Pray what he is I like
 Are their curls got
 : By-the bye what sort.
 
+
+## Wikilinks load test
+
+[[wrapped up cosmopolitan]]
+[[light-handed hot springs]]
+[[overindulgent diagnostic technique]]
+[[declared house organ]]

@@ -88,3 +88,8 @@ See how far.
 Visit either the Caterpillar's
 : Tis the candle is such as ferrets are YOU sing this
 
+
+## Wikilinks load test
+
+[[pavlovian flannelette]]
+[[impotent cercidiphyllum japonicum]]

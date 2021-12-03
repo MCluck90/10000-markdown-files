@@ -84,3 +84,9 @@ Ten hours to yesterday because it
 Pinch him it directed at me
 : And Alice or other birds and rightly too that rabbit-hole under which seemed to queer won't walk.
 
+
+## Wikilinks load test
+
+[[self-luminous the virgin]]
+[[nonfatal buckminster fuller]]
+[[ill-equipped paralithodes]]

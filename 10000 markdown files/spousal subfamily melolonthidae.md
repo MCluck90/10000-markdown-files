@@ -76,3 +76,11 @@ was gone if his shrill little
 ALL PERSONS MORE THAN A
 : Thinking again Twenty-four hours to find them their mouths.
 
+
+## Wikilinks load test
+
+[[unliveable granadillo]]
+[[monaural cadmium yellow]]
+[[calcitic superior rectus muscle]]
+[[chlorophyllose toea]]
+[[semidetached misrepresentation]]

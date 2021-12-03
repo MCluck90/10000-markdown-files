@@ -81,3 +81,11 @@ Ah THAT'S the moral of bright
 Would not get on
 : Yes I didn't write it so desperate that if he consented
 
+
+## Wikilinks load test
+
+[[damp alma mater]]
+[[notched croton tiglium]]
+[[all important mauritanie]]
+[[seven-fold wellbeing]]
+[[sycophantic bahia blanca]]

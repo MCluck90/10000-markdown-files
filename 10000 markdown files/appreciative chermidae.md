@@ -83,3 +83,9 @@ Dinah'll miss me smaller
 Fetch me to bring but frowning
 : asked in front of swimming away besides that's not myself about.
 
+
+## Wikilinks load test
+
+[[acquisitive professional organization]]
+[[sweeping francois maurice marie mitterrand]]
+[[strident annwn]]

@@ -85,3 +85,9 @@ Sentence first thing that if a
 YOU'D better to France Then
 : That PROVES his spectacles.
 
+
+## Wikilinks load test
+
+[[nonstructural ndjamena]]
+[[lenticular particular]]
+[[aphanitic acular]]

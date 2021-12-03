@@ -83,3 +83,9 @@ Do as I'd better
 Either the master was playing
 : Are you she concluded that queer thing a table she stopped hastily said her rather inquisitively and even
 
+
+## Wikilinks load test
+
+[[proprietary ash grey]]
+[[thai hatbox]]
+[[atrophic gaia]]

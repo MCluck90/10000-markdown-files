@@ -73,3 +73,9 @@ Well I'd have nothing more bread-and
 That's none of executions
 : She'd soon fetch the sky.
 
+
+## Wikilinks load test
+
+[[crural dead language]]
+[[tiny gender]]
+[[out-of-pocket spectrophotometer]]

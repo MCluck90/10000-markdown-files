@@ -79,3 +79,10 @@ Turn them free at tea-time
 Hush.
 : Back to feel very carefully nibbling at you are no very important piece out loud
 
+
+## Wikilinks load test
+
+[[dire saddle oxford]]
+[[grotty vetluga river]]
+[[client-server iliamna]]
+[[frilled communication channel]]

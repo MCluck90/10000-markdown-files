@@ -75,3 +75,11 @@ Imagine her eye fell upon their
 Never imagine yourself some other
 : WHAT.
 
+
+## Wikilinks load test
+
+[[all-important elkhorn fern]]
+[[amphiprostyle hyper-eutectoid steel]]
+[[cryogenic muscidae]]
+[[jarring carduelis cucullata]]
+[[broad-headed tapis]]

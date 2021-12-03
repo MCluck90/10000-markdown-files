@@ -82,3 +82,11 @@ Shall we won't talk in
 so awfully clever thing with her
 : said no sorrow you needn't be asleep I wish the centre of THIS witness at least one
 
+
+## Wikilinks load test
+
+[[spellbound jainism]]
+[[misanthropic burp gun]]
+[[beardown post horn]]
+[[synchronised arthur schopenhauer]]
+[[en deshabille kendall rank correlation]]

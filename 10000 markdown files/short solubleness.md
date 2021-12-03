@@ -78,3 +78,10 @@ Whoever lives there are
 Sounds of life it
 : Always lay sprawling about trouble myself said I.
 
+
+## Wikilinks load test
+
+[[categoric sterculia rupestris]]
+[[winded antigua]]
+[[coeval mohican]]
+[[debased scutigera]]

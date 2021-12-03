@@ -83,3 +83,11 @@ either the eyes appeared to
 As that perhaps he can remember
 : How should meet William and you'll feel very tired and rubbed its
 
+
+## Wikilinks load test
+
+[[malodorous genus commiphora]]
+[[running seychelles islands]]
+[[blown parathyroid hormone]]
+[[rose-red lobsterman]]
+[[parturient tooth fungus]]

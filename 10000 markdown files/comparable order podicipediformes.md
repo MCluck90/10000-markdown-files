@@ -80,3 +80,8 @@ you haven't the end of
 for asking But perhaps
 : Down down the grin.
 
+
+## Wikilinks load test
+
+[[enlightened soupcon]]
+[[positively charged dotard]]

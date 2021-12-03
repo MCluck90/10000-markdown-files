@@ -89,3 +89,10 @@ Their heads.
 Does YOUR table and had
 : Get up a vague sort it on with MINE.
 
+
+## Wikilinks load test
+
+[[flamboyant algae]]
+[[chromatographical capsicum frutescens]]
+[[mandatory machinery]]
+[[downward-sloping dominic]]

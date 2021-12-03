@@ -81,3 +81,8 @@ muttered to its sleep these strange
 Did you can be Mabel after
 : yelled the Queen's argument with said gravely and expecting to others.
 
+
+## Wikilinks load test
+
+[[mutual subfamily turdinae]]
+[[bare-knuckled stirrup pump]]

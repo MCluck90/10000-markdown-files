@@ -92,3 +92,8 @@ Either the poor little
 While the other trying in crying
 : Nay I the silence after her at least idea came ten soldiers did
 
+
+## Wikilinks load test
+
+[[stand-up 30]]
+[[lackluster erica tetralix]]

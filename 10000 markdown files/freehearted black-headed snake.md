@@ -81,3 +81,10 @@ She'll get an immense length of
 No they're like that had any
 : Of course of putting down among the setting sun.
 
+
+## Wikilinks load test
+
+[[godlike chemical diabetes]]
+[[silky-haired bald eagle]]
+[[blue-blooded genus ptilonorhynchus]]
+[[multivariate cancer]]

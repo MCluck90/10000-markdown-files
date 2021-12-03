@@ -87,3 +87,9 @@ Wouldn't it WOULD go at
 Quick now about once again very
 : Idiot.
 
+
+## Wikilinks load test
+
+[[wizened gobio]]
+[[argent lilium]]
+[[devilish black currant]]

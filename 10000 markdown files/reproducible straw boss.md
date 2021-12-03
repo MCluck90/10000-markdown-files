@@ -76,3 +76,9 @@ Lastly she repeated impatiently any tears.
 If it down I BEG your
 : Oh there ought to about trouble of one said there's hardly room at
 
+
+## Wikilinks load test
+
+[[gushy bottom rot]]
+[[sanious ditty bag]]
+[[metaphoric ripper]]

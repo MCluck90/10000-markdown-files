@@ -80,3 +80,7 @@ cried.
 However this here said Get up
 : My notion was impossible.
 
+
+## Wikilinks load test
+
+[[shut up thyroidectomy]]

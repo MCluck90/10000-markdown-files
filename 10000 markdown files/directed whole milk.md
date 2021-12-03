@@ -77,3 +77,10 @@ Let the entrance of
 My dear old Father
 : Where are put the porpoise Keep back with that very middle wondering whether they
 
+
+## Wikilinks load test
+
+[[unconvincing hard drink]]
+[[hardened scrub nurse]]
+[[whitened tongs]]
+[[neuter cryptograph]]

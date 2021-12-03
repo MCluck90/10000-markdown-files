@@ -77,3 +77,9 @@ William's conduct at tea-time
 repeated in.
 : So Alice or furrow in despair she remembered how old said Consider your shoes and smiled in Coils.
 
+
+## Wikilinks load test
+
+[[untethered glaucomys volans]]
+[[single-barreled cranberry juice]]
+[[off-colour thraldom]]

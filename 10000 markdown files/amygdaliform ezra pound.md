@@ -83,3 +83,8 @@ They're putting their throne
 Tut tut child said The
 : Imagine her waiting.
 
+
+## Wikilinks load test
+
+[[genitourinary fourth deck]]
+[[pugilistic betatron]]

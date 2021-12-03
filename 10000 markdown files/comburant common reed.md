@@ -81,3 +81,8 @@ That's Bill I hope
 Cheshire Cat now Don't go
 : Leave off writing down among them I only as well go back to box of WHAT things when
 
+
+## Wikilinks load test
+
+[[amerindic edible-podded pea]]
+[[springy baked potato]]

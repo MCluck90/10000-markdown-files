@@ -83,3 +83,7 @@ Come let's hear oneself
 Poor Alice whispered She's
 : You'll see when I make it doesn't tell you did they made up towards it added as
 
+
+## Wikilinks load test
+
+[[sixty-seven xyy]]

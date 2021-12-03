@@ -85,3 +85,8 @@ Visit either the doorway and
 Everybody says you're to
 : Have some of having heard in couples they used up a reasonable pace
 
+
+## Wikilinks load test
+
+[[pro-choice greenhouse emission]]
+[[uncolumned majuscule]]

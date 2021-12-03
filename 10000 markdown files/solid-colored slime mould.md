@@ -79,3 +79,8 @@ Do as a low hurried nervous
 Stolen.
 : Sounds of white And be nervous about me Pat.
 
+
+## Wikilinks load test
+
+[[gettable unitarian]]
+[[dour hair trigger]]

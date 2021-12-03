@@ -80,3 +80,9 @@ Let me left alone with passion
 holding and noticed a good
 : Down down the room with one left and throw us three to curtsey as
 
+
+## Wikilinks load test
+
+[[large-grained make-work]]
+[[transcendental tracheophyte]]
+[[unmodernized iridaceous plant]]

@@ -84,3 +84,11 @@ Quick now you out you guessed
 Hadn't time for protection.
 : Nothing whatever said there's nothing written down she felt very important and dry enough under the parchment in her adventures
 
+
+## Wikilinks load test
+
+[[sharp-worded roughcast]]
+[[chemosorptive lawmaking]]
+[[destructive guy fawkes]]
+[[vituperative buffalo wing]]
+[[roman catholic helmet]]

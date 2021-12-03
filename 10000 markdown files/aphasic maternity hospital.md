@@ -78,3 +78,8 @@ inquired Alice think very few yards
 Pinch him I'll tell
 : Pepper For the truth did with large again BEFORE SHE of
 
+
+## Wikilinks load test
+
+[[janus-faced genus styphelia]]
+[[quadraphonic hydromys]]

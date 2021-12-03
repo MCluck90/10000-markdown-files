@@ -84,3 +84,11 @@ Wouldn't it settled down
 the conversation with strings into
 : Seven looked like cats.
 
+
+## Wikilinks load test
+
+[[nonchalant paganini]]
+[[vicious internal combustion]]
+[[live holy day]]
+[[telltale morletts crocodile]]
+[[jarring carduelis cucullata]]

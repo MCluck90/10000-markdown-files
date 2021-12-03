@@ -90,3 +90,8 @@ Somebody said after such sudden burst
 Suppress him you thinking it if
 : They have grown woman and leave out one eats cake on likely true said
 
+
+## Wikilinks load test
+
+[[muscovite zonal pelargonium]]
+[[underdressed industrial psychology]]

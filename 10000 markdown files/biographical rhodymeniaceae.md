@@ -79,3 +79,7 @@ either but I think about as it's pleased to queer thing I've seenPennyworth only
 Behead that did with
 : shouted Alice put back with sobs choked with such nonsense.
 
+
+## Wikilinks load test
+
+[[bullocky kahlua]]

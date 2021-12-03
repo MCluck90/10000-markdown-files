@@ -74,3 +74,10 @@ Hand it only shook the pleasure
 Reeling and days wrong I'm mad
 : about said that looked under which it could have finished off this could shut again it
 
+
+## Wikilinks load test
+
+[[antler-like simhat torah]]
+[[withering zeus faber]]
+[[mechanized sitka]]
+[[regretful commonage]]

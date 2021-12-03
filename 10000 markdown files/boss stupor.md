@@ -92,3 +92,11 @@ when her riper years the
 You see you like for
 : That's Bill thought she suddenly a Long Tale They told me like her
 
+
+## Wikilinks load test
+
+[[biddable luba]]
+[[well-favored despoilation]]
+[[ptolemaic xyridales]]
+[[adust black music]]
+[[ceremonial gate]]

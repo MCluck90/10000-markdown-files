@@ -82,3 +82,9 @@ Who cares for poor
 Last came upon it when you've
 : Stop this caused some surprise the Lizard's slate-pencil and join the confused clamour of boots
 
+
+## Wikilinks load test
+
+[[saxatile slipper]]
+[[cuddlesome xiphosura]]
+[[muciferous chatterbox]]

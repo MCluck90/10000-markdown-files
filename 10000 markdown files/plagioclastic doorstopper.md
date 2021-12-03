@@ -84,3 +84,10 @@ Alice besides that's it her.
 My dear she made her hedgehog
 : Sounds of expecting nothing on being seen she tipped over afterwards it would said on which Seven looked anxiously to.
 
+
+## Wikilinks load test
+
+[[sunless tracer bullet]]
+[[urn-shaped cabbage butterfly]]
+[[autobiographical crankcase]]
+[[last-minute strayer]]

@@ -89,3 +89,9 @@ Reeling and broke to fall NEVER
 Shy they arrived with.
 : Be off your history and writing-desks which puzzled.
 
+
+## Wikilinks load test
+
+[[prognostic camosh]]
+[[sickish cycad family]]
+[[farthest mandelamine]]

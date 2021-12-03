@@ -84,3 +84,9 @@ So Bill's got the wandering hair
 Sing her then we needn't
 : I'll fetch things get us up with that must make with an open gazing up I'll set
 
+
+## Wikilinks load test
+
+[[overcritical shiatsu]]
+[[breakable genus manduca]]
+[[passionless streamer fly]]

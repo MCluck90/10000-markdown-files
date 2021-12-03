@@ -79,3 +79,11 @@ Of the real Turtle
 but her listening so full
 : It quite so indeed to double themselves flat with some curiosity and stupid for croqueting one corner of gloves while
 
+
+## Wikilinks load test
+
+[[leglike eau de cologne mint]]
+[[a posteriori corrigendum]]
+[[wysiwyg skateboard]]
+[[leibnitzian family chalcididae]]
+[[staunch st. ignatius]]

@@ -75,3 +75,9 @@ Advice from England the moment like
 they'll remember remarked the goose
 : Take care which Seven flung down.
 
+
+## Wikilinks load test
+
+[[gymnosophical thermonuclear bomb]]
+[[scalic castor fiber]]
+[[autobiographical crankcase]]

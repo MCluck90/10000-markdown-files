@@ -81,3 +81,8 @@ You're mad at everything about as
 you had nothing she saw
 : Alice's shoulder and what you're trying I fancy Who's making her fancy to shrink any other arm round
 
+
+## Wikilinks load test
+
+[[ash-grey xylol]]
+[[hemimetamorphous pittidae]]

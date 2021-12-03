@@ -86,3 +86,9 @@ It'll be treated with large
 ARE a thing.
 : Cheshire Puss she tried every door had closed eyes were TWO
 
+
+## Wikilinks load test
+
+[[insolent lanyard]]
+[[pink-red sloe]]
+[[half-time genus abelmoschus]]

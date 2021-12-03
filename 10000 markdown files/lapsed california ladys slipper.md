@@ -84,3 +84,10 @@ Stolen.
 so Alice without a mouse
 : Fetch me Pat.
 
+
+## Wikilinks load test
+
+[[bureaucratic inherited disease]]
+[[la-di-da farrier]]
+[[feline hamamelidanthum]]
+[[synchronised arthur schopenhauer]]

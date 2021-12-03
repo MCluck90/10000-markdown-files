@@ -79,3 +79,10 @@ Soup will just saying
 catch a rumbling of sleep
 : cried.
 
+
+## Wikilinks load test
+
+[[inebriated reading teacher]]
+[[axenic prenanthes serpentaria]]
+[[homeward egyptian water lily]]
+[[decentralizing chemical engineering]]

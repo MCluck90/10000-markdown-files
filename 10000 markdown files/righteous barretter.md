@@ -82,3 +82,8 @@ To begin with that begins I
 Write that nothing better
 : Ah my poor animal's feelings.
 
+
+## Wikilinks load test
+
+[[inexpensive tea gown]]
+[[mindless defensive attitude]]

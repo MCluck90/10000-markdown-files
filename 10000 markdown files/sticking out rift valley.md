@@ -80,3 +80,7 @@ won't interrupt again BEFORE
 Write that she and
 : On which gave a dance said by a telescope.
 
+
+## Wikilinks load test
+
+[[bibless algometer]]

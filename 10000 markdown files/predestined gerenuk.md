@@ -79,3 +79,9 @@ Get to somebody else's hand.
 In another dig of saucepans
 : Nay I never do with hearts.
 
+
+## Wikilinks load test
+
+[[hurried calochortus macrocarpus]]
+[[north vietnamese republic of belarus]]
+[[pastel lobelia dortmanna]]

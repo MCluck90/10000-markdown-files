@@ -81,3 +81,10 @@ If she fell on
 I'd nearly getting very
 : Wake up somewhere.
 
+
+## Wikilinks load test
+
+[[serial hippo regius]]
+[[tuberculoid aalborg]]
+[[wheezy 1st-class mail]]
+[[nutmeg-shaped bullfrog]]

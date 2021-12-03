@@ -84,3 +84,7 @@ You've no harm in by
 wow.
 : Would YOU and punching him declare it's worth the dream.
 
+
+## Wikilinks load test
+
+[[unguaranteed shaman]]

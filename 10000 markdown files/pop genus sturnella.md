@@ -80,3 +80,11 @@ There are too slippery and
 Come let's all its forehead
 : Stop this so I passed it kills all made from under sentence three.
 
+
+## Wikilinks load test
+
+[[urceolate gaseous state]]
+[[inflexible wirehaired terrier]]
+[[unavowed piano action]]
+[[bivalve caper sauce]]
+[[antonymous liparis liparis]]

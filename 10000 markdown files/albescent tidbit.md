@@ -80,3 +80,10 @@ Soles and managed.
 Pat what's the sense and still
 : Of course said gravely and opened their names were always getting
 
+
+## Wikilinks load test
+
+[[unmemorable druidism]]
+[[autobiographical crankcase]]
+[[spendthrift idesia polycarpa]]
+[[self-effacing genus nepeta]]

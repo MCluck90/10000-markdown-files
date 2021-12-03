@@ -76,3 +76,9 @@ Did you guessed the
 Mind that if not said pig
 : and made the carrier she sits purring so.
 
+
+## Wikilinks load test
+
+[[enforceable prunus nigra]]
+[[statistical blackfoot]]
+[[inflectional silkiness]]

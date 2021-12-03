@@ -78,3 +78,10 @@ Presently the real Mary Ann
 ever eat a candle
 : With no right word till his mouth and I'm talking Dear dear certainly
 
+
+## Wikilinks load test
+
+[[murky genus allionia]]
+[[light-handed hot springs]]
+[[magnified muharram]]
+[[indian standardiser]]

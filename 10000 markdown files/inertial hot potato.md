@@ -78,3 +78,10 @@ ARE OLD FATHER WILLIAM to
 Everything is I heard was an
 : Soo oop.
 
+
+## Wikilinks load test
+
+[[descendant stenocarpus sinuatus]]
+[[genteel hugo grotius]]
+[[sopranino sea squab]]
+[[confiding lobby]]

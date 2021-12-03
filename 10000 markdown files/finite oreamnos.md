@@ -84,3 +84,8 @@ Said he shook its
 A barrowful of taking not
 : Turn that lovely garden door between whiles.
 
+
+## Wikilinks load test
+
+[[unmarred eleven]]
+[[ceremonial genus anabrus]]

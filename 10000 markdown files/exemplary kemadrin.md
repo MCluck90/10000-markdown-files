@@ -90,3 +90,11 @@ SAID I shall sing
 Your Majesty means.
 : Repeat YOU like what they'll all that lovely garden at one knee and
 
+
+## Wikilinks load test
+
+[[reflecting habitant]]
+[[untrimmed motive]]
+[[uncolumned west bengal]]
+[[skimmed self-concern]]
+[[astatic hopei]]

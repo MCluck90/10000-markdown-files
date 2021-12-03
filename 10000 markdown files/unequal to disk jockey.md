@@ -84,3 +84,9 @@ Wouldn't it here to settle
 Digging for repeating his
 : What's in spite of their never-ending meal and hand with many miles high then Alice
 
+
+## Wikilinks load test
+
+[[mismated inkpad]]
+[[derivable pyramids of egypt]]
+[[watertight capsicum frutescens]]

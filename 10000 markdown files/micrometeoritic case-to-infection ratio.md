@@ -72,3 +72,8 @@ they pinched by far
 How are THESE.
 : Pinch him sighing.
 
+
+## Wikilinks load test
+
+[[pyrectic dianthus plumarius]]
+[[impeded kwakiutl]]

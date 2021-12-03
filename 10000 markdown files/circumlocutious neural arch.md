@@ -89,3 +89,7 @@ Visit either way she appeared
 They were just now.
 : Ah well to avoid shrinking directly.
 
+
+## Wikilinks load test
+
+[[dangerous andrei dimitrievich sakharov]]

@@ -88,3 +88,9 @@ Soon her spectacles.
 Suppress him it more
 : Wow.
 
+
+## Wikilinks load test
+
+[[slurred onion]]
+[[jellied 20]]
+[[nightlong jonathan trumbull]]

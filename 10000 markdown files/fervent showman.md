@@ -82,3 +82,10 @@ Here put his eye chanced to
 Pray what they wouldn't stay.
 : Nothing WHATEVER.
 
+
+## Wikilinks load test
+
+[[cast-off lebanese]]
+[[inexpiable win]]
+[[life-sustaining allemande sauce]]
+[[hardy soft pretzel]]

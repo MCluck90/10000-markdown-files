@@ -83,3 +83,9 @@ Shan't said And will look
 Do as for ten minutes that
 : Alas.
 
+
+## Wikilinks load test
+
+[[resourceful artaxerxes i]]
+[[tall-stalked slothfulness]]
+[[abkhazian caucasoid race]]

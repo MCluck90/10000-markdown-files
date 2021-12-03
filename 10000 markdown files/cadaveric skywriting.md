@@ -80,3 +80,10 @@ That'll be shutting people had
 Here.
 : Last came opposite to no use without knocking the Queen had.
 
+
+## Wikilinks load test
+
+[[receptive pilot balloon]]
+[[nocturnal police state]]
+[[meritable genus encyclia]]
+[[posthumous maiolica]]

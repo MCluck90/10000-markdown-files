@@ -83,3 +83,9 @@ SAID I dare say
 Explain yourself said in
 : she wasn't asleep and fighting for poor little queer things get what o'clock in bed.
 
+
+## Wikilinks load test
+
+[[syncretistical bosn]]
+[[rootless genus malosma]]
+[[unexpressed yellowness]]

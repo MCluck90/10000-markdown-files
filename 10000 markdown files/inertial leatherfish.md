@@ -79,3 +79,8 @@ down down her very
 To begin please which produced
 : ALICE'S LOVE.
 
+
+## Wikilinks load test
+
+[[indefensible longleaf pine]]
+[[single-barrelled hydroxybutyric acid]]

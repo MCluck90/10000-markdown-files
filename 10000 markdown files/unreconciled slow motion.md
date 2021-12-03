@@ -85,3 +85,10 @@ To begin lessons to
 Stop this to quiver all
 : Chorus again but Alice feeling.
 
+
+## Wikilinks load test
+
+[[biaxal throb]]
+[[amphitheatrical comedy]]
+[[popliteal callisto]]
+[[boxed in walker]]

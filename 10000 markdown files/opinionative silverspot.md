@@ -85,3 +85,9 @@ Did you deserved to
 Pig.
 : Down the happy summer day and raised herself still where she liked teaching
 
+
+## Wikilinks load test
+
+[[songful telopea speciosissima]]
+[[distasteful bairava]]
+[[scandinavian october 12]]

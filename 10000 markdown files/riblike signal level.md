@@ -79,3 +79,8 @@ Seven flung down.
 Mary Ann.
 : Stolen.
 
+
+## Wikilinks load test
+
+[[erose hoary pea]]
+[[seaborne physostegia virginiana]]

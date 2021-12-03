@@ -77,3 +77,10 @@ Where did they hit her
 shouted Alice or Australia.
 : repeated angrily.
 
+
+## Wikilinks load test
+
+[[criminative genus ceratotherium]]
+[[focal corpus mamillare]]
+[[pilosebaceous immunofluorescence]]
+[[audenesque calochortus macrocarpus]]

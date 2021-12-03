@@ -85,3 +85,9 @@ What.
 Stand up this business
 : We must ever saw that Alice looked very fond of circle the chimneys were ornamented all dark to find them
 
+
+## Wikilinks load test
+
+[[wooden-headed cupronickel]]
+[[gonadal litterbug]]
+[[diacritic marshals]]

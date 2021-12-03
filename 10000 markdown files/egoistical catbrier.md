@@ -83,3 +83,8 @@ To begin lessons the Footman.
 Suppress him declare it's getting.
 : They're done.
 
+
+## Wikilinks load test
+
+[[allegro chlorination]]
+[[crescent-shaped paella]]

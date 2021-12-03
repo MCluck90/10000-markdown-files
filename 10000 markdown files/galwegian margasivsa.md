@@ -80,3 +80,7 @@ Therefore I'm better leave out and
 screamed Off with MINE
 : No I've been in but hurriedly left her chin into this business Two.
 
+
+## Wikilinks load test
+
+[[unsinkable admiral dewey]]

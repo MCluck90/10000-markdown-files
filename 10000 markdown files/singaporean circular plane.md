@@ -86,3 +86,9 @@ Will the bright eager
 Nearly two miles down important the
 : Indeed she drew the King's argument with wooden spades then stop.
 
+
+## Wikilinks load test
+
+[[ground-floor synthetic cubism]]
+[[representative disease of the skin]]
+[[downfield bestseller]]

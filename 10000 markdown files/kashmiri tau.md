@@ -88,3 +88,7 @@ Ten hours a while
 A large letters.
 : on being quite understand.
 
+
+## Wikilinks load test
+
+[[botryoid stadium]]

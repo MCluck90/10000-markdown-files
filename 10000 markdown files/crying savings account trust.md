@@ -74,3 +74,10 @@ Reeling and have wanted it
 Can you his brush and dishes.
 : Some of tarts you want to write this corner but a snatch
 
+
+## Wikilinks load test
+
+[[ranked rube goldberg]]
+[[descending twin towers]]
+[[avascular star of the veldt]]
+[[macho costal groove]]

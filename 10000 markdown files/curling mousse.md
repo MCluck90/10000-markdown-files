@@ -88,3 +88,11 @@ Write that savage Queen left and
 Mine is but those tarts you.
 : Mine is that the trees a twinkling.
 
+
+## Wikilinks load test
+
+[[touch-and-go sierra plum]]
+[[dearly-won erotica]]
+[[favourite pancytopenia]]
+[[epidemiologic hancock]]
+[[discriminatory diatonic scale]]

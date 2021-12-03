@@ -86,3 +86,11 @@ Who ARE OLD FATHER
 wow.
 : asked triumphantly.
 
+
+## Wikilinks load test
+
+[[neuroanatomical erudition]]
+[[seeded osmunda cinnamonea]]
+[[noncarbonated half-moon]]
+[[collected hieracium venosum]]
+[[ethnologic triumvir]]

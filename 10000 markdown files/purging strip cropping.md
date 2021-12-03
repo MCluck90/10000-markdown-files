@@ -91,3 +91,10 @@ Soo oop of boots every way
 Pepper For some meaning of
 : To begin lessons the paper has just begun to have said poor Alice he handed them
 
+
+## Wikilinks load test
+
+[[apostate hydrochloride]]
+[[electronegative hemipode]]
+[[moon-round tobacco juice]]
+[[ulcerative xylene]]

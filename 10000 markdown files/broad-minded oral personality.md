@@ -72,3 +72,9 @@ Idiot.
 thump.
 : And that's about trying I breathe.
 
+
+## Wikilinks load test
+
+[[burlesque punch pliers]]
+[[confiding lobby]]
+[[pliant oral roberts]]

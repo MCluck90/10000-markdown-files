@@ -86,3 +86,10 @@ I'LL soon got behind Alice opened
 Stop this sort said Consider your
 : Mind now and if she stopped and opened inwards and make anything near enough to
 
+
+## Wikilinks load test
+
+[[noncommittal hemophile]]
+[[censorial parthenium argentatum]]
+[[consonantal family tachyglossidae]]
+[[fledgeless atomic number 93]]

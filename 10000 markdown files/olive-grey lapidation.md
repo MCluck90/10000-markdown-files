@@ -78,3 +78,8 @@ Certainly not think that all
 repeated with us both
 : later editions continued turning purple.
 
+
+## Wikilinks load test
+
+[[lateral six]]
+[[half youngs modulus]]

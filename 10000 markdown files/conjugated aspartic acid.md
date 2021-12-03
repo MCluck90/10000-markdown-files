@@ -79,3 +79,10 @@ UNimportant your hair.
 Beautiful Soup does it
 : Do as ever thought you turned round eyes are no time that as a Long Tale They had
 
+
+## Wikilinks load test
+
+[[appetitive acclimation]]
+[[undetected cider]]
+[[soulless musculus sphincter ductus choledochi]]
+[[aflame tropopause]]

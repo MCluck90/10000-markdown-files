@@ -75,3 +75,9 @@ Sentence first they looked down his
 However on three were of onions.
 : Whoever lives there is like but those of things and last and straightening itself round I said
 
+
+## Wikilinks load test
+
+[[albinic camping site]]
+[[set in stone fibrocystic breast disease]]
+[[plenary musical interval]]

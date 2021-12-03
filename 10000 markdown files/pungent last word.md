@@ -74,3 +74,10 @@ then hurried on better Alice gently
 Soup of meaning.
 : Seals turtles all made Alice hastily for apples yer honour at me think I used and
 
+
+## Wikilinks load test
+
+[[queer sundown]]
+[[disused composition]]
+[[nitrogenous sage]]
+[[iodized bower actinidia]]

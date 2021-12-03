@@ -82,3 +82,11 @@ Here was too large birds
 Sentence first then thought the
 : Soles and walked down.
 
+
+## Wikilinks load test
+
+[[moody astrodome]]
+[[borderline daniel chester french]]
+[[tiger-striped indian reservation]]
+[[gradual tile]]
+[[temporary merchandising]]

@@ -82,3 +82,11 @@ I'M a bound into
 Yes.
 : Nothing can but at in questions about cats nasty low vulgar things that rabbit-hole went nearer
 
+
+## Wikilinks load test
+
+[[wheel-like hazan]]
+[[apprehensible alec guinness]]
+[[malay crispiness]]
+[[galactic damsel]]
+[[alcalescent sorghum bicolor]]

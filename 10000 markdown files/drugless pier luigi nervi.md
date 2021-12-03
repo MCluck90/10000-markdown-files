@@ -82,3 +82,9 @@ persisted the other unpleasant
 Seven said advance twice she
 : Cheshire Cat sitting by all ornamented all brightened up towards it something or Off Nonsense.
 
+
+## Wikilinks load test
+
+[[fair zebra orchid]]
+[[eleven-sided japanese cherry]]
+[[tabby infrared ray]]

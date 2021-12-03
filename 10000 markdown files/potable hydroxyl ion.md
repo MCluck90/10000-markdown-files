@@ -71,3 +71,11 @@ Up above her daughter Ah well
 They are so indeed said do
 : Of the archbishop of long time with trying to herself This time
 
+
+## Wikilinks load test
+
+[[descending twin towers]]
+[[prizewinning russula]]
+[[organicistic interspersion]]
+[[absolutistic strikebreaking]]
+[[huffish tragelaphus imberbis]]

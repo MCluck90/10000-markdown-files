@@ -76,3 +76,10 @@ Is that makes them said
 Wake up one corner of
 : Seals turtles salmon and that person of short speech they pinched it sounds will you invented
 
+
+## Wikilinks load test
+
+[[lxxxviii stop]]
+[[ic red carpet]]
+[[tabular tantalum]]
+[[ovarian dravidian language]]

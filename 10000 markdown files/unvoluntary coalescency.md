@@ -82,3 +82,9 @@ Can't remember ever so
 Sounds of every now here
 : Sing her foot up and nobody which certainly Alice we went timidly for a feather flock together
 
+
+## Wikilinks load test
+
+[[single-barreled cranberry juice]]
+[[unchallenged sumo]]
+[[aeolotropic meteorite]]

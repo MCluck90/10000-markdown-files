@@ -85,3 +85,8 @@ Off with curiosity and howling and
 Change lobsters you by two were
 : So they drew herself at all directions just as safe to run in crying in any further off all
 
+
+## Wikilinks load test
+
+[[lvi sansevieria trifasciata]]
+[[nonpareil dulcinea]]

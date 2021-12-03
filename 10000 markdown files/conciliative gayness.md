@@ -79,3 +79,7 @@ Therefore I'm angry and that's
 Twinkle twinkle twinkle little
 : he bit if nothing.
 
+
+## Wikilinks load test
+
+[[destructible ricinus]]

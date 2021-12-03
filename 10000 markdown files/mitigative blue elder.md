@@ -80,3 +80,7 @@ Can you dear Dinah
 Half-past one in asking But
 : Serpent I the Cat a kind of one so easily offended.
 
+
+## Wikilinks load test
+
+[[discombobulated whimsy]]

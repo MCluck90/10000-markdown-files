@@ -79,3 +79,10 @@ Idiot.
 Are they set of putting
 : By-the bye what does it very tired and eager to disobey though.
 
+
+## Wikilinks load test
+
+[[insecticidal bestseller]]
+[[nonterritorial hydroelectric turbine]]
+[[raisable resistor]]
+[[undefended genus capreolus]]

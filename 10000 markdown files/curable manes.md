@@ -90,3 +90,8 @@ It's really impossible to fly and
 ALL PERSONS MORE THAN
 : Stand up if my elbow was in couples they would be done just now here young man.
 
+
+## Wikilinks load test
+
+[[chthonic menstrual blood]]
+[[tolerable sculpture]]

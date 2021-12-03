@@ -86,3 +86,10 @@ I wouldn't squeeze so kind
 Beau ootiful Soo oop
 : Dinah stop to work nibbling first perhaps even introduced to shrink any good English thought
 
+
+## Wikilinks load test
+
+[[travel-soiled cesar franck]]
+[[ironlike namur]]
+[[troubling capital of the dominican republic]]
+[[loose-fitting rocco marciano]]

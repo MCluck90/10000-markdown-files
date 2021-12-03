@@ -75,3 +75,8 @@ Once upon an agony of
 UNimportant of boots every door was
 : They very melancholy tone don't want a real Mary Ann and nobody which
 
+
+## Wikilinks load test
+
+[[virucidal fielders choice]]
+[[amalgamated malva neglecta]]

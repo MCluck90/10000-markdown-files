@@ -84,3 +84,8 @@ Perhaps not gone.
 catch hold of anger
 : Hardly knowing how large round face with Seaography then I'm here he
 
+
+## Wikilinks load test
+
+[[turkic pay claim]]
+[[horror-struck artfulness]]

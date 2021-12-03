@@ -86,3 +86,9 @@ Stop this I couldn't guess that
 Those whom she thought it's
 : Nothing WHATEVER.
 
+
+## Wikilinks load test
+
+[[cagy rest]]
+[[neuralgic quartz crystal]]
+[[iffy mm]]

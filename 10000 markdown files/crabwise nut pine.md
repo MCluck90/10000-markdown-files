@@ -77,3 +77,8 @@ they draw.
 There might as a
 : ALICE'S LOVE.
 
+
+## Wikilinks load test
+
+[[photochemical genus liposcelis]]
+[[bounderish judy garland]]

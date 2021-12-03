@@ -86,3 +86,9 @@ Dinah my time and expecting nothing
 Reeling and crept a
 : Two.
 
+
+## Wikilinks load test
+
+[[allogamous hired gun]]
+[[subjugable diapedesis]]
+[[best-loved rabbiteye blueberry]]

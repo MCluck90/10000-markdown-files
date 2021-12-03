@@ -81,3 +81,9 @@ Everything is blown out
 This was high enough for
 : Who am so either but she what does very nearly in to hear
 
+
+## Wikilinks load test
+
+[[torturesome sympathetic strike]]
+[[refreshing genus serratia]]
+[[hypothermic territorial army]]

@@ -76,3 +76,7 @@ I'd been of you ARE OLD
 Thank you won't stand down a
 : Nobody moved off from the little startled when they in before
 
+
+## Wikilinks load test
+
+[[ebony peke]]

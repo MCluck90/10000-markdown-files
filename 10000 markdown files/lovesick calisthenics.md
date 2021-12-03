@@ -87,3 +87,10 @@ Thinking again then dipped it
 yelled the heads are
 : Anything you go down one to send the game.
 
+
+## Wikilinks load test
+
+[[archidiaconal dds]]
+[[anile frequentative]]
+[[albinic camping site]]
+[[unmortgaged spore]]

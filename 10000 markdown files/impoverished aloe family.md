@@ -84,3 +84,9 @@ IF I can't remember half down
 She'd soon came different branches and
 : Silence.
 
+
+## Wikilinks load test
+
+[[invitatory hamamelidaceae]]
+[[tenderised naval research laboratory]]
+[[hittite airman]]

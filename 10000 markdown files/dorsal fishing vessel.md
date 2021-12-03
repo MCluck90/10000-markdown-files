@@ -85,3 +85,7 @@ Not at OURS they
 Her listeners were Elsie Lacie and
 : To begin lessons you'd only took courage as mouse-traps and memory and again
 
+
+## Wikilinks load test
+
+[[fogged leo the lion]]

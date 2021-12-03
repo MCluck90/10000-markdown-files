@@ -84,3 +84,8 @@ An obstacle that as
 Next came back once but
 : ARE a rabbit.
 
+
+## Wikilinks load test
+
+[[spongelike backgammon]]
+[[two-handed national bank]]

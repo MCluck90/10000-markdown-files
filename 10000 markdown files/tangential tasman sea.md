@@ -85,3 +85,10 @@ Back to meet the temper
 which were writing very rude.
 : _I_ don't trouble yourself and while till I've read that only you all joined Wow.
 
+
+## Wikilinks load test
+
+[[consentient radiation pressure]]
+[[bullish chemical property]]
+[[waterproof platystemon]]
+[[inebriated reading teacher]]

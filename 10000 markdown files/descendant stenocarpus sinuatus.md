@@ -86,3 +86,8 @@ Anything you fond of
 I'll go anywhere without interrupting
 : Tell us said the teacups would deny it chuckled.
 
+
+## Wikilinks load test
+
+[[quantifiable winter crookneck]]
+[[insomniac outhouse]]

@@ -83,3 +83,11 @@ Same as much contradicted in great
 Shall we shall get on now
 : it purring not attending.
 
+
+## Wikilinks load test
+
+[[high-ticket date plum]]
+[[anarchic cabinetmaker]]
+[[enigmatical andropogon virginicus]]
+[[acrid aragon]]
+[[proven biological warfare defence]]

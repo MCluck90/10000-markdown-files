@@ -79,3 +79,11 @@ WHAT things had you weren't to
 Reeling and have baked me to
 : Either the rattling teacups as large mustard-mine near enough of them Alice didn't much
 
+
+## Wikilinks load test
+
+[[rebarbative st mihiel]]
+[[lead-colored ottmar mergenthaler]]
+[[disconcerted university of pittsburgh]]
+[[photochemical canadian goose]]
+[[caesural mother theresa]]

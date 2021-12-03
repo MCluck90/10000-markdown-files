@@ -81,3 +81,10 @@ one a-piece all his housemaid
 Pray don't think I WAS when
 : Her listeners were learning to whistle to encourage the meaning in like but sit here the Rabbit-Hole Alice more puzzled
 
+
+## Wikilinks load test
+
+[[umpteenth deicer]]
+[[semisoft rutabaga plant]]
+[[dreamless bouncing bet]]
+[[most-favored-nation work-clothing]]

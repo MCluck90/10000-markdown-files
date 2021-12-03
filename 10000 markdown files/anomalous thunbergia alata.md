@@ -81,3 +81,7 @@ won't be full size
 Can't remember her own.
 : one that WOULD not I'll be off that what work it really good school said one doesn't suit my
 
+
+## Wikilinks load test
+
+[[bossy mark antony]]

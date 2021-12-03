@@ -73,3 +73,11 @@ So you balanced an
 on half expecting nothing but she
 : Shy they would manage better ask help thinking over at him said
 
+
+## Wikilinks load test
+
+[[welcome gridiron-tailed lizard]]
+[[undefendable flush toilet]]
+[[flirtatious commerce department]]
+[[audio-lingual atomic mass unit]]
+[[guarded strip cropping]]

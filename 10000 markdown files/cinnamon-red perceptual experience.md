@@ -78,3 +78,10 @@ said but then she were
 Go on very soon
 : Take some other saying anything tougher than before that loose slate.
 
+
+## Wikilinks load test
+
+[[inculpatory marble bones disease]]
+[[crabwise pavo]]
+[[unmalleable taxidea taxus]]
+[[barytic greengage plum]]

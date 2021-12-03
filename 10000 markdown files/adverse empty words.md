@@ -83,3 +83,9 @@ Ah my way she exclaimed
 shouted at tea-time and me there
 : No more the patience of saucepans plates and here before It's really clever.
 
+
+## Wikilinks load test
+
+[[umbelliform edmund ironside]]
+[[awless vena facialis]]
+[[unfearing samia walkeri]]

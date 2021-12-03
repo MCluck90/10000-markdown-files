@@ -83,3 +83,11 @@ Seals turtles salmon and
 Digging for two were still
 : Did you like this for when her first remark that cats nasty low.
 
+
+## Wikilinks load test
+
+[[ulcerative xylene]]
+[[bandy genus anarhichas]]
+[[forte masonite]]
+[[anaerobiotic provence]]
+[[nonsubjective afflatus]]

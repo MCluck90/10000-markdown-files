@@ -89,3 +89,9 @@ See how I did the
 for protection.
 : Lastly she stopped hastily just beginning.
 
+
+## Wikilinks load test
+
+[[cleanable monocular vision]]
+[[postpositive oklahoma city]]
+[[eviscerate clerkship]]

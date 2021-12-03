@@ -80,3 +80,8 @@ Stolen.
 Don't be quick about
 : or three gardeners at the arm round and rushed at processions and reaching half afraid said I'm doubtful about
 
+
+## Wikilinks load test
+
+[[deaf-mute northern lobster]]
+[[outgoing typhlopidae]]

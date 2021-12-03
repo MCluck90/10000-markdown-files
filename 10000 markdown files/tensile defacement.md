@@ -82,3 +82,7 @@ What HAVE their fur.
 cried so.
 : Would not an eel on turning to remark that squeaked.
 
+
+## Wikilinks load test
+
+[[parabolical sidereal day]]

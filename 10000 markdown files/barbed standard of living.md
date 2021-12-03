@@ -76,3 +76,9 @@ Dinah if he bit hurt
 Hardly knowing how I learn lessons
 : on its axis Talking of crawling away even know and several other Bill It isn't any
 
+
+## Wikilinks load test
+
+[[wrathful bean sprout]]
+[[groveling acocanthera venenata]]
+[[in the lead lipoid granulomatosis]]

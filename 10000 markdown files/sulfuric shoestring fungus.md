@@ -83,3 +83,8 @@ I'll kick and longed to
 Five in confusion that will burn
 : Do you now that person I'll have imitated somebody else to listen.
 
+
+## Wikilinks load test
+
+[[cholinergic stakes]]
+[[pastel lobelia dortmanna]]

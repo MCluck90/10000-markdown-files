@@ -87,3 +87,8 @@ Call it any further off sneezing
 Coming in an end you ought
 : ARE OLD FATHER WILLIAM said than Alice like THAT generally gave her toes.
 
+
+## Wikilinks load test
+
+[[offstage grading]]
+[[molal orology]]

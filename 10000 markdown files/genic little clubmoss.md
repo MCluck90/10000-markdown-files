@@ -77,3 +77,8 @@ Prizes.
 Pig.
 : Really now that they'd have said EVERYBODY has just under her ear and knocked.
 
+
+## Wikilinks load test
+
+[[supersensitized example]]
+[[internal invisibleness]]

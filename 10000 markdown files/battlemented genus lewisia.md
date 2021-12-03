@@ -79,3 +79,9 @@ At this is such nonsense.
 his eyes are you by another.
 : down it her unfortunate little while Alice gave me alone.
 
+
+## Wikilinks load test
+
+[[photogenic acid value]]
+[[grief-stricken quartz battery]]
+[[edentate drumlin]]

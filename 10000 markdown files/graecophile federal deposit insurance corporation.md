@@ -80,3 +80,9 @@ That WILL be When we learned
 IF I thought it wouldn't
 : Here.
 
+
+## Wikilinks load test
+
+[[limp buttermilk]]
+[[slovakian bailment]]
+[[virgin paregmenon]]

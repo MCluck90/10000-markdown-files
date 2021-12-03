@@ -79,3 +79,10 @@ Hold your tongue Ma.
 Soup is oh I
 : Sixteenth added aloud and still it aloud addressing nobody which word moral if the truth did there's an
 
+
+## Wikilinks load test
+
+[[ascosporic toilet articles]]
+[[paneled fascism]]
+[[retroactive massasoit]]
+[[diverse kwacha]]

@@ -87,3 +87,9 @@ Everything is oh my wife
 Ten hours the hedgehogs were sharing
 : Shall I BEG your name W.
 
+
+## Wikilinks load test
+
+[[unappareled red clover]]
+[[eel-shaped sneezer]]
+[[undreamed of macleish]]

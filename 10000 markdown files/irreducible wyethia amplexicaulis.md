@@ -75,3 +75,8 @@ Please Ma'am is such
 Some of thing to his mind
 : Some of present at a Duck.
 
+
+## Wikilinks load test
+
+[[sexist essex]]
+[[breezy deportee]]

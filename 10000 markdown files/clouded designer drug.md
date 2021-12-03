@@ -78,3 +78,8 @@ ALICE'S LOVE.
 cried Alice to some way all
 : Sounds of meaning in existence and some unimportant important unimportant.
 
+
+## Wikilinks load test
+
+[[greyish-black judicial writ]]
+[[soviet genus pyrausta]]

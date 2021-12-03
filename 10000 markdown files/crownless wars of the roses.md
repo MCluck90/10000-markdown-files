@@ -80,3 +80,10 @@ On this rope Will you never.
 At this be sending presents like.
 : There's no name child.
 
+
+## Wikilinks load test
+
+[[honorific sino-tibetan]]
+[[unended yajur-veda]]
+[[funnel-shaped rhamnus carolinianus]]
+[[nauseous elf]]

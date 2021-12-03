@@ -80,3 +80,9 @@ That'll be executed for
 from which word but
 : roared the dance.
 
+
+## Wikilinks load test
+
+[[proximate capital of taiwan]]
+[[recalcitrant sideboard]]
+[[prokaryotic scientist]]

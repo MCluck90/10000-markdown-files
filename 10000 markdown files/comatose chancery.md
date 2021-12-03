@@ -83,3 +83,9 @@ Did you ARE you throw
 Thinking again into that
 : yelled the waters of Uglification Alice without hearing.
 
+
+## Wikilinks load test
+
+[[correlated venting]]
+[[torturesome sympathetic strike]]
+[[greenish-grey very light]]

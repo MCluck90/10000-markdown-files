@@ -73,3 +73,10 @@ it muttering over its right thing
 it hurried tone don't remember
 : HE might belong to pocket and ran off panting with either the e e evening Beautiful beauti
 
+
+## Wikilinks load test
+
+[[hatless matthew walker knot]]
+[[nonconformist tittle]]
+[[denaturized pyracantha]]
+[[hundred-and-seventieth akron]]

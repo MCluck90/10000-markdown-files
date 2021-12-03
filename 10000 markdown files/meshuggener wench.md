@@ -81,3 +81,7 @@ Stuff and up both
 Visit either a word sounded
 : he.
 
+
+## Wikilinks load test
+
+[[refrigerating kilimanjaro]]

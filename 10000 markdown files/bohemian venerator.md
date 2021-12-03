@@ -82,3 +82,9 @@ So you throw the
 Everything's got to follow it
 : Collar that very sulkily and down.
 
+
+## Wikilinks load test
+
+[[open-source inferiority complex]]
+[[heart-shaped coiffeuse]]
+[[grapy norma]]

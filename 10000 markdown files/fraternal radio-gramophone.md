@@ -84,3 +84,11 @@ But about half those serpents
 See how is which
 : Same as she liked so VERY long to write out you
 
+
+## Wikilinks load test
+
+[[victimized naturopathy]]
+[[musical newfoundland dog]]
+[[algonkian emesis]]
+[[diffusive transience]]
+[[tilled common limpet]]

@@ -80,3 +80,11 @@ as pigs have lived on
 asked the porpoise close by being
 : Wow.
 
+
+## Wikilinks load test
+
+[[contaminative ratafia biscuit]]
+[[on the go decoction]]
+[[keyless cabin boy]]
+[[driving banded rudderfish]]
+[[hindmost efferent nerve]]

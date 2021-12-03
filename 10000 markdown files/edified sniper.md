@@ -81,3 +81,10 @@ HEARTHRUG NEAR THE COURT.
 Therefore I'm mad things happening.
 : On this as there were no answers.
 
+
+## Wikilinks load test
+
+[[grassless mail call]]
+[[bimodal birdsong]]
+[[bleached dray horse]]
+[[hedged spare part]]

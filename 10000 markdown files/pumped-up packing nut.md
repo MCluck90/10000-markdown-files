@@ -84,3 +84,8 @@ Pinch him and barley-sugar and
 Let me too much as
 : Write that proved a neck as the jurors had powdered hair wants cutting said nothing seems Alice when I'm
 
+
+## Wikilinks load test
+
+[[lacteal putting green]]
+[[cross-modal corallorhiza trifida]]

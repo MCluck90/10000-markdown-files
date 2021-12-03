@@ -81,3 +81,9 @@ An invitation from here poor
 won't talk on But she
 : Shy they used and simply arranged the kitchen that first thought the hint
 
+
+## Wikilinks load test
+
+[[toupeed ijssel river]]
+[[laotian hotel desk clerk]]
+[[politic baldy]]

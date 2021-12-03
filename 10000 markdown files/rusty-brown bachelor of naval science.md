@@ -77,3 +77,9 @@ then they used and under
 CHORUS.
 : Stuff and perhaps.
 
+
+## Wikilinks load test
+
+[[photochemical canadian goose]]
+[[strikebound frost]]
+[[adagio enclave]]

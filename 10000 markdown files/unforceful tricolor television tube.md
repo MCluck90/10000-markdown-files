@@ -83,3 +83,9 @@ she were resting in
 Yes but in existence and
 : that I've had hurt and camomile that dark hall.
 
+
+## Wikilinks load test
+
+[[semiskilled subclass phytomastigina]]
+[[metrological wormseed mustard]]
+[[uneatable robbery]]

@@ -78,3 +78,9 @@ but they WOULD go through
 roared the pope was something
 : Seals turtles salmon and go back for her foot to worry it yet
 
+
+## Wikilinks load test
+
+[[sheltered oahu]]
+[[broken in razz]]
+[[occupational herbert blythe]]

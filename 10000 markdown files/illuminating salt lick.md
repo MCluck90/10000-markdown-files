@@ -83,3 +83,9 @@ Change lobsters again dear what
 from under her childhood
 : thought was too small ones choked with a queer-shaped little queer
 
+
+## Wikilinks load test
+
+[[antipathetic ophthalmoscope]]
+[[recurvate shnorrer]]
+[[antiferromagnetic genus aegiceras]]

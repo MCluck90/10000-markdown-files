@@ -74,3 +74,8 @@ Don't let the waters of
 catch a row of
 : Ugh.
 
+
+## Wikilinks load test
+
+[[shelled cacao]]
+[[finical dinner theater]]

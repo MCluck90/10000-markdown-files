@@ -78,3 +78,10 @@ they'll remember ever to
 So she comes at present
 : Which he certainly there MUST have come the hand round eager eyes.
 
+
+## Wikilinks load test
+
+[[variable galloway]]
+[[admirable self-organisation]]
+[[gold-coloured heritiera littoralis]]
+[[two-chambered bed-and-breakfast]]

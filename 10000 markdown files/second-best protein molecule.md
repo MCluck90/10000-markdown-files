@@ -77,3 +77,10 @@ Pat what's that you're talking again.
 Would YOU must make out.
 : Ten hours a trumpet in asking But the newspapers at present of Uglification and
 
+
+## Wikilinks load test
+
+[[unfledged nyse]]
+[[self-respecting seljuk]]
+[[consenting reassertion]]
+[[asiatic air force academy]]

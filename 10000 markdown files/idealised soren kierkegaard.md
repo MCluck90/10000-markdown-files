@@ -82,3 +82,8 @@ A likely true.
 Sing her eyes but I'm
 : Poor Alice would die.
 
+
+## Wikilinks load test
+
+[[peaceable family triakidae]]
+[[nomadic cowl]]

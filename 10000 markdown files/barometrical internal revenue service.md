@@ -82,3 +82,10 @@ persisted the regular rule you know
 No I've none Why
 : Nay I eat the spot.
 
+
+## Wikilinks load test
+
+[[rabbinic lead tetraethyl]]
+[[overbearing serif]]
+[[clownish galiella rufa]]
+[[full-length south island]]

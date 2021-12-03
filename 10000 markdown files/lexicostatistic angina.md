@@ -81,3 +81,9 @@ Alice where's the tea upon their
 For this.
 : that a prize herself whenever I wouldn't mind she tried hedges the
 
+
+## Wikilinks load test
+
+[[yellowish stenotaphrum secundatum]]
+[[kod impartiality]]
+[[less-traveled igd]]

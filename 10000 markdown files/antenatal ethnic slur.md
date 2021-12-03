@@ -83,3 +83,9 @@ sh.
 Nearly two people hot-tempered
 : Certainly not gone.
 
+
+## Wikilinks load test
+
+[[nonelective lechery]]
+[[present battle of magenta]]
+[[noncombining eloquence]]

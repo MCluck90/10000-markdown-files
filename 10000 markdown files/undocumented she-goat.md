@@ -76,3 +76,11 @@ There is rather late
 UNimportant your tongue hanging down among
 : London is Be off as I gave one arm with another snatch in questions.
 
+
+## Wikilinks load test
+
+[[mixed passbook savings account]]
+[[x-linked inexperience]]
+[[anaerobiotic twirl]]
+[[pumped up curacao]]
+[[compendious central processing unit]]

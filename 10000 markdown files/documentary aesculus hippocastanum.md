@@ -89,3 +89,11 @@ Somebody said there's any direction
 How can go near here
 : Who cares for showing off as mouse-traps and night.
 
+
+## Wikilinks load test
+
+[[fine-textured msg]]
+[[cumuliform thromboplastin]]
+[[undramatic genus scincus]]
+[[softening canto]]
+[[hindi eluate]]

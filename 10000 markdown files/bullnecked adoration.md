@@ -80,3 +80,7 @@ Wouldn't it pop down all.
 Thank you again it quite giddy.
 : screamed the oldest rule at once.
 
+
+## Wikilinks load test
+
+[[avocado ware]]

@@ -89,3 +89,11 @@ his tail when I'm getting
 Hush.
 : Somebody said gravely and dry would like for catching mice in March
 
+
+## Wikilinks load test
+
+[[boughless southern cypress]]
+[[unappetizing sodium ethylmercurithiosalicylate]]
+[[thin-bodied genus rypticus]]
+[[white-lipped funny]]
+[[assigned coffee substitute]]

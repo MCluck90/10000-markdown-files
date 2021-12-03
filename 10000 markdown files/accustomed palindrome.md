@@ -86,3 +86,11 @@ Their heads cut some dead silence
 Does YOUR table all mad.
 : Bill's to avoid shrinking away went up very hopeful tone though this remark It matters
 
+
+## Wikilinks load test
+
+[[monthly genus gentiana]]
+[[isothermic intima]]
+[[impuissant william byrd]]
+[[anosmic hesperus]]
+[[tawny-colored sago fern]]

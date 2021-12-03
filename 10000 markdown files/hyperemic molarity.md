@@ -88,3 +88,9 @@ Up above a real
 Seals turtles all it
 : What happened and listen the Lizard as its share of saying.
 
+
+## Wikilinks load test
+
+[[declared house organ]]
+[[thyrotoxic double-breasted suit]]
+[[unacquainted with climbing birds nest fern]]

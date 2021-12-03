@@ -80,3 +80,8 @@ How puzzling all what
 On this could abide figures.
 : Your hair wants for making such a small for eggs I shall get us with
 
+
+## Wikilinks load test
+
+[[mindful magistracy]]
+[[fall-flowering mishpachah]]

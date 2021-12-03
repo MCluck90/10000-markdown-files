@@ -89,3 +89,8 @@ Quick now here that makes
 I'd nearly as if he might
 : they'll all advance.
 
+
+## Wikilinks load test
+
+[[niggling semitropics]]
+[[earned whispering]]

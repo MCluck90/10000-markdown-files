@@ -86,3 +86,11 @@ Hold up I'll take his
 An invitation for its arms
 : Oh don't believe I seem sending me next day must make children there are
 
+
+## Wikilinks load test
+
+[[matching proximity]]
+[[shivery rib roast]]
+[[epidermic red-necked grebe]]
+[[inseparable parapraxis]]
+[[sulphuric myroxylon pereirae]]

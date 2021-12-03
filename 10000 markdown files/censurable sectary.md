@@ -84,3 +84,7 @@ RABBIT engraved upon its children.
 quite unhappy at any
 : Suppose we go back.
 
+
+## Wikilinks load test
+
+[[peppy rescue operation]]

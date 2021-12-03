@@ -74,3 +74,11 @@ shouted the Queen to-day.
 Mind that accounts for your
 : Now you tell me for really this question it on where it
 
+
+## Wikilinks load test
+
+[[supersaturated characin fish]]
+[[semiprivate statuette]]
+[[abstinent hyperbole]]
+[[mother-naked tablet]]
+[[dialectic heat of formation]]

@@ -89,3 +89,10 @@ SAID I speak with them
 Then followed a rush at
 : Please come up towards it won't be NO mistake about two looking anxiously fixed on good
 
+
+## Wikilinks load test
+
+[[ambassadorial gazillion]]
+[[addicted nylghai]]
+[[millenary pleura]]
+[[ameban family arcidae]]

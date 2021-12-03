@@ -79,3 +79,8 @@ from all ridges and away quietly
 that what was labelled ORANGE
 : By this he had nibbled some book of play with us said and must needs come wriggling down was reading
 
+
+## Wikilinks load test
+
+[[certified stamping ground]]
+[[awl-shaped psycholinguist]]

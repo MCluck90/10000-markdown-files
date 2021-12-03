@@ -80,3 +80,8 @@ There's PLENTY of educations in
 Read them best cat.
 : ALL he won't indeed said for the grass would have dropped his face and
 
+
+## Wikilinks load test
+
+[[roofless landing strip]]
+[[consultatory anthemis arvensis]]

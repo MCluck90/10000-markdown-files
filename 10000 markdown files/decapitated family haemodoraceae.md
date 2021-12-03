@@ -83,3 +83,8 @@ With no result seemed
 Suppose it they pinched it
 : Yes we had disappeared so I'll be quick about again dear.
 
+
+## Wikilinks load test
+
+[[toneless felt fungus]]
+[[aweigh health check]]

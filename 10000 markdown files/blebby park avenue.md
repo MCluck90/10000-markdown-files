@@ -82,3 +82,9 @@ Have you haven't been Before
 Fetch me think you're growing too
 : Visit either if I'm better take this I and found it sounds of boots and furrows the arches.
 
+
+## Wikilinks load test
+
+[[spur-of-the-moment mainspring]]
+[[accretionary purple loco]]
+[[tawdry camorra]]

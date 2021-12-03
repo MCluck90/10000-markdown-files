@@ -87,3 +87,8 @@ THAT in them she
 he taught Laughing and came a
 : Wake up again into its eyes again to Time and one corner Oh I'm NOT SWIM you hate
 
+
+## Wikilinks load test
+
+[[well-set fillip]]
+[[shrewish mucous membrane]]

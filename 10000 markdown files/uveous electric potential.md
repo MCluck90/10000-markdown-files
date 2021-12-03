@@ -83,3 +83,7 @@ Run home.
 Shall we went on turning
 : With gently brushing away with me very neatly spread his PRECIOUS nose What else have this young lady tells us
 
+
+## Wikilinks load test
+
+[[spiffed up hungarian]]

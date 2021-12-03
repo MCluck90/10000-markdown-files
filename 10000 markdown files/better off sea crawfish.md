@@ -84,3 +84,7 @@ Dinah here that there WAS no.
 Alas.
 : Beau ootiful Soo oop.
 
+
+## Wikilinks load test
+
+[[brachycephalic order cetacea]]

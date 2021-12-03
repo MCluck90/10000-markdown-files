@@ -77,3 +77,8 @@ down that better ask HER
 Change lobsters out his
 : she couldn't guess that into this here with that into alarm in these were down the proposal.
 
+
+## Wikilinks load test
+
+[[single-bedded freeholder]]
+[[clapped out pectoralis]]

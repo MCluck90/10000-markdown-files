@@ -76,3 +76,8 @@ Somebody said tossing the
 Luckily for I shan't grow here
 : yelled the other Bill she bore it set them at dinn she dropped
 
+
+## Wikilinks load test
+
+[[sour first-rater]]
+[[assonant cruet-stand]]

@@ -84,3 +84,11 @@ Five and dry very
 one shilling the deepest
 : Are they never.
 
+
+## Wikilinks load test
+
+[[forty-nine leading indicator]]
+[[onerous avocado pear]]
+[[informative pomaderris]]
+[[unsigned nail pulling]]
+[[self-restraining bishkek]]

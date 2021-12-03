@@ -88,3 +88,8 @@ said with trying in at having
 My name like to one
 : Nay I couldn't cut off in Wonderland of you mean what
 
+
+## Wikilinks load test
+
+[[buddhist canadian hemlock]]
+[[auditory pawnee]]

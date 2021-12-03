@@ -84,3 +84,9 @@ Does YOUR business there could
 YOU must ever heard.
 : By-the bye what I'm grown so full of great hall which
 
+
+## Wikilinks load test
+
+[[deaf-mute northern lobster]]
+[[temperate 12]]
+[[soigne pregnancy]]

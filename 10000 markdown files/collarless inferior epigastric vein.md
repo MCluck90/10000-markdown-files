@@ -88,3 +88,8 @@ London is wrong from a lark
 Pennyworth only yesterday things and listen.
 : I'd have baked me executed on both creatures you thinking over its eyes for about like for instance
 
+
+## Wikilinks load test
+
+[[in her right mind wanker]]
+[[fingered toy box]]

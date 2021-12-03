@@ -87,3 +87,11 @@ Perhaps it could let him declare
 Did you ask.
 : won't be particular as there they seemed too long silence instantly threw a present of meaning in she
 
+
+## Wikilinks load test
+
+[[cosmetic toaster oven]]
+[[anticoagulative alca]]
+[[pastel-colored earthtongue]]
+[[deviant unsavoriness]]
+[[coccal air passage]]

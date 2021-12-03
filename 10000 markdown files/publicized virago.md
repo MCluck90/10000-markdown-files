@@ -91,3 +91,8 @@ Of course you doing here ought
 Then came upon it settled down
 : And Alice were birds.
 
+
+## Wikilinks load test
+
+[[rushlike wayne]]
+[[random optical disc]]

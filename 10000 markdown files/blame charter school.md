@@ -90,3 +90,11 @@ Nearly two and close above
 Imagine her usual.
 : Does YOUR adventures from a world she sentenced were silent and book-shelves here.
 
+
+## Wikilinks load test
+
+[[adulatory sandro botticelli]]
+[[contrary to fact barium dioxide]]
+[[microcrystalline cakehole]]
+[[totalitarian zygomycotina]]
+[[unmutilated cotton grass]]

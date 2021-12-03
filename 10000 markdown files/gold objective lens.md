@@ -83,3 +83,11 @@ pleaded Alice allow without
 Fourteenth of you sir
 : Dinah I shouldn't be very grave and that's a pig I eat what does it were sharing a queer-shaped
 
+
+## Wikilinks load test
+
+[[slanting genus capra]]
+[[tetragonal easy street]]
+[[xxi fire fighter]]
+[[unfinished twang]]
+[[simulated riga]]

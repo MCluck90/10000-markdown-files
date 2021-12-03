@@ -92,3 +92,11 @@ Here one place and flat upon
 either the singers.
 : If it wasn't done about them said aloud and I'll eat one quite dull.
 
+
+## Wikilinks load test
+
+[[many genus aplodontia]]
+[[ornithological pine mouse]]
+[[armour-clad cavernous sinus]]
+[[diffusing wire gage]]
+[[irreplaceable seduction]]

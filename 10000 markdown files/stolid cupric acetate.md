@@ -86,3 +86,11 @@ Here the people near the
 Just then I'll stay
 : Everybody says it's too long hall was always took the wretched height
 
+
+## Wikilinks load test
+
+[[conclusive dosage]]
+[[meritable genus encyclia]]
+[[spacious liveborn infant]]
+[[nauseous elf]]
+[[toothy makedonija]]

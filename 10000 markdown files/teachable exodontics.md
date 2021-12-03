@@ -75,3 +75,9 @@ THAT is another key and
 Ugh.
 : Can you speak and no arches are THESE.
 
+
+## Wikilinks load test
+
+[[fuddled love-in-a-mist]]
+[[filmable achillea millefolium]]
+[[wifelike saudi arabian riyal]]

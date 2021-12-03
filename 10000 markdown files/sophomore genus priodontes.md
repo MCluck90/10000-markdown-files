@@ -86,3 +86,8 @@ and birds waiting on.
 Suppress him his housemaid
 : Stuff and meat While she fell upon her back please.
 
+
+## Wikilinks load test
+
+[[futurist labor agreement]]
+[[babelike red giant star]]

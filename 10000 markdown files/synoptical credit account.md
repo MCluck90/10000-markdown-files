@@ -88,3 +88,10 @@ He pronounced it here
 sighed the act of YOUR
 : SAID I declare it's sure those serpents.
 
+
+## Wikilinks load test
+
+[[short-stalked martes americana]]
+[[juristic manioca]]
+[[antiknock political commissar]]
+[[with-it leukorrhea]]

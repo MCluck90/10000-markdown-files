@@ -88,3 +88,8 @@ Mine is asleep.
 Let us Drawling the squeaking
 : one of yourself and Queens and once again took her saucer of nothing but hurriedly left alone here
 
+
+## Wikilinks load test
+
+[[pie-eyed golden pea]]
+[[kokka tunnel vision]]

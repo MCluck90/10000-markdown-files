@@ -78,3 +78,11 @@ A bright flowers and
 Their heads of trees a hundred
 : Silence.
 
+
+## Wikilinks load test
+
+[[homonymous miso]]
+[[invaluable echinacea]]
+[[surficial senior vice president]]
+[[overrefined mya arenaria]]
+[[cephalopodan nuclear warhead]]

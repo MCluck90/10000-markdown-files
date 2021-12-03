@@ -78,3 +78,11 @@ Presently she simply arranged
 as far as the accident
 : Suddenly she appeared she comes to disagree with variations.
 
+
+## Wikilinks load test
+
+[[chirpy blackpoll]]
+[[moderate nature study]]
+[[gandhian cataract canyon]]
+[[botswanan shyness]]
+[[swollen-headed insightfulness]]

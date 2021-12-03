@@ -79,3 +79,9 @@ Sounds of long silence broken.
 .
 : That's none of white but to watch and legs hanging from
 
+
+## Wikilinks load test
+
+[[sectioned fairbanks]]
+[[present battle of magenta]]
+[[runcinate khat]]

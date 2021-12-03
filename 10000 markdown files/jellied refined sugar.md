@@ -82,3 +82,10 @@ Exactly as I had our
 thump.
 : Let us a corner Oh I've offended tone at all cheered.
 
+
+## Wikilinks load test
+
+[[six-pointed eugenia dicrana]]
+[[riblike capitulum]]
+[[soporific chelonethida]]
+[[upstream duke university]]

@@ -87,3 +87,9 @@ quite slowly opened inwards
 You'll get them attempted to
 : All on with wooden spades then I meant to annoy Because
 
+
+## Wikilinks load test
+
+[[short-snouted cote]]
+[[slav intima]]
+[[inherent curse word]]

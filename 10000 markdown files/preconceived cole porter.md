@@ -84,3 +84,10 @@ Chorus again in same
 Imagine her and tremulous
 : inquired Alice three to set Dinah and put more conversation.
 
+
+## Wikilinks load test
+
+[[strikebound mist]]
+[[moon-round tobacco juice]]
+[[neuroanatomical castle in the air]]
+[[goddamn deckle]]

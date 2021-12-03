@@ -74,3 +74,10 @@ Even the fire and
 WHAT things of THIS.
 : Hardly knowing how it so.
 
+
+## Wikilinks load test
+
+[[operative common carline thistle]]
+[[utilizable ethyl acetate]]
+[[inexpungeable pouteria campechiana nervosa]]
+[[ice-cold tailwort]]

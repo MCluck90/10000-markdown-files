@@ -82,3 +82,7 @@ Well it directed at
 Same as usual said and
 : I'M not stand and near.
 
+
+## Wikilinks load test
+
+[[appalled antisocial personality disorder]]

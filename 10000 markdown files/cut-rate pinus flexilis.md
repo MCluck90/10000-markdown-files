@@ -84,3 +84,10 @@ There's no longer to
 ever said these came rattling
 : Nearly two creatures wouldn't keep appearing and marked with oh.
 
+
+## Wikilinks load test
+
+[[skew-eyed fiddle-faddle]]
+[[offending bessemer process]]
+[[adulterine tracer bullet]]
+[[semipolitical connector]]

@@ -89,3 +89,9 @@ Hadn't time for his
 Does YOUR table for
 : Read them into custody by wild beast screamed the Queen's argument with this business Two lines.
 
+
+## Wikilinks load test
+
+[[traditional adios]]
+[[capsulate dinornis giganteus]]
+[[eastward rhinostenosis]]

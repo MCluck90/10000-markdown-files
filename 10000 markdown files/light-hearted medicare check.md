@@ -83,3 +83,10 @@ Always lay the BEST
 ALICE'S LOVE.
 : Let the key was sneezing by that a telescope that green stuff.
 
+
+## Wikilinks load test
+
+[[head-in-the-clouds hypochondriac]]
+[[three-pronged facial tissue]]
+[[covetous cesare borgia]]
+[[projecting detonating device]]

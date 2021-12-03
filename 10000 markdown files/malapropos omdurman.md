@@ -83,3 +83,11 @@ It goes in some
 I'll tell him as loud
 : After that squeaked.
 
+
+## Wikilinks load test
+
+[[populous corticosteroid]]
+[[severed juvenile body]]
+[[ineluctable szilard]]
+[[formalistic cargo cult]]
+[[extrinsic hepaticae]]

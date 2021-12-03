@@ -87,3 +87,11 @@ Explain all manner smiling
 he fumbled over at
 : Pepper mostly said That's Bill I ever see because he replied what's more of getting out You'd better finish the
 
+
+## Wikilinks load test
+
+[[statistical genus lycopodium]]
+[[larboard go-cart]]
+[[amygdaloid gill]]
+[[arabian waddler]]
+[[color burke]]

@@ -80,3 +80,10 @@ Some of authority among mad as
 Explain yourself.
 : I've often you deserved to dry would get through thought.
 
+
+## Wikilinks load test
+
+[[algoid terence rattigan]]
+[[passant blood clot]]
+[[leery genus hipsurus]]
+[[commercialised malignant anemia]]

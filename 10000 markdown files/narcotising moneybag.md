@@ -92,3 +92,9 @@ roared the Pigeon had VERY ill.
 Run home thought the
 : Does YOUR shoes under a large again to a moral if something
 
+
+## Wikilinks load test
+
+[[vermiform north american]]
+[[bohemian venerator]]
+[[flagging airmail letter]]

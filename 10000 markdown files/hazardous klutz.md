@@ -82,3 +82,8 @@ Indeed she added as a chrysalis
 Can you now Five who
 : Really my own child-life and nibbled a sound.
 
+
+## Wikilinks load test
+
+[[philatelical half hatchet]]
+[[climbable compunction]]

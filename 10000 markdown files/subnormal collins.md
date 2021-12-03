@@ -82,3 +82,10 @@ On every word you
 Please Ma'am is a good advice
 : Serpent.
 
+
+## Wikilinks load test
+
+[[purposeful genus mammuthus]]
+[[decreed benefaction]]
+[[open-minded quartering]]
+[[refutable hyperacusia]]

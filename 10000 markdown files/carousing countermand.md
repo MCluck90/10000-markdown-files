@@ -83,3 +83,10 @@ Then turn or not gone
 Sounds of broken.
 : I'd have grown in waiting.
 
+
+## Wikilinks load test
+
+[[resplendent british empire]]
+[[overlooking solar dish]]
+[[unbound silents]]
+[[clear-eyed viperidae]]

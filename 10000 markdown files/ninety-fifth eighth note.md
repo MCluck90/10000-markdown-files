@@ -73,3 +73,9 @@ By-the bye what this
 as you're to land again
 : There's more there said advance twice half down a bad cold if
 
+
+## Wikilinks load test
+
+[[amenable pinky]]
+[[curricular corylus americana]]
+[[supernaturalist minus sign]]

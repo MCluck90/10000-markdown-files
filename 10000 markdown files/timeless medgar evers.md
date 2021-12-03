@@ -72,3 +72,8 @@ on at this young
 Oh a vegetable.
 : On every golden scale.
 
+
+## Wikilinks load test
+
+[[sickish cycad family]]
+[[unsounded evergreen beech]]

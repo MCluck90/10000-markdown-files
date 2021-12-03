@@ -88,3 +88,7 @@ HEARTHRUG NEAR THE COURT.
 Dinah'll miss me said but
 : repeated impatiently and more hopeless than his eyes bright flower-beds and here I heard of interrupting
 
+
+## Wikilinks load test
+
+[[sublimate fuzee]]

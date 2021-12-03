@@ -81,3 +81,8 @@ Last came upon the
 Last came Oh do this
 : The question.
 
+
+## Wikilinks load test
+
+[[amber penicillium]]
+[[gold kwacha]]

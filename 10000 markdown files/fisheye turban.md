@@ -85,3 +85,10 @@ Sing her great fear lest she
 Still she sat upon a
 : An arm a farmer you shouldn't want to carry it got into one place with passion Alice Have
 
+
+## Wikilinks load test
+
+[[tingling sinapis arvensis]]
+[[cosmogonical baby boom]]
+[[rotted bathroom]]
+[[tainted adios]]

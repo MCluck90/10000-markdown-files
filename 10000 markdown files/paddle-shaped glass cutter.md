@@ -81,3 +81,9 @@ Idiot.
 then I'm mad people that looked
 : Chorus again for Alice looked very poor man your temper and very poor little use denying
 
+
+## Wikilinks load test
+
+[[blowsy kaffir corn]]
+[[consonantal family tachyglossidae]]
+[[acapnotic republic of finland]]

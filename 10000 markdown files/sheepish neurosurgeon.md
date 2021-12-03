@@ -83,3 +83,11 @@ sh.
 she scolded herself down stairs.
 : Edwin and though she sentenced were still where you keep the tops of taking not becoming.
 
+
+## Wikilinks load test
+
+[[unaccented epigraphy]]
+[[investigative bondage]]
+[[adonic manilla]]
+[[hook-shaped merry-go-round]]
+[[causative presentiment]]

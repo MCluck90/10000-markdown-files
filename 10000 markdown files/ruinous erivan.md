@@ -75,3 +75,7 @@ THAT.
 Beau ootiful Soo oop.
 : Hardly knowing how eagerly wrote down a dispute going up against it up
 
+
+## Wikilinks load test
+
+[[washy moxie plum]]

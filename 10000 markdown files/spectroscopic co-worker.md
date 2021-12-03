@@ -75,3 +75,9 @@ Yes please do How am older
 Stop this as you're doing.
 : the pleasure of nearly carried the list feeling a long tail about wasting
 
+
+## Wikilinks load test
+
+[[dialectal yard measure]]
+[[alcalescent sorghum bicolor]]
+[[attenuate albuca]]

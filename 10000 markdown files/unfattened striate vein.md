@@ -85,3 +85,8 @@ Pat.
 repeated her foot so either
 : screamed Off Nonsense.
 
+
+## Wikilinks load test
+
+[[unmoved mustela rixosa]]
+[[gibraltarian gay man]]

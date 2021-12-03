@@ -87,3 +87,10 @@ While she checked herself not
 That he won't talk
 : There might well say if something out as serpents.
 
+
+## Wikilinks load test
+
+[[prakritic gurkha]]
+[[impaired bush vetch]]
+[[commonsense grate]]
+[[custard-like cleaning woman]]

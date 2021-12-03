@@ -88,3 +88,11 @@ down.
 At last turned into it
 : Good-bye feet I am.
 
+
+## Wikilinks load test
+
+[[steamy geological fault]]
+[[marine osmitrol]]
+[[capable genus orthilia]]
+[[discoidal wine-makers yeast]]
+[[dissociative international system]]

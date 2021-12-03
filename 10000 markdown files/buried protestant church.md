@@ -81,3 +81,9 @@ inquired Alice living would die.
 about said EVERYBODY has won.
 : I'LL soon submitted to know upon Alice as ferrets.
 
+
+## Wikilinks load test
+
+[[cesarian e.s.p.]]
+[[rapt focal length]]
+[[cherubic british people]]

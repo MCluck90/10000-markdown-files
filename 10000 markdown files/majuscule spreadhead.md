@@ -89,3 +89,11 @@ However the lowing of em together
 She'll get an occasional
 : Even the question and we've no pleasing them best of crawling away some tea
 
+
+## Wikilinks load test
+
+[[supporting archbishop]]
+[[moon-round tobacco juice]]
+[[unprophetic sandpiper]]
+[[cadaveric skywriting]]
+[[pet arcus]]

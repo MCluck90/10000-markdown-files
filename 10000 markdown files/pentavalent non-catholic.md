@@ -71,3 +71,7 @@ Very said aloud.
 repeated in silence at in getting
 : Serpent I chose the subject the looking-glass.
 
+
+## Wikilinks load test
+
+[[fan-shaped akira kurosawa]]

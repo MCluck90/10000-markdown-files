@@ -83,3 +83,8 @@ What are all you
 Stolen.
 : Alas.
 
+
+## Wikilinks load test
+
+[[singaporean circular plane]]
+[[natural object lens]]

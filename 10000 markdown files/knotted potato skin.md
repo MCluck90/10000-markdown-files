@@ -75,3 +75,11 @@ ALICE'S LOVE.
 Consider my own mind
 : persisted.
 
+
+## Wikilinks load test
+
+[[serial exculpation]]
+[[marred octopus]]
+[[aversive ladylikeness]]
+[[frantic makeready]]
+[[metaphoric enlisting]]

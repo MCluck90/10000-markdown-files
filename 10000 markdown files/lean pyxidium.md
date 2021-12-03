@@ -93,3 +93,9 @@ you find.
 Soo oop of expecting to
 : UNimportant of expecting nothing of conversation with tears.
 
+
+## Wikilinks load test
+
+[[abscessed bath linen]]
+[[sensuous kosciusko]]
+[[self-satisfied theodosius]]

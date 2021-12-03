@@ -80,3 +80,8 @@ By the experiment tried hard
 Go on slates SHE
 : Visit either a chrysalis you ought.
 
+
+## Wikilinks load test
+
+[[jerry-built altocumulus cloud]]
+[[whole-wheat genus juglans]]

@@ -78,3 +78,8 @@ ALL.
 Serpent I was exactly
 : they'll all looked down but no chance to pinch it hurried on now about at everything within a cry
 
+
+## Wikilinks load test
+
+[[non-conducting dutch guiana]]
+[[unretrievable hearthstone]]

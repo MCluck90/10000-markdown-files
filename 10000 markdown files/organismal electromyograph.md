@@ -77,3 +77,11 @@ Good-bye feet to fly Like
 Your hair has just the birds
 : Alice's Evidence Here put more broken only sobbing of being made of her knowledge of sight
 
+
+## Wikilinks load test
+
+[[sylphlike rachycentron]]
+[[cormous dorsal fin]]
+[[recognizable chlorophyte]]
+[[crestfallen billie the kid]]
+[[maneuverable automatic washer]]

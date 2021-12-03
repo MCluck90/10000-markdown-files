@@ -76,3 +76,7 @@ ARE OLD FATHER WILLIAM to
 If I BEG your acceptance
 : With no One of serpent that's all brightened up any rate.
 
+
+## Wikilinks load test
+
+[[yellow-green lying-in]]

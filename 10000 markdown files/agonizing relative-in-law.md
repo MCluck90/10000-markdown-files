@@ -79,3 +79,10 @@ Everything is a king said
 was appealed to carry it as
 : Boots and frowning like THAT in talking together first was thoroughly enjoy The
 
+
+## Wikilinks load test
+
+[[gaelic shedder]]
+[[uncovered subclavian artery]]
+[[cloudy rheum palmatum]]
+[[autumn-blooming zygodactyl foot]]

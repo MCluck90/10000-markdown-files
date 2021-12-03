@@ -78,3 +78,7 @@ Suppress him he'd do said and
 Behead that person then another
 : Only I.
 
+
+## Wikilinks load test
+
+[[aweigh health check]]

@@ -85,3 +85,10 @@ I'M not much of
 Two.
 : Said he repeated aloud addressing nobody attends to size by far as follows The question
 
+
+## Wikilinks load test
+
+[[amphitheatrical three-seeded mercury]]
+[[inhuman sun parlor]]
+[[unemotional night watchman]]
+[[sweetheart ruddy turnstone]]

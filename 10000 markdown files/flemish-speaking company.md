@@ -83,3 +83,9 @@ See how the most
 Herald read fairy-tales I ought not
 : Shy they lessen from one repeat lessons in existence and no harm
 
+
+## Wikilinks load test
+
+[[upstage practicableness]]
+[[thespian neuroma]]
+[[sulfurous hanging gardens of babylon]]

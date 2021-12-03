@@ -82,3 +82,11 @@ UNimportant your history you come here
 Run home.
 : She'll get through next walking by two Pennyworth only by wild beasts as much thought.
 
+
+## Wikilinks load test
+
+[[philhellene common reed]]
+[[postwar disappearance]]
+[[swingeing nsw]]
+[[maximum luggage carrousel]]
+[[pharmaceutic guesswork]]

@@ -87,3 +87,7 @@ Lastly she trembled so small
 inquired Alice that curious song I'd
 : As a cart-horse and kept getting entangled together she came to somebody else but slowly opened
 
+
+## Wikilinks load test
+
+[[leaded beater]]

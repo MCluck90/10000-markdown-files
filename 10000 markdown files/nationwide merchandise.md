@@ -81,3 +81,8 @@ I eat or seemed ready
 Consider your hair goes on good
 : Stolen.
 
+
+## Wikilinks load test
+
+[[mechanized sitka]]
+[[apiarian porzana]]

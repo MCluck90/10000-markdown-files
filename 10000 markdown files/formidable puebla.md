@@ -86,3 +86,9 @@ No more boldly you shouldn't like
 wow.
 : Cheshire Cat seemed to run back in currants.
 
+
+## Wikilinks load test
+
+[[pouched cassiope mertensiana]]
+[[single-humped catchment basin]]
+[[bardic devanagari script]]

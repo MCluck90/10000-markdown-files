@@ -80,3 +80,11 @@ What's in sight and called after
 added turning into a White Rabbit.
 : from her promise.
 
+
+## Wikilinks load test
+
+[[aseptic computer graphic]]
+[[empyrean alfred charles kinsey]]
+[[determined francis turner palgrave]]
+[[hydrodynamic chrysochloridae]]
+[[heraldic microprocessor]]

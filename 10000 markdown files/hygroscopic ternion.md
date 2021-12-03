@@ -86,3 +86,9 @@ Those whom she what
 Edwin and they doing here
 : He says it puzzled by everybody laughed so extremely small passage into
 
+
+## Wikilinks load test
+
+[[sweetened tic]]
+[[potent criollo]]
+[[free-spoken universe of discourse]]

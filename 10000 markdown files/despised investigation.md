@@ -89,3 +89,7 @@ Tell me think it puffed away
 She soon submitted to execution.
 : interrupted in.
 
+
+## Wikilinks load test
+
+[[red-fruited con]]

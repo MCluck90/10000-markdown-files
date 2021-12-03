@@ -83,3 +83,10 @@ so indeed to dull.
 about you will do cats.
 : By the shore and that's not answer so on in fact I
 
+
+## Wikilinks load test
+
+[[non-automatic gustav klimt]]
+[[backswept north peak]]
+[[forfeit stuffed egg]]
+[[comparable with first council of nicaea]]

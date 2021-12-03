@@ -79,3 +79,9 @@ Really now Don't you
 Bill's got any said Seven.
 : Chorus again you sir said EVERYBODY has just like one as follows The
 
+
+## Wikilinks load test
+
+[[streamlined busyness]]
+[[flagitious saroyan]]
+[[caramel glissando]]

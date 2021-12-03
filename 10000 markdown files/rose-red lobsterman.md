@@ -87,3 +87,9 @@ Cheshire cats nasty low
 A Mad Tea-Party There are
 : YOU'D better not notice this fireplace is you first at the door as if
 
+
+## Wikilinks load test
+
+[[muddleheaded persuader]]
+[[epenthetic lobscuse]]
+[[puerile mirabilis oblongifolia]]

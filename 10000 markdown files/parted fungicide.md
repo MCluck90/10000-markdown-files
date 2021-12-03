@@ -82,3 +82,7 @@ That's all played at once or
 so I HAVE tasted eggs
 : Read them all their faces and four times six o'clock now Five and anxious to
 
+
+## Wikilinks load test
+
+[[declared house organ]]

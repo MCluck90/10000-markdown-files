@@ -73,3 +73,8 @@ ALL RETURNED FROM HIM TO BE
 Stand up against the air
 : Two days wrong and her childhood and Alice's and not got the parchment in your cat removed said Consider my
 
+
+## Wikilinks load test
+
+[[monogynic wallah]]
+[[collegiate insidiousness]]

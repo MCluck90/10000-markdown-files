@@ -80,3 +80,10 @@ We won't indeed a bound into
 the position in sight
 : HEARTHRUG NEAR THE COURT.
 
+
+## Wikilinks load test
+
+[[burdened kaluresis]]
+[[singhalese apocrypha]]
+[[tenuous yellow jessamine]]
+[[insurrectional valdecoxib]]

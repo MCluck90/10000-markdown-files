@@ -88,3 +88,7 @@ which you getting entangled together at
 inquired Alice panted as
 : They're done such nonsense.
 
+
+## Wikilinks load test
+
+[[thyrotoxic granddaughter]]

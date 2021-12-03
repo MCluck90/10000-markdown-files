@@ -84,3 +84,9 @@ he knows such an
 they'll do it muttering over
 : Pinch him with curiosity.
 
+
+## Wikilinks load test
+
+[[unforgiving urease]]
+[[dud intercommunion]]
+[[squabby linen]]

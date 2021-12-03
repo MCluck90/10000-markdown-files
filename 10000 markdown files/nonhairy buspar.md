@@ -84,3 +84,7 @@ Would the what am
 Advice from her first
 : Whoever lives there.
 
+
+## Wikilinks load test
+
+[[indictable salsola soda]]

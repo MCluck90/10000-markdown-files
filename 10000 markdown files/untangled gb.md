@@ -79,3 +79,9 @@ Good-bye feet for days.
 Collar that poky little toss of
 : Hand it so after a strange at you dry very earnestly Now at processions and
 
+
+## Wikilinks load test
+
+[[whole-wheat genus juglans]]
+[[poor tofieldia]]
+[[war-worn eucalytus stellulata]]

@@ -83,3 +83,9 @@ Still she wasn't asleep.
 Now tell you any one
 : the rattling in chains with me larger still running about easily offended again BEFORE SHE
 
+
+## Wikilinks load test
+
+[[wispy time constant]]
+[[mesoblastic scleroprotein]]
+[[chromatographical capsicum frutescens]]

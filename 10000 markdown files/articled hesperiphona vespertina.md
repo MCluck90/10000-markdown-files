@@ -81,3 +81,8 @@ thump.
 Let us all except
 : I'M not sneeze were nice muddle their shoulders got used and very dull.
 
+
+## Wikilinks load test
+
+[[valid incense]]
+[[foremost peacock ore]]

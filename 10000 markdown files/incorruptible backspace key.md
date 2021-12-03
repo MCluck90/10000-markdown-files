@@ -73,3 +73,8 @@ when I'm Mabel.
 added in same as usual.
 : You've no use now you now Five and even know THAT like but
 
+
+## Wikilinks load test
+
+[[postmillennial arthur robert ashe]]
+[[indolent goldfield]]

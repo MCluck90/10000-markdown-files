@@ -90,3 +90,10 @@ Back to mark the
 exclaimed Alice how long
 : CHORUS.
 
+
+## Wikilinks load test
+
+[[declarable advocator]]
+[[unquestioned conduction aphasia]]
+[[disciplinary fall armyworm]]
+[[lettered vacuousness]]

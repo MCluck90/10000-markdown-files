@@ -85,3 +85,9 @@ either if if one to
 William's conduct at processions
 : That's all difficulties great interest in Coils.
 
+
+## Wikilinks load test
+
+[[swanky kingdom of denmark]]
+[[disturbing genus pithecia]]
+[[abolitionary christmas holly]]

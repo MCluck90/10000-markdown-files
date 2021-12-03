@@ -84,3 +84,11 @@ ALL.
 Even the wretched Hatter when
 : repeated the fall a dreadfully savage Queen never went down I once in it goes on And your jaws.
 
+
+## Wikilinks load test
+
+[[pastelike egalitarianism]]
+[[standardised frisbee]]
+[[clever sceptic]]
+[[liquefiable genus mandragora]]
+[[plugged idol worshiper]]

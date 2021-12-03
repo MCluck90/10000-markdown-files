@@ -72,3 +72,10 @@ For the very hot tea
 In my boy I mean
 : After a teacup instead.
 
+
+## Wikilinks load test
+
+[[bowfront tristram]]
+[[amalgamated wild bill hickock]]
+[[substandard south platte river]]
+[[pinkish-white infinitude]]

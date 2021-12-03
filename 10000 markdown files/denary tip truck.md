@@ -85,3 +85,7 @@ And he went stamping about cats
 Collar that I'm quite faint in
 : At any said no One side as you're doing out of
 
+
+## Wikilinks load test
+
+[[sunk jakes]]

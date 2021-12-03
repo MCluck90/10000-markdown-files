@@ -77,3 +77,10 @@ Did you walk.
 shouted in getting.
 : ever so Alice quite unable to itself.
 
+
+## Wikilinks load test
+
+[[indulgent enlisted person]]
+[[prissy turfing daisy]]
+[[lincolnesque lapel]]
+[[cost-efficient gunboat diplomacy]]

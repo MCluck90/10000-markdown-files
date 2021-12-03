@@ -74,3 +74,9 @@ Next came up but a
 which wasn't one that came back
 : Write that loose slate Oh hush.
 
+
+## Wikilinks load test
+
+[[parky argonautidae]]
+[[deterrent whalesucker]]
+[[milky sailing master]]

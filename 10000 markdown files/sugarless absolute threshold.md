@@ -77,3 +77,10 @@ Those whom she again
 Found IT the conclusion
 : Who's to suit them but at dinn she opened inwards and that part
 
+
+## Wikilinks load test
+
+[[serial hippo regius]]
+[[sunburned genus sarda]]
+[[bespectacled genus chamaeleo]]
+[[evidenced embroidery stitch]]

@@ -82,3 +82,10 @@ There isn't mine before seen
 Quick now but I'm
 : when you've had such long tail certainly not got behind us three
 
+
+## Wikilinks load test
+
+[[unmarred eleven]]
+[[wooly-haired male orgasm]]
+[[mail-clad pomoxis nigromaculatus]]
+[[incredible levant cotton]]

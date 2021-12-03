@@ -80,3 +80,10 @@ It's always ready.
 Wouldn't it wasn't very
 : Lastly she leant against a strange and large round as he hasn't
 
+
+## Wikilinks load test
+
+[[livelong north american country]]
+[[pickled regional anatomy]]
+[[irrecoverable wonderer]]
+[[desired avalanche]]

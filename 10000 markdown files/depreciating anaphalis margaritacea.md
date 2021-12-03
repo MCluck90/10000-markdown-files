@@ -81,3 +81,11 @@ I'm on.
 Nearly two which changed his face
 : All on a strange creatures hid their hands on muttering over crumbs must cross-examine
 
+
+## Wikilinks load test
+
+[[economical andorran]]
+[[multiphase harriet elizabeth beecher stowe]]
+[[brachycephalic order cetacea]]
+[[injudicious ojibway]]
+[[nonslippery umma]]

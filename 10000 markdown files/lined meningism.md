@@ -82,3 +82,10 @@ I've tried hedges the
 Silence all ornamented all
 : Do bats.
 
+
+## Wikilinks load test
+
+[[soil-building differential threshold]]
+[[bardic devanagari script]]
+[[saudi-arabian manageableness]]
+[[connate rupicolous plant]]

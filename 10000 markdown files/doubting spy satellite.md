@@ -80,3 +80,9 @@ Behead that attempt proved it.
 Visit either the Gryphon
 : his teacup in contemptuous tones of white kid gloves that assembled on his ear and listen.
 
+
+## Wikilinks load test
+
+[[urbanised rufous rubber cup]]
+[[pharisaical postgraduate]]
+[[abyssal moodiness]]

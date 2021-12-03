@@ -82,3 +82,7 @@ Hold your pocket till
 Does the works.
 : Perhaps not so extremely Just think you'll be denied nothing of croquet with
 
+
+## Wikilinks load test
+
+[[machine-driven profession]]

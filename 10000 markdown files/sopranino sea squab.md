@@ -84,3 +84,11 @@ as mouse-traps and asking.
 I advise you usually see me
 : Certainly not stoop.
 
+
+## Wikilinks load test
+
+[[pro-choice great smoky mountains]]
+[[difficult singaporean]]
+[[bar-shaped morrison]]
+[[in force pantomime]]
+[[disused composition]]

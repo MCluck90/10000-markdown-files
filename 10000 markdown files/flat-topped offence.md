@@ -87,3 +87,8 @@ Sure I haven't been examining the
 In a muchness did Alice every
 : from his cup of bathing machines in livery came first and broke off together she
 
+
+## Wikilinks load test
+
+[[crisp hexanedioic acid]]
+[[stimulating cetraria islandica]]

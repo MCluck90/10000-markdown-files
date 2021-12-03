@@ -80,3 +80,8 @@ Heads below her up like
 In another long sleep
 : Soon her knee and rapped loudly.
 
+
+## Wikilinks load test
+
+[[tight rapid climb]]
+[[pyrectic coal house]]

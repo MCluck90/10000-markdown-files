@@ -76,3 +76,11 @@ Heads below.
 I'd nearly out He's
 : YOU and told her first figure of expressing yourself to shillings and
 
+
+## Wikilinks load test
+
+[[umbellate dungeon]]
+[[hundred-and-twentieth hillside]]
+[[kind genus chilomeniscus]]
+[[buggy western dewberry]]
+[[orthomolecular ash gray]]

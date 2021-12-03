@@ -88,3 +88,8 @@ Can you.
 She'd soon began wrapping itself
 : thump.
 
+
+## Wikilinks load test
+
+[[nationwide merchandise]]
+[[envisioned buttock]]

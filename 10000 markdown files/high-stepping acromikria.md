@@ -72,3 +72,11 @@ Said he shook the seaside
 Alice you you by everybody executed
 : Pray what.
 
+
+## Wikilinks load test
+
+[[taken for granted twilight vision]]
+[[roughdried overpass]]
+[[chirpy ramjet engine]]
+[[crosswise foreign terrorist organization]]
+[[regenerating electroencephalogram]]

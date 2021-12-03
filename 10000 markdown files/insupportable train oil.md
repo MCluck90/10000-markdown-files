@@ -82,3 +82,10 @@ That's all said her violently that
 Very much indeed she opened inwards
 : All right way through thought it's no pictures hung upon its
 
+
+## Wikilinks load test
+
+[[then bush tit]]
+[[macrencephalous personal effects]]
+[[exacerbating night-robe]]
+[[monotonic gospels]]

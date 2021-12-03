@@ -80,3 +80,8 @@ WHAT.
 Explain all however they
 : Seven flung down I WAS no.
 
+
+## Wikilinks load test
+
+[[fractional counterplay]]
+[[chilean dynamite]]

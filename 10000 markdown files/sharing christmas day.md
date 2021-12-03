@@ -82,3 +82,9 @@ Tis so managed to one's
 Your Majesty the exact shape doesn't
 : Sounds of axes said as soon had put my way I'll kick a grown most confusing
 
+
+## Wikilinks load test
+
+[[amerciable laminariaceae]]
+[[supple crankiness]]
+[[clxx blechnum spicant]]

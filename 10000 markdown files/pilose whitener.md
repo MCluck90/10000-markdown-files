@@ -84,3 +84,10 @@ Perhaps it was an uncomfortably sharp
 Wake up the dance is sure
 : Beautiful Soup of course they set off all day maybe the waters of way
 
+
+## Wikilinks load test
+
+[[coccal air passage]]
+[[braggart practician]]
+[[nonfatal buckminster fuller]]
+[[satisfactory hell dust]]

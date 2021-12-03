@@ -77,3 +77,9 @@ either.
 Your Majesty said do
 : Pig.
 
+
+## Wikilinks load test
+
+[[crenulated tonegawa susumu]]
+[[greyish-green chalk dust]]
+[[sociable asterid dicot family]]

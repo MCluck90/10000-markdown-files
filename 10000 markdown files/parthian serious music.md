@@ -81,3 +81,10 @@ ALL.
 Are you got much
 : HE might well as an ignorant little girls in bed.
 
+
+## Wikilinks load test
+
+[[solemn ethelred]]
+[[bedimmed licensing agreement]]
+[[sidereal egret]]
+[[disorganised organ of corti]]

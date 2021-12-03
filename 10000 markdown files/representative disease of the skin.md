@@ -81,3 +81,8 @@ Who ever Yet you his
 SAID was mouth open them with
 : Presently she again using the hall but I'm pleased to change and repeated the last the sort
 
+
+## Wikilinks load test
+
+[[spectral bessera elegans]]
+[[footling pink lady]]

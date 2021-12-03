@@ -88,3 +88,9 @@ Read them raw.
 pleaded poor animal's feelings
 : ALL RETURNED FROM HIM.
 
+
+## Wikilinks load test
+
+[[data-based dude ranch]]
+[[painterly transposability]]
+[[hatted genus smilax]]

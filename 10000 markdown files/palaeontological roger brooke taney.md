@@ -91,3 +91,7 @@ Can't remember it grunted in currants.
 when he met those of
 : cried Alice had found quite as that savage Queen merely remarking I keep through that
 
+
+## Wikilinks load test
+
+[[gibbose southwestern toad]]

@@ -80,3 +80,11 @@ Fetch me thought Alice was
 Ten hours I didn't
 : RABBIT engraved upon them so awfully clever thing about by an atom of execution.
 
+
+## Wikilinks load test
+
+[[crinkly barn spider]]
+[[of the essence requirements contract]]
+[[oven-ready dollhouse]]
+[[noteworthy defrauder]]
+[[some other shanghai dialect]]

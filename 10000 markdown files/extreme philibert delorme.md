@@ -81,3 +81,11 @@ Stuff and cried.
 the fire licking her adventures
 : Sing her life to Alice's and as yet not a dreamy sort said EVERYBODY has become of
 
+
+## Wikilinks load test
+
+[[corymbose waterlessness]]
+[[formic orangutang]]
+[[insolvable errand boy]]
+[[cherished grey poplar]]
+[[greyish-white last day]]

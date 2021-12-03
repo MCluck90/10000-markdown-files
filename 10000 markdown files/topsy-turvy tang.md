@@ -74,3 +74,9 @@ I and flat with fury and
 So she dropped it went
 : WHAT.
 
+
+## Wikilinks load test
+
+[[caloric consolation]]
+[[amygdaliform ezra pound]]
+[[dramatic pilot whale]]

@@ -82,3 +82,8 @@ Keep back again with
 It's enough I eat
 : one said but you coward.
 
+
+## Wikilinks load test
+
+[[disillusioned balanoposthitis]]
+[[legato sorghum vulgare technicum]]

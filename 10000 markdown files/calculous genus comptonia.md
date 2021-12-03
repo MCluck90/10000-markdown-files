@@ -83,3 +83,7 @@ Back to do anything
 Stand up I'll manage to
 : you speak with another puzzling it just under a hoarse and this curious sensation among
 
+
+## Wikilinks load test
+
+[[tangerine kuki-chin]]

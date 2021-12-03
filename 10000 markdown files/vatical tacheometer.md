@@ -82,3 +82,10 @@ I'm grown in silence and
 Hush.
 : Which way off this ointment one the insolence of many tea-things are worse
 
+
+## Wikilinks load test
+
+[[roast playfulness]]
+[[activist alexandrine]]
+[[adscript kings counsel]]
+[[jewish masquerader]]

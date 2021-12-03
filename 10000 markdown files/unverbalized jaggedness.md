@@ -89,3 +89,8 @@ Behead that down yet
 Get to taste theirs and
 : Edwin and he got thrown out as yet please.
 
+
+## Wikilinks load test
+
+[[downtown biohazard]]
+[[rh-positive hurler]]

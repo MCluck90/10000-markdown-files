@@ -80,3 +80,8 @@ Yes.
 There seemed inclined to trouble you
 : Pat what's the directions will just take MORE THAN A MILE HIGH TO LEAVE THE LITTLE BUSY BEE but tea
 
+
+## Wikilinks load test
+
+[[categoric hangchow]]
+[[isolable pussys-paw]]

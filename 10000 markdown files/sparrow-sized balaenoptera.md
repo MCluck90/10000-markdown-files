@@ -72,3 +72,9 @@ Write that came up
 Certainly not possibly hear you it's
 : ALL.
 
+
+## Wikilinks load test
+
+[[flattering loxodonta]]
+[[debilitated tax base]]
+[[encroaching erasable programmable read-only memory]]

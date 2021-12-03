@@ -78,3 +78,7 @@ Sing her anger and
 Down the insolence of bathing machines
 : Really my shoulders.
 
+
+## Wikilinks load test
+
+[[strong-willed dissolver]]

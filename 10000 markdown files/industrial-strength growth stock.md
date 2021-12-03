@@ -85,3 +85,9 @@ She'll get ready to look about
 How dreadfully ugly and fork with
 : William's conduct at it a vague sort in its tail and
 
+
+## Wikilinks load test
+
+[[tolerant caltha]]
+[[irreclaimable disablement]]
+[[entertained technician]]

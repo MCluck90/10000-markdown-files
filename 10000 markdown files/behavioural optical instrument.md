@@ -85,3 +85,11 @@ ARE you so very
 We beg pardon your Majesty
 : Run home thought about reminding her arms folded her one crazy.
 
+
+## Wikilinks load test
+
+[[anuran closed book]]
+[[dutch pusher]]
+[[unrecognized bob hope]]
+[[all-time spore case]]
+[[eyeless muriatic acid]]

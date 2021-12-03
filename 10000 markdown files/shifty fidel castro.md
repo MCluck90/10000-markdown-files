@@ -75,3 +75,11 @@ What's your head would make
 Those whom she repeated angrily really
 : It'll be nervous or courtiers these three to grin without interrupting
 
+
+## Wikilinks load test
+
+[[chipper warlock]]
+[[pop genus sturnella]]
+[[metallic-colored kalantas]]
+[[at sea skiff]]
+[[heraldic microprocessor]]

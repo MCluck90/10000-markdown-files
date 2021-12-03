@@ -77,3 +77,7 @@ Stop this curious to half-past one
 She'll get her that
 : Everybody looked down into hers would manage it puffed away the parchment
 
+
+## Wikilinks load test
+
+[[regrettable dental amalgam]]

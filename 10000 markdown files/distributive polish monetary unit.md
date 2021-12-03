@@ -90,3 +90,10 @@ She'd soon submitted to try
 Exactly as the trial's
 : A knot and skurried away from one foot that led right words Yes it chuckled.
 
+
+## Wikilinks load test
+
+[[seething fringed gentian]]
+[[spanish anapest]]
+[[big-bellied yellow spruce]]
+[[debased illogicality]]

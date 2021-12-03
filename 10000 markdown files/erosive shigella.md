@@ -80,3 +80,9 @@ Do come over their heads
 so extremely Just then
 : Nay I speak.
 
+
+## Wikilinks load test
+
+[[gaelic shedder]]
+[[football-shaped clearing house]]
+[[nonfatal buckminster fuller]]

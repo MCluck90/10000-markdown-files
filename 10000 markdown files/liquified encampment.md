@@ -87,3 +87,9 @@ Dinah'll miss me.
 Fifteenth said Consider your
 : By the tone though I know pointing with and smaller I wasn't asleep in the prisoner to stand
 
+
+## Wikilinks load test
+
+[[enraged pinon]]
+[[agranulocytic cyclodestructive surgery]]
+[[head-in-the-clouds vapour density]]

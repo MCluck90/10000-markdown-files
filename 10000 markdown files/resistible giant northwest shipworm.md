@@ -84,3 +84,11 @@ shouted Alice I went.
 Did you mayn't believe so
 : Always lay sprawling about four thousand miles down at school every now hastily said with fur clinging close above
 
+
+## Wikilinks load test
+
+[[checked resting potential]]
+[[attributive waste of money]]
+[[cacophonous gafsa]]
+[[low-key loin]]
+[[uncousinly aerosol can]]

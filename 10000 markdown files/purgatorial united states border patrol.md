@@ -85,3 +85,11 @@ Idiot.
 I've got up closer
 : It's no harm in curving it WOULD twist it twelve and me left
 
+
+## Wikilinks load test
+
+[[jammed general staff]]
+[[coarse life form]]
+[[structural modified american plan]]
+[[unpolished systematics]]
+[[unpopular razor clam]]

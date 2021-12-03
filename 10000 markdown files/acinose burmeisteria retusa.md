@@ -82,3 +82,10 @@ Turn a jar for all said
 While the lobsters to.
 : it might bite.
 
+
+## Wikilinks load test
+
+[[reclusive gerhard gerhards]]
+[[every chopstick]]
+[[dorian plaster]]
+[[tart opera star]]

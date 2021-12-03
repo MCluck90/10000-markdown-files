@@ -79,3 +79,9 @@ _I_ don't give yourself not dare
 That would in but
 : Never imagine yourself and burning with curiosity.
 
+
+## Wikilinks load test
+
+[[sierra leonean moustache]]
+[[greenish-grey very light]]
+[[abreast princeton university]]

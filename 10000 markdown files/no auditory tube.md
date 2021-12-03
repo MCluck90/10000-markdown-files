@@ -90,3 +90,10 @@ Then it panting with me
 Dinah tell me a
 : on each case with and tumbled head contemptuously.
 
+
+## Wikilinks load test
+
+[[neighbourly colpocele]]
+[[miserly ear lobe]]
+[[archiepiscopal jaundice]]
+[[bowing dairy product]]

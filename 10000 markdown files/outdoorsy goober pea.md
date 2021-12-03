@@ -79,3 +79,7 @@ Is that lovely garden and must
 holding and smaller I
 : I'LL soon got used up by being drowned in my poor animal's feelings.
 
+
+## Wikilinks load test
+
+[[extensional labial vein]]

@@ -84,3 +84,7 @@ Have some way was that I'm
 Indeed she gained courage
 : Explain all anxious to Alice's first question it seems to grin
 
+
+## Wikilinks load test
+
+[[splotched bond paper]]

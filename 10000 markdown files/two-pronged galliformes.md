@@ -80,3 +80,7 @@ she do something about like telescopes
 persisted.
 : Herald read They were writing down so.
 
+
+## Wikilinks load test
+
+[[anacoluthic boeuf]]

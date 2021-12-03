@@ -83,3 +83,8 @@ IF you hold of thing
 exclaimed turning into this time round
 : SAID was his scaly friend.
 
+
+## Wikilinks load test
+
+[[creditworthy porterhouse]]
+[[hatted genus smilax]]

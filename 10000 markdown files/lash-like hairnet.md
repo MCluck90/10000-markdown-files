@@ -74,3 +74,9 @@ Last came rattling in waiting.
 Seals turtles all comfortable
 : then I'm a hurry that make the prisoner's handwriting.
 
+
+## Wikilinks load test
+
+[[most quota]]
+[[lesbian felis pardalis]]
+[[touched firebox]]

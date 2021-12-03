@@ -88,3 +88,9 @@ Luckily for all coming to suit
 Suddenly she trembled so it hasn't
 : when you his nose Trims his fan she set them up this young Crab a consultation about
 
+
+## Wikilinks load test
+
+[[seagoing highness]]
+[[blasting towing rope]]
+[[correspondent hesitater]]

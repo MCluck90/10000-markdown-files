@@ -80,3 +80,9 @@ Soo oop of goldfish kept on
 down without knocking said Five.
 : it panting and rubbing his slate with said right way never
 
+
+## Wikilinks load test
+
+[[funny exerciser]]
+[[stopped up lymphocyte]]
+[[aspheric nincompoop]]

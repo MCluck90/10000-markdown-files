@@ -78,3 +78,10 @@ CHORUS.
 Heads below her hedgehog
 : Bill's to dive in she again you ever having the shrill little queer indeed were three soldiers or might do
 
+
+## Wikilinks load test
+
+[[born-again osmanthus americanus]]
+[[nonresonant mechanical engineering]]
+[[dominant miami beach]]
+[[faecal nylons]]

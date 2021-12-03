@@ -82,3 +82,9 @@ Then she came opposite to
 Take care of everything I've made
 : Idiot.
 
+
+## Wikilinks load test
+
+[[cataplastic petabit]]
+[[anagogical generousness]]
+[[jumbo bed sheet]]

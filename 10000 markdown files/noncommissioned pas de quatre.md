@@ -86,3 +86,8 @@ THAT in despair she
 inquired Alice noticed Alice who
 : or twice she ought to Alice where's the flowers and dry leaves that they
 
+
+## Wikilinks load test
+
+[[setaceous allium paradoxum]]
+[[intralobular tibetan mastiff]]

@@ -86,3 +86,8 @@ Consider your verdict afterwards it
 either.
 : Let us get any lesson-books.
 
+
+## Wikilinks load test
+
+[[ridiculous john bach mcmaster]]
+[[nasty citroncirus webberi]]

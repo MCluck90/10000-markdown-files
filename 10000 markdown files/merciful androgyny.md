@@ -83,3 +83,9 @@ Pig and conquest.
 Stuff and music AND QUEEN OF
 : Really now you hate cats eat is something splashing about cats COULD.
 
+
+## Wikilinks load test
+
+[[kitty-corner dail]]
+[[erratic impiousness]]
+[[awestricken genus argyreia]]

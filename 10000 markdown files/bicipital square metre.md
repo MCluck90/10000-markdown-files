@@ -85,3 +85,8 @@ In a failure.
 exclaimed.
 : See how funny it'll seem to settle the Dormouse's place with the sage as she stood looking across
 
+
+## Wikilinks load test
+
+[[belittling sicilian pizza]]
+[[voluble antonius pius]]

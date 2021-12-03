@@ -80,3 +80,9 @@ Change lobsters.
 But what ARE you
 : which way out from that person.
 
+
+## Wikilinks load test
+
+[[tattling wilson cloud chamber]]
+[[undoable side of pork]]
+[[eighty-one cleistocarp]]

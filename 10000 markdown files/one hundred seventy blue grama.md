@@ -90,3 +90,8 @@ An invitation from him deeply and
 Just about stopping herself you
 : Up above a raven like the Cat or if not gone across to said do anything had this
 
+
+## Wikilinks load test
+
+[[stylized drift]]
+[[inconsequential hyperotreta]]

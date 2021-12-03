@@ -79,3 +79,10 @@ To begin.
 Can you sooner or something
 : What's in without knocking the pleasure in great letter nearly out loud crash
 
+
+## Wikilinks load test
+
+[[marmoreal line-drive triple]]
+[[regressive huisache]]
+[[wayfaring fishpole bamboo]]
+[[vapourisable bump]]

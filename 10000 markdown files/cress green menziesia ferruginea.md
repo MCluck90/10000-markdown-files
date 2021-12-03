@@ -85,3 +85,8 @@ cried out which seemed to box
 Take off quite unable to talk
 : .
 
+
+## Wikilinks load test
+
+[[incongruous ulvophyceae]]
+[[resultant stephen foster]]

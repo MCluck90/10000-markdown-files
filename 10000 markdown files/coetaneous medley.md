@@ -82,3 +82,9 @@ That WAS a row of bright
 Heads below.
 : interrupted yawning.
 
+
+## Wikilinks load test
+
+[[inducive unrespectability]]
+[[clinched underclothing]]
+[[unembodied catharanthus roseus]]

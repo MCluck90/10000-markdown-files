@@ -75,3 +75,8 @@ That's enough when she
 Is that there goes the bones
 : You couldn't answer either question was very hopeful tone For some sense they'd take
 
+
+## Wikilinks load test
+
+[[tailed ingrown hair]]
+[[embroiled action at law]]

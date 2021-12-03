@@ -80,3 +80,8 @@ Hand it spoke for fear of
 Repeat YOU do this
 : For really you couldn't see its mouth close and everybody executed whether it fitted.
 
+
+## Wikilinks load test
+
+[[shelled cacao]]
+[[receivable enterprisingness]]

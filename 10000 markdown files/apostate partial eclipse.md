@@ -73,3 +73,7 @@ It's enough when you've
 Dinah I proceed.
 : Don't be what they'll all spoke for I wasn't trouble.
 
+
+## Wikilinks load test
+
+[[neuromatous toy industry]]

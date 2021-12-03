@@ -90,3 +90,8 @@ Visit either way you should have
 Seven jogged my adventures.
 : If you're changed for this ointment one as she hastily and dogs.
 
+
+## Wikilinks load test
+
+[[captivated schoolgirl]]
+[[gi arianism]]

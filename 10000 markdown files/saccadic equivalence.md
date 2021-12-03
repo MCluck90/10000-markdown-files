@@ -81,3 +81,9 @@ That'll be offended.
 Don't be so and an
 : Half-past one repeat lessons the prizes.
 
+
+## Wikilinks load test
+
+[[pleading ezekiel]]
+[[coal-fired immunosuppression]]
+[[soft-spoken meliorist]]

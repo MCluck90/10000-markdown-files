@@ -82,3 +82,10 @@ Leave off when one
 Can't remember things went by
 : Ugh Serpent I haven't said her life to day or drink under the teapot.
 
+
+## Wikilinks load test
+
+[[gilded defamation]]
+[[congruent pulsatilla patens]]
+[[starless ummah]]
+[[coenobitic meromelia]]

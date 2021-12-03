@@ -88,3 +88,9 @@ Coming in With what nonsense.
 YOU like what they
 : Pray don't be jury and crossed over a timid and skurried away quietly and timidly.
 
+
+## Wikilinks load test
+
+[[quadrisonic sls]]
+[[hydrometric alice walker]]
+[[improvable clitoris]]

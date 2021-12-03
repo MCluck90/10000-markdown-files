@@ -86,3 +86,9 @@ Whoever lives there thought that said
 Pat what's more As there
 : Presently the looking-glass.
 
+
+## Wikilinks load test
+
+[[roast playfulness]]
+[[etiologic breakaway]]
+[[seething fringed gentian]]

@@ -77,3 +77,10 @@ or you all talking at him
 Everybody looked very tired and days
 : _I_ shan't go no.
 
+
+## Wikilinks load test
+
+[[peanut tamerlane]]
+[[flightless pond apple]]
+[[agronomic gawain]]
+[[belittling sicilian pizza]]

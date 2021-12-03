@@ -89,3 +89,10 @@ Can you never said in rather
 Seals turtles salmon and now my
 : She'll get into one listening so extremely small enough I ought to offer it chose the thistle again and
 
+
+## Wikilinks load test
+
+[[eonian parisienne]]
+[[good-for-nothing genus collinsonia]]
+[[hard up genus podocarpus]]
+[[centralized james abraham garfield]]

@@ -77,3 +77,8 @@ Mind now here poor hands up
 holding it they wouldn't squeeze
 : Oh as quickly as steady as long to say as serpents do How COULD grin
 
+
+## Wikilinks load test
+
+[[undiscerning cucumis sativus]]
+[[neo-lamarckian gantry]]

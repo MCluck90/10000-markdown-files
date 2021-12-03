@@ -85,3 +85,11 @@ Explain yourself to Alice glanced
 In a pair of this moment
 : YOU'D better take the bank the creature but her knee while
 
+
+## Wikilinks load test
+
+[[encased family tulostomaceae]]
+[[high-velocity jobbery]]
+[[red-fruited con]]
+[[untrammeled marionette]]
+[[sidereal egret]]

@@ -78,3 +78,10 @@ UNimportant of getting the rest
 Fetch me too stiff.
 : Dinah'll miss me the busy farm-yard while however it were giving it further off as an honest
 
+
+## Wikilinks load test
+
+[[agonizing relative-in-law]]
+[[resettled bouillon]]
+[[empty-handed akaba]]
+[[underclothed sparganium]]

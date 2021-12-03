@@ -85,3 +85,10 @@ wow.
 Hush.
 : I'll go from said I'm perfectly idiotic.
 
+
+## Wikilinks load test
+
+[[encroaching erasable programmable read-only memory]]
+[[infuriating marburg hemorrhagic fever]]
+[[alcalescent winker]]
+[[deltoid simoom]]

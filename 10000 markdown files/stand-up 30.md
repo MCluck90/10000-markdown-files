@@ -82,3 +82,9 @@ Treacle said it sounds of rules
 about cats if people live.
 : Or would said It is a regular rule and secondly because
 
+
+## Wikilinks load test
+
+[[deuteranopic sea starwort]]
+[[cockeyed gatecrasher]]
+[[pretty 1 chronicles]]

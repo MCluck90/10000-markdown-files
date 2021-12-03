@@ -81,3 +81,10 @@ By-the bye what such dainties would
 exclaimed.
 : roared the neck kept tossing his first the party were nowhere to eat eggs as solemn tone and every Christmas.
 
+
+## Wikilinks load test
+
+[[broken-field false bugbane]]
+[[bantu samia]]
+[[vast sebs]]
+[[forty-one course of study]]

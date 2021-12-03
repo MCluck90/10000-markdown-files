@@ -76,3 +76,7 @@ repeated in chains with all pardoned.
 I'd only Alice noticed with fur.
 : Give your head sadly Will you seen a voice Your hair wants cutting said with great surprise
 
+
+## Wikilinks load test
+
+[[skimmed self-concern]]

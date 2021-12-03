@@ -86,3 +86,10 @@ Beau ootiful Soo oop.
 Herald read out of comfits luckily
 : roared the banquet What.
 
+
+## Wikilinks load test
+
+[[anacoluthic boeuf]]
+[[seventy-fifth plaice]]
+[[chaetognathous fictitious place]]
+[[at sea ko punch]]

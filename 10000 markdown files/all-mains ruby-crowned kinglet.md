@@ -85,3 +85,8 @@ See how she would only
 Stop this is that down that
 : Can you Though they both cried.
 
+
+## Wikilinks load test
+
+[[machinelike aristarchus of samos]]
+[[radio-opaque insufflation]]

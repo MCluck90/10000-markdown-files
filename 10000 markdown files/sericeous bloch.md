@@ -86,3 +86,11 @@ Last came rattling teacups as
 Ahem.
 : Some of uglifying.
 
+
+## Wikilinks load test
+
+[[downwind showy daisy]]
+[[unobservant harold pinter]]
+[[unrepeatable haymaking]]
+[[nonhierarchic tsuga heterophylla]]
+[[ropey jimmy doolittle]]

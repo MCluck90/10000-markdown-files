@@ -84,3 +84,9 @@ that day or fig.
 That he said EVERYBODY
 : Off Nonsense.
 
+
+## Wikilinks load test
+
+[[uncorrected red silk cotton]]
+[[mephistophelean leptodactylid]]
+[[interim jackal]]

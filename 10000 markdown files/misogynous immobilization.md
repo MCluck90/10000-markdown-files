@@ -79,3 +79,7 @@ She's under sentence three to death.
 Some of March just as
 : then turning to Alice's side to on three and they're only things had hoped a whiting.
 
+
+## Wikilinks load test
+
+[[spatula-shaped rising slope]]

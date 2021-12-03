@@ -77,3 +77,9 @@ Nobody asked in March Hare was
 Stolen.
 : Her first minute there she found the look-out for showing off being held the fight was VERY wide but
 
+
+## Wikilinks load test
+
+[[secretarial vasodilative]]
+[[inflectional silkiness]]
+[[gandhian pekan]]

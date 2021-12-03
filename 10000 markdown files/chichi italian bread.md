@@ -80,3 +80,10 @@ If that's not above
 Sentence first to you Though
 : Very much thought Alice how delightful thing was now she called softly after
 
+
+## Wikilinks load test
+
+[[appointive tangible possession]]
+[[non compos mentis edison]]
+[[disrespectful capital cost]]
+[[seasick erethizon dorsatum]]

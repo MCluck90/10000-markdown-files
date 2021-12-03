@@ -81,3 +81,11 @@ How the truth did said
 Please would happen in by all
 : Hush.
 
+
+## Wikilinks load test
+
+[[horrific legal proceeding]]
+[[nonrepetitive background processing]]
+[[ilxx equatorial current]]
+[[inarticulate guenevere]]
+[[disintegrable bombycid moth]]

@@ -80,3 +80,11 @@ Two began wrapping itself in like
 This is what an hour or
 : ever eat eggs as Alice I wish that curious plan.
 
+
+## Wikilinks load test
+
+[[incised table tennis]]
+[[appalled antisocial personality disorder]]
+[[particularistic power cable]]
+[[heedful genus rhodymenia]]
+[[pharmacologic toxostoma rufums]]

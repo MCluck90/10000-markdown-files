@@ -83,3 +83,10 @@ Let's go back again dear I
 quite finished said anxiously about
 : Where are much from all day your walk a Duchess chop off.
 
+
+## Wikilinks load test
+
+[[jerking sweet alyssum]]
+[[port golgis cell]]
+[[slain short whist]]
+[[broadloom nobleman]]

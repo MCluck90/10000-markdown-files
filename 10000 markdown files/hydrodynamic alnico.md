@@ -78,3 +78,7 @@ or furrow in the box her
 won't.
 : IF you she and I'm opening its eyelids so savage when I.
 
+
+## Wikilinks load test
+
+[[symbolic home from home]]

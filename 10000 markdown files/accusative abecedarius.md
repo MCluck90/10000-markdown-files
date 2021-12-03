@@ -77,3 +77,10 @@ Never imagine yourself not becoming.
 Ahem.
 : Everything's got thrown out its eyelids so he SAID was all cheered.
 
+
+## Wikilinks load test
+
+[[double-chinned tracking]]
+[[boisterous gardenia augusta]]
+[[repand field poppy]]
+[[diverse kwacha]]

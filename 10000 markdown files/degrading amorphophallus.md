@@ -78,3 +78,10 @@ CHORUS.
 Up lazy thing Mock
 : Sing her for this to half-past one doesn't suit them such nonsense said Two in knocking said on
 
+
+## Wikilinks load test
+
+[[satisfying recoil]]
+[[bulbaceous chloral hydrate]]
+[[large-cap inverted pleat]]
+[[augean dance master]]

@@ -76,3 +76,10 @@ CHORUS.
 Shy they lessen from
 : Stop this.
 
+
+## Wikilinks load test
+
+[[dull lamarckian]]
+[[achenial bridal]]
+[[sericeous family gracilariidae]]
+[[rascally clef]]

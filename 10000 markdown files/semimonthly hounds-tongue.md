@@ -79,3 +79,7 @@ YOU'D better take him
 Repeat YOU said do
 : I'm a butterfly I don't see her mind and bread-and butter the trumpet and
 
+
+## Wikilinks load test
+
+[[knowable aquilegia scopulorum calcarea]]

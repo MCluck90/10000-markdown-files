@@ -78,3 +78,8 @@ or I'll stay down
 Nay I or else
 : Whoever lives there are the end then sat still it signifies much pleased at
 
+
+## Wikilinks load test
+
+[[purging strip cropping]]
+[[catabatic ooze]]

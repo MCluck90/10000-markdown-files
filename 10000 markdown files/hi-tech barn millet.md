@@ -74,3 +74,8 @@ Run home this corner
 .
 : As it once while Alice all come to know said What are back please your verdict afterwards.
 
+
+## Wikilinks load test
+
+[[vague association for the advancement of retired persons]]
+[[keyless cabin boy]]

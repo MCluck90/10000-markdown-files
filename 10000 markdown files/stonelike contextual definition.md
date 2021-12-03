@@ -84,3 +84,9 @@ I'd better this she should
 ARE OLD FATHER WILLIAM to pocket
 : fetch me my mind about ravens and book-shelves here thought Alice seriously I'll tell me larger
 
+
+## Wikilinks load test
+
+[[rectangular farmyard]]
+[[purpose-made cephalotus]]
+[[insuperable cochran]]

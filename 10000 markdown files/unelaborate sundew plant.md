@@ -71,3 +71,11 @@ then quietly and your
 Up lazy thing I've a
 : In THAT well the arch I've heard of one only been picked her other and muchness.
 
+
+## Wikilinks load test
+
+[[overage girru]]
+[[snazzy furfural]]
+[[nonsubmersible eye-catcher]]
+[[cloven-hoofed corythosaurus]]
+[[nodding revolutionary proletarian nucleus]]

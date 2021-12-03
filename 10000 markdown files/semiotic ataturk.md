@@ -86,3 +86,7 @@ No there goes the
 added Come back please do
 : Quick now here with.
 
+
+## Wikilinks load test
+
+[[forked john the evangelist]]

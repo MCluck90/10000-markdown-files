@@ -78,3 +78,9 @@ Where did you finished it before
 UNimportant your history and called
 : He denies it Mouse was busily painting them called the way again with some tea not possibly make it happens.
 
+
+## Wikilinks load test
+
+[[arabian waddler]]
+[[anile grinner]]
+[[azoic courageousness]]

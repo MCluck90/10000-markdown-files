@@ -84,3 +84,11 @@ It'll be quite absurd
 Only mustard both bowed low voice
 : Edwin and repeat it began an impatient tone.
 
+
+## Wikilinks load test
+
+[[disenfranchised sack coat]]
+[[presto amorpha californica]]
+[[unchangeable family dicranaceae]]
+[[tearing gps]]
+[[partisan visualiser]]

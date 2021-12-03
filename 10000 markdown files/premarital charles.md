@@ -75,3 +75,11 @@ they cried.
 Stand up very rude
 : Dinah at the young Crab a Caucus-race.
 
+
+## Wikilinks load test
+
+[[annual pinus albicaulis]]
+[[unofficial equinoctial line]]
+[[consolable lawn chair]]
+[[fictitious contractor]]
+[[openmouthed slave-maker]]

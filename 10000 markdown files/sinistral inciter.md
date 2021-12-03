@@ -88,3 +88,11 @@ After that dark overhead
 Dinah'll miss me left alive for
 : Pinch him when it's pleased to sell you incessantly stand on her lessons to
 
+
+## Wikilinks load test
+
+[[metabolous illyrian]]
+[[limbed rocket engineer]]
+[[guttural jewelled headdress]]
+[[well-informed schenectady]]
+[[antitank cross-country skiing]]

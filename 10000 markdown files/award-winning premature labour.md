@@ -78,3 +78,10 @@ Tis the sea-shore Two began
 Herald read as she
 : YOU'D better with.
 
+
+## Wikilinks load test
+
+[[accretionary pansy]]
+[[stony resettlement]]
+[[light-boned genus comandra]]
+[[poverty-stricken plastic explosive]]

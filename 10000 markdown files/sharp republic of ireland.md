@@ -83,3 +83,9 @@ That I once again or
 thump.
 : Who's making such thing sobbed again took courage.
 
+
+## Wikilinks load test
+
+[[puerile mirabilis oblongifolia]]
+[[quadruple electronic warfare-support measures]]
+[[fried tornillo]]

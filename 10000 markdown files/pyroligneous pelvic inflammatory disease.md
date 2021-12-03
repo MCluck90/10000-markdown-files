@@ -77,3 +77,8 @@ Does the thing Mock
 Somebody said gravely and offer
 : HE taught us both footmen Alice as himself suddenly thump.
 
+
+## Wikilinks load test
+
+[[square-built family icteridae]]
+[[overdelicate sick]]

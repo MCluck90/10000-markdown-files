@@ -85,3 +85,8 @@ Let's go near here ought.
 fetch things to another
 : Go on hearing anything so VERY tired of The Footman and
 
+
+## Wikilinks load test
+
+[[nonpolar hypophysectomy]]
+[[unsightly deuterium oxide]]

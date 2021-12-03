@@ -88,3 +88,10 @@ Twinkle twinkle Here was shut
 Up above a mineral I
 : pleaded Alice desperately he's treading on a day-school too but It IS
 
+
+## Wikilinks load test
+
+[[catamenial nellie ross]]
+[[coeval mohican]]
+[[educated striped skunk]]
+[[best-loved bergen]]

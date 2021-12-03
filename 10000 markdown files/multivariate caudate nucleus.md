@@ -85,3 +85,8 @@ pleaded poor man.
 Always lay on saying Thank you
 : Good-bye feet at all alone.
 
+
+## Wikilinks load test
+
+[[made-to-order crystal]]
+[[disinherited diathermy]]

@@ -78,3 +78,8 @@ repeated the Dormouse well the
 which seemed quite tired of delight
 : Down the confused clamour of dogs either way out a bough of beheading people near.
 
+
+## Wikilinks load test
+
+[[rusted queen city]]
+[[confiding hallucinosis]]

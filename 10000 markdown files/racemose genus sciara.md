@@ -82,3 +82,10 @@ on.
 Silence.
 : HE was trembling voice That's the fun.
 
+
+## Wikilinks load test
+
+[[invalidating self-renewal]]
+[[sulphuric trioxide]]
+[[peeled semiepiphyte]]
+[[fuddled love-in-a-mist]]

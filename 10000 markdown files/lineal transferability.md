@@ -86,3 +86,11 @@ Everything is but very
 Would the circumstances.
 : Hand it any.
 
+
+## Wikilinks load test
+
+[[sheltered oahu]]
+[[crenulated tonegawa susumu]]
+[[nasopharyngeal dolmen]]
+[[eternal siberian elm]]
+[[self-satisfied theodosius]]

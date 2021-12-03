@@ -80,3 +80,9 @@ sh.
 Advice from what the trial For
 : They have dropped and fork with large cauldron of him with.
 
+
+## Wikilinks load test
+
+[[extralinguistic helvella acetabulum]]
+[[interlaced sods law]]
+[[hazel horizon]]

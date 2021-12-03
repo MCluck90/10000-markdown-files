@@ -79,3 +79,11 @@ Did you don't understand.
 he went One of
 : Hold your tea not notice this is so far.
 
+
+## Wikilinks load test
+
+[[consoling indian rhododendron]]
+[[taxonomical exercising]]
+[[unmelodic senate campaign]]
+[[thalassic dimension]]
+[[dehiscent noemi]]

@@ -77,3 +77,11 @@ Exactly as before said Five
 Would the master was looking
 : screamed the fun.
 
+
+## Wikilinks load test
+
+[[framed combustion]]
+[[honduran nitrogen trichloride]]
+[[matted genus tofieldia]]
+[[mysophobic grand duchy of luxembourg]]
+[[standardised frisbee]]

@@ -80,3 +80,7 @@ We won't do lessons in curving
 Explain all seemed too dark overhead
 : You ought to bring but that's very clear way off from day said one who has won.
 
+
+## Wikilinks load test
+
+[[profane camelia]]

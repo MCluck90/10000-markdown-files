@@ -83,3 +83,9 @@ Soup will do to stoop.
 or other unpleasant things
 : Her chin.
 
+
+## Wikilinks load test
+
+[[olive-colored seal of approval]]
+[[scarlet-pink autofluorescence]]
+[[heart-healthy earpiece]]

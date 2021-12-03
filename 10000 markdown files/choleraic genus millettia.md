@@ -90,3 +90,10 @@ Down the games now that
 won't stand beating.
 : Beau ootiful Soo oop.
 
+
+## Wikilinks load test
+
+[[cloven-hoofed chop shop]]
+[[porous chamois cress]]
+[[fineable black morel]]
+[[cosher herpetologist]]

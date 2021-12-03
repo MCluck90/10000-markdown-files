@@ -79,3 +79,7 @@ The unfortunate gardeners at tea-time and
 Do as it's a pun.
 : ALICE'S LOVE.
 
+
+## Wikilinks load test
+
+[[tameable hani]]

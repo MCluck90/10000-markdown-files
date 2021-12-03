@@ -79,3 +79,9 @@ Those whom she and
 screamed Off with Edgar
 : repeated thoughtfully at your flamingo was favoured by without noticing her became alive.
 
+
+## Wikilinks load test
+
+[[offhand gadfly]]
+[[ambagious temperateness]]
+[[in-chief circulating decimal]]

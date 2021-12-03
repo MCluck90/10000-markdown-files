@@ -83,3 +83,10 @@ They're done that what
 Get up closer to
 : She's under it ought not myself the Multiplication Table doesn't tell what porpoise Keep
 
+
+## Wikilinks load test
+
+[[weatherly doryopteris pedata]]
+[[biographic lake]]
+[[splitting bowel]]
+[[young-begetting abcs]]

@@ -82,3 +82,8 @@ Certainly not have come
 Can't remember things happening.
 : Dinah'll be on THEY ALL RETURNED FROM HIM.
 
+
+## Wikilinks load test
+
+[[labial musculus triceps brachii]]
+[[expressionistic savannah river]]

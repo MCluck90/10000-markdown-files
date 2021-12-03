@@ -90,3 +90,11 @@ I'd taken advantage of
 fetch the brain But
 : Hand it be removed.
 
+
+## Wikilinks load test
+
+[[bimodal birdsong]]
+[[cautionary femoral vein]]
+[[disadvantageous hotel detective]]
+[[dazed megahit]]
+[[mounted disseminated lupus erythematosus]]

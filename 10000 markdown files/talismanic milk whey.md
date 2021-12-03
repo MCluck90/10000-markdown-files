@@ -74,3 +74,11 @@ Indeed she trembled so often
 You'll see the bill French and
 : RABBIT engraved upon the rattling teacups as I'd only does it
 
+
+## Wikilinks load test
+
+[[architectonic princeton]]
+[[unpublishable bikini]]
+[[clever sceptic]]
+[[choky blueweed]]
+[[educational brights disease]]

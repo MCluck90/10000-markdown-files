@@ -85,3 +85,11 @@ That's none Why I sleep
 Stupid things and mustard isn't
 : Beau ootiful Soo oop.
 
+
+## Wikilinks load test
+
+[[metrological wormseed mustard]]
+[[lamenting secret agent]]
+[[adonic manilla]]
+[[encyclopaedic totalisator]]
+[[mephistophelean leptodactylid]]

@@ -84,3 +84,9 @@ Thinking again it asked with great
 .
 : While the subjects on muttering to cats or you'll be particular.
 
+
+## Wikilinks load test
+
+[[foreseeable baneberry]]
+[[unprovided for edge]]
+[[immortal electrical power]]

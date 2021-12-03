@@ -73,3 +73,9 @@ Digging for Alice gently
 Reeling and said and whiskers.
 : May it thought.
 
+
+## Wikilinks load test
+
+[[declarable advocator]]
+[[sluttish stockholdings]]
+[[rectangular psephologist]]

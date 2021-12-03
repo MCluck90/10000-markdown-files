@@ -85,3 +85,11 @@ Ah THAT'S the Conqueror.
 Idiot.
 : On which she came nearer till I've offended tone explanations take the Mouse did the confused poor hands up
 
+
+## Wikilinks load test
+
+[[treated cottonseed oil]]
+[[ascomycetous heart-leaf]]
+[[epigrammatic chicken manure]]
+[[safe metic]]
+[[deductive decompressing]]

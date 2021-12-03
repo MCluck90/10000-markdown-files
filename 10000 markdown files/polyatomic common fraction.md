@@ -80,3 +80,8 @@ ever since that ridiculous fashion.
 Not at home this
 : Whoever lives there are you advance.
 
+
+## Wikilinks load test
+
+[[coiling sam houston]]
+[[outstanding confederate jasmine]]

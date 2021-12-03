@@ -76,3 +76,7 @@ Seals turtles salmon and we've
 I'd been anxiously round
 : Come I'll be.
 
+
+## Wikilinks load test
+
+[[violet-flowered fatty acid]]

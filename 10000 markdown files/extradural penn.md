@@ -88,3 +88,8 @@ Everything's got its hurry that there's
 Suddenly she left and Derision.
 : Idiot.
 
+
+## Wikilinks load test
+
+[[unmarred eleven]]
+[[puddingheaded horology]]

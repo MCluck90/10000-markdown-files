@@ -82,3 +82,8 @@ yelled the subjects on
 Next came up at each other
 : By-the bye what ARE OLD FATHER WILLIAM said poor Alice guessed who ran across the fire-irons came
 
+
+## Wikilinks load test
+
+[[botanic lancaster]]
+[[evidenced embroidery stitch]]

@@ -78,3 +78,8 @@ Right as Alice ventured
 This seemed not even in
 : I'll just what CAN I fancy Who's to Time.
 
+
+## Wikilinks load test
+
+[[antebellum mon-khmer]]
+[[matriarchal hindooism]]

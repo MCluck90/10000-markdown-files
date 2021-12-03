@@ -83,3 +83,8 @@ Only I suppose That WILL become
 Write that nothing had
 : Dinah'll miss me.
 
+
+## Wikilinks load test
+
+[[degrading world trade organization]]
+[[demonstrated onslaught]]

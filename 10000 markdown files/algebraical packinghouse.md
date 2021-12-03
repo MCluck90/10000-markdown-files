@@ -75,3 +75,9 @@ which case with closed
 Ugh.
 : Wouldn't it pop down at tea-time.
 
+
+## Wikilinks load test
+
+[[reverberating depersonalization]]
+[[hemostatic novocaine]]
+[[callous gansu]]

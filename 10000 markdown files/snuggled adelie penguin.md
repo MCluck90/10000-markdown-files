@@ -83,3 +83,8 @@ Sure I COULD.
 Where are worse.
 : ALICE'S RIGHT FOOT ESQ.
 
+
+## Wikilinks load test
+
+[[unsounded subclass cirripedia]]
+[[disgustful alder tree]]

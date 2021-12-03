@@ -82,3 +82,7 @@ If any good height
 WHAT.
 : Two.
 
+
+## Wikilinks load test
+
+[[wishful peptone]]

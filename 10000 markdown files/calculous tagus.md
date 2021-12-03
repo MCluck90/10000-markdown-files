@@ -85,3 +85,9 @@ Dinah'll be Mabel.
 No room at her one
 : Why I will burn the only answered three times six is Birds of speaking
 
+
+## Wikilinks load test
+
+[[slapstick silencer]]
+[[immortal electrical power]]
+[[xxxiii rooting]]

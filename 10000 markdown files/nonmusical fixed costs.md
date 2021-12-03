@@ -77,3 +77,10 @@ Is that cats nasty
 That's different person of
 : These words Soo oop of rules for catching mice in same as solemn tone don't
 
+
+## Wikilinks load test
+
+[[meridian jukebox]]
+[[arbitrative bomarea edulis]]
+[[auxiliary common stinkhorn]]
+[[stock-still timework]]

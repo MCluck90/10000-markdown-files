@@ -86,3 +86,8 @@ Ugh Serpent.
 No they're making quite
 : wow.
 
+
+## Wikilinks load test
+
+[[inerrant zygotene]]
+[[nonresonant mechanical engineering]]

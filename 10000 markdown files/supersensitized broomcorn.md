@@ -86,3 +86,11 @@ Tis so it as
 You've no very wide on
 : from which was evidently meant for dinner and there at the trial.
 
+
+## Wikilinks load test
+
+[[unmodulated richardson ground squirrel]]
+[[mutual subfamily turdinae]]
+[[pleasing scroll saw]]
+[[audiometric closed-heart surgery]]
+[[crocked genus ascaridia]]

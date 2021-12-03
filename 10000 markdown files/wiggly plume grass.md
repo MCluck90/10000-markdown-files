@@ -77,3 +77,11 @@ added aloud addressing nobody spoke.
 it out that continued as I
 : Call the treat.
 
+
+## Wikilinks load test
+
+[[balzacian capricorn]]
+[[photomechanical sepia]]
+[[uncovered subclavian artery]]
+[[permutable church festival]]
+[[lx belittling]]

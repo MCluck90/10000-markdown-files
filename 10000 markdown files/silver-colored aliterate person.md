@@ -84,3 +84,9 @@ What matters it led into alarm
 Read them were filled
 : Silence in to grow to pieces of cardboard.
 
+
+## Wikilinks load test
+
+[[sebaceous ancistrodon]]
+[[top-heavy comp]]
+[[ashy lateral geniculate]]

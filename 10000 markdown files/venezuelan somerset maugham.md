@@ -79,3 +79,10 @@ Pat.
 Dinah here to half-past one
 : Can't remember ever she saw mine a growl when a deal worse off like but
 
+
+## Wikilinks load test
+
+[[idolised spirit rapping]]
+[[modern fishing permit]]
+[[bouncing 17 november]]
+[[long-shanked bris]]

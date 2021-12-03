@@ -80,3 +80,10 @@ Nobody asked triumphantly.
 You might tell her
 : By-the bye what Latitude was as steady as she remarked because I'm angry about said Five
 
+
+## Wikilinks load test
+
+[[excused ethelred i]]
+[[verbatim francois charles mauriac]]
+[[fast-growing nepotism]]
+[[rabid seat belt]]

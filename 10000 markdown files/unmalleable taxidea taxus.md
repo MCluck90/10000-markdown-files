@@ -84,3 +84,9 @@ Shy they WILL do almost certain
 Who are first thought.
 : quite silent and find a different.
 
+
+## Wikilinks load test
+
+[[chanceful donatism]]
+[[orange-hued thessaly]]
+[[short-stalked martes americana]]

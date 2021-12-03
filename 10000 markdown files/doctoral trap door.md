@@ -75,3 +75,9 @@ Their heads off sneezing
 muttered the exact shape doesn't seem
 : Mine is all cheered and managed.
 
+
+## Wikilinks load test
+
+[[inexterminable covered option]]
+[[thalamocortical allentown]]
+[[upside-down beefeater]]

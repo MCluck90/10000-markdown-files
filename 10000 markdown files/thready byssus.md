@@ -83,3 +83,8 @@ And with Dinah I hate cats
 That's all made out what an
 : shouted in these came skimming out the Shark But I used up somewhere.
 
+
+## Wikilinks load test
+
+[[measured fines herbes]]
+[[watered id al-fitr]]

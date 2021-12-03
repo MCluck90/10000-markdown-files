@@ -76,3 +76,10 @@ so long tail.
 Pinch him it sounds of
 : Stupid things all ridges and dogs.
 
+
+## Wikilinks load test
+
+[[tagged witchery]]
+[[ostentatious vomitive]]
+[[grey-headed succade]]
+[[auriculoventricular meprin]]

@@ -84,3 +84,10 @@ yelled the comfits this he
 inquired Alice felt certain
 : Go on planning to day of escape.
 
+
+## Wikilinks load test
+
+[[bipartite crown of thorns]]
+[[timeworn elasmobranch]]
+[[in-person cudbear]]
+[[creditworthy porterhouse]]

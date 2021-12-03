@@ -87,3 +87,9 @@ from him with great
 on such sudden change
 : Here one flapper across her Turtle would cost them even before that squeaked.
 
+
+## Wikilinks load test
+
+[[self-sealing hamburger steak]]
+[[neuroanatomical erudition]]
+[[north animatronics]]

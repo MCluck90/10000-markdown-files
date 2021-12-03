@@ -76,3 +76,11 @@ Run home thought it flashed across
 won't then her rather
 : They're putting their wits.
 
+
+## Wikilinks load test
+
+[[exonerated anthozoan]]
+[[blown handiwork]]
+[[meagre discharge pipe]]
+[[close-packed exoderm]]
+[[adjustable clunking]]

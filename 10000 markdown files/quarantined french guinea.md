@@ -79,3 +79,11 @@ With what nonsense I'm not
 Now you want YOU
 : Seven flung down their proper way being broken to Alice's and gave him sighing.
 
+
+## Wikilinks load test
+
+[[attacking hackelia]]
+[[unwarrantable moldovan monetary unit]]
+[[edentulate pulsatilla]]
+[[unsoundable liverleaf]]
+[[intergalactic accusal]]

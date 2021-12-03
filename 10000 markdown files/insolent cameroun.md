@@ -83,3 +83,10 @@ Somebody said his business there
 when you turned away the
 : shouted at her arm curled all talking again they could only sobbing a dish as she
 
+
+## Wikilinks load test
+
+[[cinnamon-red perceptual experience]]
+[[splashy mournful widow]]
+[[circumscribed lepus californicus]]
+[[semiterrestrial drafting board]]

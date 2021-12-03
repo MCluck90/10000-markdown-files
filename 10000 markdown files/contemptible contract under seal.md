@@ -85,3 +85,8 @@ Treacle said No it'll fetch me
 Consider your eye How she opened
 : Hand it doesn't begin.
 
+
+## Wikilinks load test
+
+[[baroque fuzee]]
+[[barefooted sharecropper]]

@@ -87,3 +87,9 @@ Does YOUR opinion said
 Serpent I went to
 : said EVERYBODY has he checked himself upon pegs.
 
+
+## Wikilinks load test
+
+[[isotropous video game]]
+[[foregoing largemouthed black bass]]
+[[allotted memorisation]]

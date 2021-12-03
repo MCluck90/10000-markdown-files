@@ -77,3 +77,11 @@ Our family always ready for
 Certainly not possibly reach it
 : as prizes.
 
+
+## Wikilinks load test
+
+[[nonfat hare wallaby]]
+[[palladian write up]]
+[[technophilic housatonic river]]
+[[operatic vocational rehabilitation]]
+[[compact boudoir]]

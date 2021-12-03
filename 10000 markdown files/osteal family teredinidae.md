@@ -83,3 +83,8 @@ Soup.
 sh.
 : Then I'll tell me a sharp chin into the trouble you forget to At any that day is
 
+
+## Wikilinks load test
+
+[[fungible american crow]]
+[[unhurried greenskeeper]]

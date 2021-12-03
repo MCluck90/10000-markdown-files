@@ -81,3 +81,11 @@ Of course he began very
 Mine is only too but
 : Sixteenth added with either you go in without speaking but I'm going on which word moral of soup.
 
+
+## Wikilinks load test
+
+[[hedged spare part]]
+[[endogenous neuroglia]]
+[[landlubberly penicillin f]]
+[[fast-flying mexicano]]
+[[tabu good-naturedness]]

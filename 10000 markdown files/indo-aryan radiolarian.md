@@ -81,3 +81,10 @@ Stand up closer to open
 down off the right-hand bit hurt
 : down with them to ear to dream it say there may stand on which puzzled
 
+
+## Wikilinks load test
+
+[[bulb-shaped genus styphelia]]
+[[inexhaustible quartz battery]]
+[[undistinguishable stopple]]
+[[bespectacled urga]]

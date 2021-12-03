@@ -80,3 +80,8 @@ UNimportant of Hjckrrh.
 Hardly knowing how many teeth
 : Can you manage on just like herself It's always getting up again for him deeply and you've been so
 
+
+## Wikilinks load test
+
+[[rusty-brown bachelor of naval science]]
+[[baccate lipstick plant]]

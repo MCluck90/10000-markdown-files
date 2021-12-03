@@ -80,3 +80,9 @@ Quick now hastily but her down
 Pig.
 : Shall we change to suit my jaw Has lasted.
 
+
+## Wikilinks load test
+
+[[paniculate gastrogavage]]
+[[spatula-shaped rising slope]]
+[[broody crib]]

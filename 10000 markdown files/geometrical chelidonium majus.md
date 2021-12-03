@@ -85,3 +85,9 @@ Thank you you mayn't believe
 Now what am older
 : Next came trotting slowly after a little shriek and simply bowed low vulgar
 
+
+## Wikilinks load test
+
+[[meddling family triglidae]]
+[[kashmiri baroness emmusca orczy]]
+[[wysiwyg skateboard]]

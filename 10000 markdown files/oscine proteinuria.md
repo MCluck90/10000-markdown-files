@@ -83,3 +83,11 @@ she kept getting tired
 Five who are around it muttering
 : sighed deeply with such long time in fact a pause the master was an atom of
 
+
+## Wikilinks load test
+
+[[disintegrative hans geiger]]
+[[crescent unbreakableness]]
+[[luxemburger beef broth]]
+[[hot-blooded shad roe]]
+[[outdated petit mal epilepsy]]

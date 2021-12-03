@@ -79,3 +79,9 @@ Stupid things being so savage
 Up above her skirt
 : then stop.
 
+
+## Wikilinks load test
+
+[[vicious internal combustion]]
+[[shaky point of departure]]
+[[hispaniolan hebraist]]

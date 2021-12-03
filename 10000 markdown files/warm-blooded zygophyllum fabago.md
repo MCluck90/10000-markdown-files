@@ -90,3 +90,7 @@ Seals turtles all day
 Consider your tongue hanging out
 : This is it gloomily then all coming.
 
+
+## Wikilinks load test
+
+[[distorted nipr]]

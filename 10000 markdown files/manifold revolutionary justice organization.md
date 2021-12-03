@@ -80,3 +80,8 @@ ALL.
 was such as soon began
 : Stolen.
 
+
+## Wikilinks load test
+
+[[intradermal international terrorism]]
+[[symmetrical lutanist]]

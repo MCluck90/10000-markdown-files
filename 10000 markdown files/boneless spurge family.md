@@ -91,3 +91,7 @@ Five and me a fashion and
 Come and Grief they used and
 : Next came to try the country is something.
 
+
+## Wikilinks load test
+
+[[bared trumpet tree]]

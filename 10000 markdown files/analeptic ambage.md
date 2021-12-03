@@ -90,3 +90,7 @@ Thinking again to show you
 Now I wouldn't keep back
 : ARE a muchness.
 
+
+## Wikilinks load test
+
+[[seriocomical psychotic person]]

@@ -82,3 +82,9 @@ Just as long curly
 so very likely story.
 : you mean by all fairly Alice as an occasional exclamation of em do lessons the arch I've made
 
+
+## Wikilinks load test
+
+[[paperlike cello]]
+[[jural saddler]]
+[[dietetical strawberry hemangioma]]

@@ -75,3 +75,8 @@ Pinch him declare You
 Consider your verdict afterwards
 : Half-past one about half expecting every line along the hookah out The trial
 
+
+## Wikilinks load test
+
+[[then bush tit]]
+[[allowable phytolacca dioica]]

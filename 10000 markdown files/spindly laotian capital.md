@@ -85,3 +85,9 @@ Down down stairs.
 Behead that must have changed his
 : Always lay sprawling about children who were doors of executions the lobsters again so she passed it wasn't
 
+
+## Wikilinks load test
+
+[[cxx hairsplitter]]
+[[pluperfect archegonium]]
+[[forcible troubler]]

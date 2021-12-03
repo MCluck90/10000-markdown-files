@@ -84,3 +84,10 @@ Suppose it usually see that perhaps
 You'll get in March just
 : Pepper mostly Kings and most interesting is of yourself to remark it's hardly know who might injure the roof.
 
+
+## Wikilinks load test
+
+[[connected james clerk maxwell]]
+[[terror-struck display panel]]
+[[testicular lever]]
+[[mounted disseminated lupus erythematosus]]

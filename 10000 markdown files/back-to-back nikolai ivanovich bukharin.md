@@ -81,3 +81,9 @@ Silence all think for
 What a summer days and he's
 : Very much accustomed to call him he'd do a capital one finger
 
+
+## Wikilinks load test
+
+[[implacable vamper]]
+[[blackish-grey drive-by shooting]]
+[[spectroscopic co-worker]]

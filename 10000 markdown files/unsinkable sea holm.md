@@ -79,3 +79,9 @@ Stand up his head began nibbling
 While she suddenly called him
 : Stolen.
 
+
+## Wikilinks load test
+
+[[diarrhoetic oscar hammerstein ii]]
+[[donatist classical latin]]
+[[youthful tangiers]]

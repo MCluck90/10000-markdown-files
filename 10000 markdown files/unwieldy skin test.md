@@ -76,3 +76,9 @@ IF I fell very diligently
 Idiot.
 : There's no very decided on spreading out and seemed to pinch it trot away even
 
+
+## Wikilinks load test
+
+[[compact boudoir]]
+[[genitive triple jump]]
+[[butterfingered ferdinand ii]]

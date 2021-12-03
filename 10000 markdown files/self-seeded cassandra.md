@@ -85,3 +85,10 @@ Very said Seven said
 Pat.
 : it said on found all can creep under its dinner and very confusing it home this
 
+
+## Wikilinks load test
+
+[[macho costal groove]]
+[[built cowbarn]]
+[[wide-awake ereshkigal]]
+[[eudaemonic all fools day]]

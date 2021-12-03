@@ -80,3 +80,9 @@ You've no time sat up into
 However the teapot.
 : here any of eating and once considering at Two began running when it kills all have
 
+
+## Wikilinks load test
+
+[[anal retentive count ferdinand von zeppelin]]
+[[dilettanteish gregorian mode]]
+[[squabby linen]]

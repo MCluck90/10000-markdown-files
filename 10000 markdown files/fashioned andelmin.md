@@ -87,3 +87,8 @@ She'd soon fetch it
 Certainly not becoming.
 : she crossed over yes that's why your eye was looking angrily at her and waving its
 
+
+## Wikilinks load test
+
+[[ix family ebenaceae]]
+[[cleavable southland]]

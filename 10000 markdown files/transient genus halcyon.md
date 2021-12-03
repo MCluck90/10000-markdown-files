@@ -79,3 +79,10 @@ or I'll stay down
 Hand it written about here lad.
 : Never.
 
+
+## Wikilinks load test
+
+[[approbative neva river]]
+[[decompositional igniter]]
+[[cuspated full professor]]
+[[cacodaemonic malamud]]

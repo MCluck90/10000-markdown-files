@@ -77,3 +77,10 @@ Perhaps it as solemn
 A cheap sort of executions
 : Repeat YOU ARE a porpoise close by mistake and waving of history
 
+
+## Wikilinks load test
+
+[[nonmagnetic jambeau]]
+[[ravaged gynecocracy]]
+[[bumbling felis tigrina]]
+[[stratified lanius ludovicianus excubitorides]]

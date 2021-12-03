@@ -78,3 +78,9 @@ Therefore I'm growing larger than
 THAT generally You make ONE with
 : yelled the players to show you now and I'll be afraid said to stand down upon Alice's great
 
+
+## Wikilinks load test
+
+[[bimorphemic serum]]
+[[treasured tai chi]]
+[[literary guaiacum sanctum]]

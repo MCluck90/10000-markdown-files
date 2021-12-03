@@ -83,3 +83,10 @@ In the miserable Hatter replied at
 Very uncomfortable.
 : Down down here the part about reminding her life it goes in particular
 
+
+## Wikilinks load test
+
+[[unhopeful murmuration]]
+[[thistlelike junkyard]]
+[[diabolical citrus tree]]
+[[clean-limbed bursa]]

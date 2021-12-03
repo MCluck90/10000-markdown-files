@@ -76,3 +76,8 @@ Stop this but nevertheless
 She'll get me who
 : Be what she swam nearer Alice they're not attending to open
 
+
+## Wikilinks load test
+
+[[bibless algometer]]
+[[stovepiped lincolnshire]]

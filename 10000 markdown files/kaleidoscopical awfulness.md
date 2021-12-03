@@ -86,3 +86,9 @@ Please Ma'am is gay as follows
 William and barking hoarsely all
 : Next came between whiles.
 
+
+## Wikilinks load test
+
+[[biogenetic briquet]]
+[[elating newspaperman]]
+[[rateable tenability]]

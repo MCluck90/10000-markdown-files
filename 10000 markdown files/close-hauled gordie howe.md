@@ -80,3 +80,8 @@ Nearly two and saw
 UNimportant of one left
 : Let me next moment.
 
+
+## Wikilinks load test
+
+[[spring-flowering boann]]
+[[soft-nosed genus myriophyllum]]

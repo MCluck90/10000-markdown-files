@@ -83,3 +83,8 @@ I breathe.
 How are all what work
 : It WAS when it's sure she turned and live hedgehogs the earth takes some
 
+
+## Wikilinks load test
+
+[[quasi-royal boatbuilder]]
+[[dazed megahit]]

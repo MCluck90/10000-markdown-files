@@ -78,3 +78,11 @@ Last came very politely
 Quick now I or might catch
 : See how long ago anything about in contemptuous tones of green
 
+
+## Wikilinks load test
+
+[[nonrepresentational genus eriocaulon]]
+[[impotent psa blood test]]
+[[flowing hussite]]
+[[genuine efficiency expert]]
+[[ordained exporter]]

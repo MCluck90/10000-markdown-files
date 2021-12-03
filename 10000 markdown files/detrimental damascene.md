@@ -81,3 +81,11 @@ Consider your age there
 Some of beautiful Soup does
 : Nothing WHATEVER.
 
+
+## Wikilinks load test
+
+[[nominal priscoan aeon]]
+[[spellbound jainism]]
+[[regimented cheval glass]]
+[[foreboding slipper plant]]
+[[salient dicotyledones]]

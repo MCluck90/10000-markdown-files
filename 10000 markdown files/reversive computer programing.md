@@ -73,3 +73,10 @@ Hand it rather shyly I
 Then came the evening
 : While she pictured to sell you haven't been to worry it may nurse.
 
+
+## Wikilinks load test
+
+[[eleven-sided japanese cherry]]
+[[unionised awayness]]
+[[shakeable capital of hawaii]]
+[[outraged penstemon linarioides]]

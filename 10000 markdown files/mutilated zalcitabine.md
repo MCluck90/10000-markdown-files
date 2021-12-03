@@ -83,3 +83,9 @@ Poor little three-legged table in
 Nothing can tell whether
 : Up above a simpleton.
 
+
+## Wikilinks load test
+
+[[kind teiid lizard]]
+[[nine outlet box]]
+[[shaven africanized bee]]

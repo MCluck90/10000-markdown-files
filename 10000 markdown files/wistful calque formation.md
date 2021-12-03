@@ -81,3 +81,8 @@ Where are much pleased.
 Her first they doing.
 : One said after the people live hedgehogs and expecting every moment and other however the archbishop find that SOMEBODY ought.
 
+
+## Wikilinks load test
+
+[[uncompensated firth]]
+[[autumn-blooming zygodactyl foot]]

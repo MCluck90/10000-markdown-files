@@ -73,3 +73,10 @@ Imagine her adventures beginning to
 Stupid things.
 : Hand it out loud.
 
+
+## Wikilinks load test
+
+[[aeschylean cementite]]
+[[desirous elective course]]
+[[piteous pitchstone]]
+[[worried carpet grass]]

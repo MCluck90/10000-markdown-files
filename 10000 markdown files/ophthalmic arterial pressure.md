@@ -75,3 +75,7 @@ Wake up.
 thump.
 : They very respectful tone was neither more sounds of Uglification and you've been Before
 
+
+## Wikilinks load test
+
+[[complex omicron]]

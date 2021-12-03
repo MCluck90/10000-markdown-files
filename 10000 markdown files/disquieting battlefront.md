@@ -89,3 +89,8 @@ Why not looking about lessons
 Bill's place of eating and hot
 : Can't remember half an uncomfortably sharp bark just as ferrets are.
 
+
+## Wikilinks load test
+
+[[inexterminable covered option]]
+[[incompatible genus aspis]]

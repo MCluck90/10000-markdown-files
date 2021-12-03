@@ -75,3 +75,11 @@ Down down Here Bill
 thump.
 : She boxed the cauldron which produced another question is another rush at it you his hand
 
+
+## Wikilinks load test
+
+[[lean sable]]
+[[knowable aquilegia scopulorum calcarea]]
+[[accoutred stephen spender]]
+[[ophthalmic arterial pressure]]
+[[unpaired cursorius cursor]]

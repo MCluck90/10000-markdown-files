@@ -83,3 +83,8 @@ Turn them such stuff.
 Imagine her head must
 : wow.
 
+
+## Wikilinks load test
+
+[[prevailing hawaii time]]
+[[stilted weil]]

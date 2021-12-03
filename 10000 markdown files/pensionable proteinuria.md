@@ -85,3 +85,10 @@ Never imagine yourself said
 ALL PERSONS MORE THAN A
 : Run home.
 
+
+## Wikilinks load test
+
+[[edacious texas tortoise]]
+[[poltroon wooly blue curls]]
+[[nonproductive cyanogen]]
+[[clove-scented ivan iv]]

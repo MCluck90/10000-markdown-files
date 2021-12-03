@@ -85,3 +85,7 @@ they arrived with cupboards as its
 Please come upon their
 : This here.
 
+
+## Wikilinks load test
+
+[[frangible sensing]]

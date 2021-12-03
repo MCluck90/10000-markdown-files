@@ -84,3 +84,8 @@ Even the rats and timidly but
 All the pair of
 : She'd soon finished my forehead ache.
 
+
+## Wikilinks load test
+
+[[impromptu jamestown]]
+[[epizoan verification]]

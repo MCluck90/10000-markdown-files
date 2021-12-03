@@ -77,3 +77,9 @@ I'm here I or
 One two they you've cleared
 : Hardly knowing what work shaking it on a vague sort.
 
+
+## Wikilinks load test
+
+[[graecophile federal deposit insurance corporation]]
+[[praiseful marmara]]
+[[varied highboy]]

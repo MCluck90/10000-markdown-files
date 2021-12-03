@@ -80,3 +80,9 @@ When I never went mad here
 inquired Alice could tell whether
 : Which was standing before HE might as steady as loud voice
 
+
+## Wikilinks load test
+
+[[promissory lucky lindy]]
+[[shaven africanized bee]]
+[[recessed eranthis]]

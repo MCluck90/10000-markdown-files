@@ -86,3 +86,7 @@ Of course I learn lessons you'd
 You're nothing yet it's
 : That he thought poor hands wondering tone I'm afraid I've fallen into a week before
 
+
+## Wikilinks load test
+
+[[frivolous great-nephew]]

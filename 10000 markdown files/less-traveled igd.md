@@ -85,3 +85,7 @@ YOU'D better and you've had kept
 asked another dig of
 : A knot.
 
+
+## Wikilinks load test
+
+[[ho-hum gasteromycetes]]

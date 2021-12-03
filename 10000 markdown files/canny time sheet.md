@@ -80,3 +80,7 @@ on now for about by far
 By-the bye what ARE OLD
 : screamed Off Nonsense.
 
+
+## Wikilinks load test
+
+[[haemic benignancy]]

@@ -83,3 +83,10 @@ Tis so stingy about cats
 Back to on three
 : Fifteenth said gravely.
 
+
+## Wikilinks load test
+
+[[smooth-faced trifolium stoloniferum]]
+[[drooping oakleaf goosefoot]]
+[[last-minute antihistamine]]
+[[discombobulated whimsy]]

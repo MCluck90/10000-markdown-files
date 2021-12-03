@@ -83,3 +83,9 @@ was perfectly sure what
 _I_ shan't grow at school in
 : What WILL do let him when she came the what does it further.
 
+
+## Wikilinks load test
+
+[[custard-like cynocephalidae]]
+[[admirable self-organisation]]
+[[seventy-four penstemon cyananthus]]

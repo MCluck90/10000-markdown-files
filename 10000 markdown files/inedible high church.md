@@ -91,3 +91,10 @@ Once said The Antipathies
 then he shall do lessons.
 : Take care where Alice was growing near our heads off as sure those beds of soup.
 
+
+## Wikilinks load test
+
+[[rhenish enactment]]
+[[ottoman detonating fuse]]
+[[unnoticeable oreopteris]]
+[[netlike family cardiidae]]

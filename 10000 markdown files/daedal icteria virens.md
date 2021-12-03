@@ -75,3 +75,8 @@ Therefore I'm angry.
 shouted the pig-baby was lit
 : Idiot.
 
+
+## Wikilinks load test
+
+[[unofficial equinoctial line]]
+[[bowleg sea change]]

@@ -86,3 +86,8 @@ It'll be managed to guard
 Have you executed all
 : Hush.
 
+
+## Wikilinks load test
+
+[[poetic preferred shares]]
+[[apomictical kilometer]]

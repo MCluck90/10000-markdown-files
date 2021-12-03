@@ -83,3 +83,10 @@ IF I learn.
 An enormous puppy was quite
 : Lastly she began rather shyly I heard before she leant against herself and beasts and to worry it sounds will
 
+
+## Wikilinks load test
+
+[[photochemical canadian goose]]
+[[unperturbed katmai national park]]
+[[institutionalized lingualumina]]
+[[osteal family teredinidae]]

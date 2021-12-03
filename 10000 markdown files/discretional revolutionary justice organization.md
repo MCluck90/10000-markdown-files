@@ -83,3 +83,10 @@ Off Nonsense.
 cried out but as
 : I'm NOT a hot tea.
 
+
+## Wikilinks load test
+
+[[descriptive quasiparticle]]
+[[quenched cirio]]
+[[sinewy killarney fern]]
+[[unavoidable bathyergus]]

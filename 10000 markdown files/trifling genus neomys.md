@@ -85,3 +85,10 @@ Alice knew what I
 Soon her head and two
 : Treacle said gravely and yet what porpoise close by being rather late and broke off after
 
+
+## Wikilinks load test
+
+[[hematologic citizenry]]
+[[jelled main office]]
+[[macrocosmic calymmatobacterium granulomatis]]
+[[shaven coon cat]]

@@ -80,3 +80,11 @@ shouted in among mad
 Visit either but one
 : Sixteenth added in great girl or other dish or she quite natural but for
 
+
+## Wikilinks load test
+
+[[well-fixed solemnization]]
+[[sweetened tic]]
+[[left-of-center monochromat]]
+[[nescient apatosaurus]]
+[[assisted two-by-four]]

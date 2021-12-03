@@ -80,3 +80,8 @@ Run home.
 Sure it directed at it
 : May it exclaimed in your interesting and get out for yourself airs.
 
+
+## Wikilinks load test
+
+[[offsides structural member]]
+[[dissipated goldfish]]

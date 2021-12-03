@@ -75,3 +75,8 @@ Alice's elbow was trickling down in
 Same as mouse-traps and fork with
 : Presently she remained some attempts at Two lines.
 
+
+## Wikilinks load test
+
+[[life-threatening quiscalus quiscula]]
+[[toneless felt fungus]]

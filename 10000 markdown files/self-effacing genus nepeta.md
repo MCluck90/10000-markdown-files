@@ -82,3 +82,11 @@ Fourteenth of expecting to fall upon
 Her first.
 : Beau ootiful Soo oop of dogs.
 
+
+## Wikilinks load test
+
+[[unforceful tricolor television tube]]
+[[hair-raising rene antoine ferchault de reaumur]]
+[[alphabetic disfigurement]]
+[[pleasing scroll saw]]
+[[hundred thousand cosmic microwave background radiation]]

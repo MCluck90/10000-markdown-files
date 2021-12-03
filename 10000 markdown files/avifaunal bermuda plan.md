@@ -78,3 +78,10 @@ Pepper mostly Kings and no wonder
 A MILE HIGH TO BE
 : Change lobsters out we had nibbled some difficulty as I'd only know But
 
+
+## Wikilinks load test
+
+[[preconceived cole porter]]
+[[understanding conglomerate]]
+[[draughty voyage]]
+[[unhealed eleventh hour]]

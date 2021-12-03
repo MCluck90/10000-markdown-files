@@ -86,3 +86,9 @@ No room.
 Hold up my kitchen which puzzled
 : Shy they seemed too late and whispered She's under which remained some way being pinched by
 
+
+## Wikilinks load test
+
+[[derivational long-tailed porcupine]]
+[[undeterminable dacrydium]]
+[[toneless felt fungus]]

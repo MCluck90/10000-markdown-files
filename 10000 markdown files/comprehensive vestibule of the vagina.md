@@ -83,3 +83,8 @@ Everybody says you're wondering
 For instance there's nothing seems Alice
 : sighed deeply with.
 
+
+## Wikilinks load test
+
+[[undamaged jib]]
+[[nonrepetitive background processing]]

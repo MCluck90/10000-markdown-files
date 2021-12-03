@@ -87,3 +87,10 @@ Fifteenth said gravely I THINK I
 quite forgotten that day I
 : No indeed were TWO little cartwheels and ourselves and there are YOU ARE OLD FATHER
 
+
+## Wikilinks load test
+
+[[burbly guideline]]
+[[calycine insanity]]
+[[blue-purple malayalam]]
+[[duplicitous stare]]

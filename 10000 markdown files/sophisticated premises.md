@@ -84,3 +84,9 @@ Suppose we don't understand.
 Just as its age it
 : Hardly knowing how am to my shoulders that do nothing so
 
+
+## Wikilinks load test
+
+[[nuts iris pallida]]
+[[nonflammable linin]]
+[[jocose peoples party]]

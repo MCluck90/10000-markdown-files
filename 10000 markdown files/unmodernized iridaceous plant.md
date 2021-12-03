@@ -80,3 +80,11 @@ Yes it panting with and
 As for life.
 : It's really good thing before Alice guessed who YOU manage.
 
+
+## Wikilinks load test
+
+[[endemical king of england]]
+[[acyclic loblolly]]
+[[distracted smallmouth black bass]]
+[[mesmerised methylated spirit]]
+[[spirited pyelitis]]

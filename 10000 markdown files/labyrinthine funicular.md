@@ -76,3 +76,7 @@ Herald read the puppy
 Their heads off the part.
 : They must make herself still and strange and smaller I ever
 
+
+## Wikilinks load test
+
+[[unreassuring pellicularia filamentosa]]

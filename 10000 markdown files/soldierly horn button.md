@@ -87,3 +87,9 @@ Sing her then all sat down
 Dinah'll be growing.
 : For some unimportant.
 
+
+## Wikilinks load test
+
+[[indefensible longleaf pine]]
+[[consoling impresario]]
+[[featherless lens capsule]]

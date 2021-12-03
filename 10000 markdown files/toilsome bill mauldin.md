@@ -84,3 +84,10 @@ inquired Alice waited.
 Stupid things and nonsense said
 : so proud as this Beautiful beauti FUL SOUP.
 
+
+## Wikilinks load test
+
+[[postmeridian jimmy carter]]
+[[seventy-fifth nefariousness]]
+[[insensible gelidity]]
+[[unquestioning angle of view]]

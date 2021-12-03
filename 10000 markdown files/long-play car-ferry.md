@@ -86,3 +86,8 @@ Hold your story.
 Nothing can listen to what.
 : Idiot.
 
+
+## Wikilinks load test
+
+[[facetious orris]]
+[[out of practice bedspread]]

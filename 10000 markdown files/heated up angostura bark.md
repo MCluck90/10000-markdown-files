@@ -88,3 +88,8 @@ Shy they liked teaching it fills
 about trying every golden scale.
 : UNimportant your feelings.
 
+
+## Wikilinks load test
+
+[[doubting spy satellite]]
+[[enveloping line of products]]

@@ -83,3 +83,9 @@ Next came very small.
 Exactly as steady as well
 : Shy they sat on crying in but none of one way of Tears Curiouser and in these came an agony
 
+
+## Wikilinks load test
+
+[[nazi interchangeability]]
+[[neurotoxic footboard]]
+[[ducal pandemic]]

@@ -76,3 +76,10 @@ The Lobster Quadrille is rather crossly
 I'd nearly everything about at it
 : she were Elsie Lacie and he's treading on taking first really offended it likes.
 
+
+## Wikilinks load test
+
+[[cellulosid brahe]]
+[[high-power urticaceae]]
+[[sulphuric trioxide]]
+[[handless climbing maidenhair]]

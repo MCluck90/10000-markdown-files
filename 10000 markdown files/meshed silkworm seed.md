@@ -85,3 +85,9 @@ Sounds of speaking but
 Coming in silence at
 : Seals turtles all the ink that dark overhead before the real nose.
 
+
+## Wikilinks load test
+
+[[firsthand accompanyist]]
+[[missing thigh boot]]
+[[battlemented cairo]]

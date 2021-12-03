@@ -86,3 +86,9 @@ Here was linked into
 When we don't reach
 : sh.
 
+
+## Wikilinks load test
+
+[[crocked genus ascaridia]]
+[[tapered dauber]]
+[[calyptrate physical value]]

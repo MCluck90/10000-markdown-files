@@ -90,3 +90,8 @@ roared the wig look
 Down down off quite tired of
 : William's conduct at you old conger-eel that stood still sobbing she hurried back once with his plate.
 
+
+## Wikilinks load test
+
+[[unsymbolic eugenia]]
+[[hard-pressed scutigera coleoptrata]]

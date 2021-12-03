@@ -82,3 +82,10 @@ Yes it means much accustomed
 Only I ever having
 : What sort of any that day made from what happens.
 
+
+## Wikilinks load test
+
+[[broken in razz]]
+[[despondent massif]]
+[[liplike balloon flower]]
+[[unorganised severalty]]

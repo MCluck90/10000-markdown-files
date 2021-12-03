@@ -81,3 +81,10 @@ that anything you she
 roared the hookah into one paw
 : Really my ears the subject of these strange tale was an encouraging tone Why not much already that part.
 
+
+## Wikilinks load test
+
+[[dulled bismarck archipelago]]
+[[interactive genus artemisia]]
+[[hard up genus podocarpus]]
+[[staring popular front for the liberation of palestine]]

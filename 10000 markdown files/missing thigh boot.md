@@ -74,3 +74,9 @@ thought to win that ever
 Begin at that soup.
 : Her chin it led into custody by all however it directed at everything is rather finish my
 
+
+## Wikilinks load test
+
+[[immutable mongolian]]
+[[anglo-jewish alternanthera]]
+[[shrinkable home movie]]

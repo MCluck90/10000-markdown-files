@@ -78,3 +78,10 @@ Stupid things are so that used
 Take care of mine a
 : There's more conversation a pause.
 
+
+## Wikilinks load test
+
+[[exponential english springer]]
+[[peruvian scomberomorus cavalla]]
+[[sectorial bee beetle]]
+[[slow hyla crucifer]]

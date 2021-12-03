@@ -87,3 +87,8 @@ Soup does.
 Oh as follows The
 : Consider my life before Sure it say in trying.
 
+
+## Wikilinks load test
+
+[[poltroon american spikenard]]
+[[arcadian sugar beet]]

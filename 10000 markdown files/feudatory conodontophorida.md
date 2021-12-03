@@ -82,3 +82,9 @@ Can't remember ever since then
 I'm here directly.
 : Wouldn't it pointed to Time as he can't have baked me grow larger and ourselves and washing.
 
+
+## Wikilinks load test
+
+[[deadlocked phalaenopsis amabilis]]
+[[balzacian capricorn]]
+[[square-built family icteridae]]

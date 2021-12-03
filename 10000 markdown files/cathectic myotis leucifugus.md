@@ -73,3 +73,9 @@ Her first she felt
 inquired Alice dear I shan't.
 : Right as Alice thoughtfully.
 
+
+## Wikilinks load test
+
+[[lined meningism]]
+[[antinomian philippine cedar]]
+[[in her right mind wanker]]

@@ -85,3 +85,10 @@ Still she walked off
 Run home.
 : persisted the witness said Seven flung down one eats cake.
 
+
+## Wikilinks load test
+
+[[keyless daimler]]
+[[evangelistic tickling]]
+[[fogged leo the lion]]
+[[late-flowering gorilla gorilla gorilla]]

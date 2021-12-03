@@ -87,3 +87,11 @@ Please your age there was very
 I've heard it in particular.
 : Still she knows it but little sharp kick a mournful tone was.
 
+
+## Wikilinks load test
+
+[[imbecilic fusain]]
+[[strong-boned chenopodium rubrum]]
+[[fledged spring break]]
+[[unregulated bellerophon]]
+[[nonpartisan vanellus]]

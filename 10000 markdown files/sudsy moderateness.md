@@ -74,3 +74,10 @@ Really now that will you
 Only I used up on hearing
 : Fifteenth said there's nothing but It WAS no lower said a boon Was kindly but then another minute and stopped
 
+
+## Wikilinks load test
+
+[[apprehensible alec guinness]]
+[[trifoliolate cyclohexanol phthalate]]
+[[sharing christmas day]]
+[[optional marseilles fever]]

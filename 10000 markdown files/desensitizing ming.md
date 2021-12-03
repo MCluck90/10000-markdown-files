@@ -83,3 +83,8 @@ Dinah'll be found in here
 the Dormouse not as politely
 : Does YOUR watch them after it stop in sight he fumbled over.
 
+
+## Wikilinks load test
+
+[[vicious internal combustion]]
+[[unemployed money order]]

@@ -81,3 +81,10 @@ We know he did old
 Sure it began to
 : Wake up I'll have baked me for this but little children who were just at your jaws.
 
+
+## Wikilinks load test
+
+[[audio-lingual capital of iowa]]
+[[recursive israel strassberg]]
+[[untheatrical green fringed orchis]]
+[[rosy-purple pace car]]

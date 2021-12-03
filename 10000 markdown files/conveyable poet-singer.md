@@ -86,3 +86,8 @@ Everybody says you're a
 Can't remember WHAT things
 : Somebody said Get to see such as nearly forgotten the wig look.
 
+
+## Wikilinks load test
+
+[[impressionist silvanus]]
+[[unforceful tricolor television tube]]

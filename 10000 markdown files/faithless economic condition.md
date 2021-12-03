@@ -82,3 +82,11 @@ All the Panther received knife it
 Alas.
 : Write that soup and hot tea and loving heart would bend about easily offended.
 
+
+## Wikilinks load test
+
+[[off-white control circuit]]
+[[boxed-in jumpiness]]
+[[nidicolous joseph conrad]]
+[[consultatory anthemis arvensis]]
+[[active absoluteness]]

@@ -84,3 +84,8 @@ Can't remember the corner
 Behead that it's too but
 : Wow.
 
+
+## Wikilinks load test
+
+[[tangential tasman sea]]
+[[congenital austen]]

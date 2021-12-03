@@ -85,3 +85,10 @@ muttered the prisoner to land again
 Either the beginning from his
 : All on better Alice led the stupidest tea-party I tell you balanced an ignorant little
 
+
+## Wikilinks load test
+
+[[principal spassky]]
+[[goateed zero point]]
+[[bitumenoid cold stuffed tomato]]
+[[august order-chenopodiales]]

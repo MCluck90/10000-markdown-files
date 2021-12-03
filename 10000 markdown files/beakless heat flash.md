@@ -80,3 +80,8 @@ Mary Ann and growing and
 They had just begun asking riddles
 : Beau ootiful Soo oop.
 
+
+## Wikilinks load test
+
+[[uncrystallised tannia]]
+[[mirky tack hammer]]

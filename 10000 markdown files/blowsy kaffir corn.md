@@ -78,3 +78,10 @@ Two.
 Mind now for catching mice
 : If you so I'll manage it vanished.
 
+
+## Wikilinks load test
+
+[[unscalable ashtray]]
+[[bitty police officer]]
+[[livelong clergy]]
+[[bimolecular apple jelly]]

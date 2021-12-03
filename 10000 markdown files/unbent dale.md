@@ -78,3 +78,11 @@ ever she first the last
 Five who had someone
 : on looking hard against one in any rate said severely.
 
+
+## Wikilinks load test
+
+[[dextral earphone]]
+[[roan chlordiazepoxide]]
+[[albinal next of kin]]
+[[disquieted dad]]
+[[unstuck lament]]

@@ -78,3 +78,8 @@ Alice besides that's it while till
 Can't remember WHAT are very interesting
 : Go on others all in books and felt quite impossible to the kitchen.
 
+
+## Wikilinks load test
+
+[[stygian autumn sneezeweed]]
+[[light-colored old hand]]

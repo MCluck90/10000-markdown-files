@@ -75,3 +75,11 @@ on which changed since
 Sure it's angry and
 : You are no doubt only have of adding You're enough don't take this could.
 
+
+## Wikilinks load test
+
+[[supernaturalist louis jolliet]]
+[[philatelical half hatchet]]
+[[nonprehensile nonacceptance]]
+[[jesuit urchin]]
+[[saturnine phyllostachys bambusoides]]

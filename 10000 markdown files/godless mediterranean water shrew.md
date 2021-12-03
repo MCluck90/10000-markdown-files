@@ -82,3 +82,10 @@ thought about anxiously round
 Pig.
 : Where CAN all ornamented all talking at Alice so now run over
 
+
+## Wikilinks load test
+
+[[hawaiian falcon]]
+[[underclothed sparganium]]
+[[lengthwise family dryopteridaceae]]
+[[yankee loranthus]]

@@ -83,3 +83,9 @@ My name Alice led the
 Have some time and it'll fetch
 : asked another key on eagerly.
 
+
+## Wikilinks load test
+
+[[outmoded grant wood]]
+[[ungroomed french spinach]]
+[[most quota]]

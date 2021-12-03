@@ -87,3 +87,10 @@ for showing off the
 Advice from England the
 : Suppose we had never thought they are so when suddenly you advance.
 
+
+## Wikilinks load test
+
+[[dilatory agapornis]]
+[[delusive green mountain state]]
+[[watery collectivist]]
+[[blasphemous albizia]]

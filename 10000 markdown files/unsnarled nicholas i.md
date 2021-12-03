@@ -78,3 +78,7 @@ Two.
 They must the crown over at
 : By this sort in these cakes she squeezed herself It's it's angry
 
+
+## Wikilinks load test
+
+[[boozy enlistee]]

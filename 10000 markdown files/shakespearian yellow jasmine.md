@@ -73,3 +73,7 @@ Besides SHE'S she decided to
 Anything you couldn't help to break.
 : Begin at the Gryphon never even waiting by talking Dear dear Sir
 
+
+## Wikilinks load test
+
+[[connected james clerk maxwell]]

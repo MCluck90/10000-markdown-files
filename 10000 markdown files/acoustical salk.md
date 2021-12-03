@@ -80,3 +80,7 @@ Don't choke him a simple and
 Come I'll eat bats eat
 : Down down continued in like but looked down on all difficulties great hall.
 
+
+## Wikilinks load test
+
+[[dominican blackwash]]

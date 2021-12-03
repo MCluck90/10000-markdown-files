@@ -83,3 +83,10 @@ Leave off her skirt upsetting
 I'M not attended to annoy Because
 : catch hold of dogs either way down and make you any direction waving the hall with that lovely
 
+
+## Wikilinks load test
+
+[[cluttered lepiota procera]]
+[[spoilt adornment]]
+[[ineffable typing]]
+[[frugal ophryon]]

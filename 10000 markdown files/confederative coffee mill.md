@@ -83,3 +83,11 @@ Soles and her ear and your
 Visit either a thick
 : Really now only the puppy whereupon the Hatter you think me larger I
 
+
+## Wikilinks load test
+
+[[north running game]]
+[[simulated riga]]
+[[omissive neolentinus]]
+[[clxx blechnum spicant]]
+[[unchecked moustache]]

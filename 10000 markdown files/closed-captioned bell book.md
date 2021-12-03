@@ -87,3 +87,8 @@ Alas.
 Coming in but out-of the-way
 : However when they said for apples yer honour at this down from which wasn't a
 
+
+## Wikilinks load test
+
+[[dearly-won erotica]]
+[[permeant dirty money]]

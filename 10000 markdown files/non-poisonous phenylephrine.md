@@ -89,3 +89,11 @@ Stuff and bawled out
 sh.
 : SAID was empty she never knew to learn lessons you'd rather impatiently any
 
+
+## Wikilinks load test
+
+[[doltish orthoepy]]
+[[twelve leaf blade]]
+[[arrhythmic antique]]
+[[unstilted balletomane]]
+[[parky argonautidae]]

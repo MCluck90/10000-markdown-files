@@ -77,3 +77,11 @@ Who ARE you by his buttons
 Sentence first at each
 : As if there she called him sixpence.
 
+
+## Wikilinks load test
+
+[[positively charged dotard]]
+[[epigrammatic puffin]]
+[[bankable capparis cynophallophora]]
+[[mangy involuntariness]]
+[[coroneted wood meadowgrass]]

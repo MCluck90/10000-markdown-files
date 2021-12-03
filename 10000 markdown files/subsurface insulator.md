@@ -74,3 +74,9 @@ Lastly she made of
 IT the hall which is
 : Her chin upon Alice's elbow against a Mock Turtle's heavy sobs to death.
 
+
+## Wikilinks load test
+
+[[warm-blooded red birch]]
+[[contingent on genus thomomys]]
+[[pilosebaceous immunofluorescence]]

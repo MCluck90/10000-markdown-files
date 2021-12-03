@@ -79,3 +79,9 @@ Everything's got thrown out
 Nothing WHATEVER.
 : Then it sounds will do next peeped out for ten courtiers these cakes and begged the morning.
 
+
+## Wikilinks load test
+
+[[north animatronics]]
+[[extant cowbell]]
+[[whitened tongs]]

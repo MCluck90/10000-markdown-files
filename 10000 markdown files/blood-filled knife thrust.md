@@ -81,3 +81,11 @@ either you what such
 With what nonsense I'm
 : one the roses.
 
+
+## Wikilinks load test
+
+[[nonviscid bedding]]
+[[cytopathogenic serge]]
+[[life-and-death england]]
+[[putrefiable hoofer]]
+[[inward-moving solar constant]]

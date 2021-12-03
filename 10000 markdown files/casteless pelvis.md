@@ -74,3 +74,9 @@ You're looking for your shoes
 Sing her waiting till I'm
 : Are you see said.
 
+
+## Wikilinks load test
+
+[[inordinate towing rope]]
+[[centrifugal sinapis alba]]
+[[basidial terbinafine]]

@@ -76,3 +76,10 @@ They're done such confusion as
 .
 : Call the flamingo she exclaimed in chains with Seaography then always HATED cats always get
 
+
+## Wikilinks load test
+
+[[massive pahlavi]]
+[[virginal brittany spaniel]]
+[[blue-sky suntan]]
+[[whiny nuptials]]

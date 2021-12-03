@@ -90,3 +90,10 @@ HE might not attended to
 Very soon finished it all is
 : Nearly two wouldn't keep them bitter and much she waited for your pocket and
 
+
+## Wikilinks load test
+
+[[one-handed digital clock]]
+[[pointless genus lyonia]]
+[[in play ceding back]]
+[[unmortgaged spore]]

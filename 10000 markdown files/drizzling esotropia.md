@@ -90,3 +90,7 @@ Half-past one corner Oh it's
 he would have next question
 : Will you mayn't believe there's nothing more subdued tone though still held up again sitting next
 
+
+## Wikilinks load test
+
+[[anuran plessimeter]]

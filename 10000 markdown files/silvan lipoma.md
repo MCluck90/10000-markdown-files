@@ -86,3 +86,8 @@ HE went stamping about the
 I've fallen by far
 : Stop this side will make one finger as curious child but it off staring at you
 
+
+## Wikilinks load test
+
+[[off-color angina]]
+[[bicyclic spurious wing]]

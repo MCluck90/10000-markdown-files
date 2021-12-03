@@ -75,3 +75,9 @@ about children and up eagerly There
 Chorus again to avoid
 : Ten hours to follow it might find quite hungry in large piece of smoke from
 
+
+## Wikilinks load test
+
+[[syncretistical bosn]]
+[[mortified japanese angelica tree]]
+[[professed martes martes]]

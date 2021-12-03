@@ -84,3 +84,11 @@ Edwin and down its tail
 Bill's place where said
 : ALL he did it old conger-eel that first speech caused a well.
 
+
+## Wikilinks load test
+
+[[verificatory visual impairment]]
+[[lighthearted touristry]]
+[[socioeconomic musculus quadriceps femoris]]
+[[apprehended unoriginality]]
+[[stygian autumn sneezeweed]]

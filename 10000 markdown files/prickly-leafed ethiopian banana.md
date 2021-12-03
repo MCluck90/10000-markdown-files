@@ -81,3 +81,8 @@ as it's marked poison
 Have some surprise when
 : a buttercup to nurse.
 
+
+## Wikilinks load test
+
+[[autocatalytic recusation]]
+[[killable polypodium]]

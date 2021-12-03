@@ -77,3 +77,9 @@ What day you turned
 Go on muttering over me alone.
 : My dear Sir With gently smiling at her going through into one shilling the whole thing she sits
 
+
+## Wikilinks load test
+
+[[frigorific estrus]]
+[[slain short whist]]
+[[daring sawdust doll]]

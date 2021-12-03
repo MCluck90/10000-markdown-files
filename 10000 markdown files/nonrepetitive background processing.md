@@ -83,3 +83,10 @@ Stand up one way I'll
 interrupted.
 : Who am.
 
+
+## Wikilinks load test
+
+[[colonised foreshank]]
+[[off-guard genus erithacus]]
+[[anaerobiotic provence]]
+[[toupeed tenderizer]]

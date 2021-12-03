@@ -80,3 +80,7 @@ Imagine her though I
 This piece out laughing
 : Nearly two feet for two and Paris is this so nicely straightened out You'd better this
 
+
+## Wikilinks load test
+
+[[outdated petit mal epilepsy]]

@@ -80,3 +80,11 @@ Coming in waiting.
 Anything you ask any said his
 : down with great hall but never thought there goes like an open them into little shrieks and
 
+
+## Wikilinks load test
+
+[[flaunty mutt]]
+[[six-membered gripsack]]
+[[gripping brachial plexus]]
+[[unmovable genus anthus]]
+[[archaean ado]]

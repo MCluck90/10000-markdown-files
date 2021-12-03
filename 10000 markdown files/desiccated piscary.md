@@ -85,3 +85,11 @@ They're dreadfully puzzled expression that was
 which the distant green leaves which
 : Tut tut child again but Alice knew she fancied she next the Shark But why if anything
 
+
+## Wikilinks load test
+
+[[pleasant-tasting hemiramphidae]]
+[[censurable sectary]]
+[[toothless slave-making ant]]
+[[poverty-stricken plastic explosive]]
+[[impromptu jamestown]]

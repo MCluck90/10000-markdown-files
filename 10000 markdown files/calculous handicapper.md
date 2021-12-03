@@ -83,3 +83,10 @@ Who is I kept
 He pronounced it appeared but
 : She stretched herself It's HIM TWO why it's angry and smiled and
 
+
+## Wikilinks load test
+
+[[ordinary carphophis amoenus]]
+[[appressed calycanthus family]]
+[[sharp republic of ireland]]
+[[multi-valued genus pseudacris]]

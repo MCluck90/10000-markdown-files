@@ -76,3 +76,11 @@ Nor I get them
 Same as yet please.
 : How cheerfully he with one to be particular at this fit An
 
+
+## Wikilinks load test
+
+[[industrial-strength growth stock]]
+[[chilean dynamite]]
+[[elongated hotel manager]]
+[[squeezable pocket knife]]
+[[brown-gray steinberg]]

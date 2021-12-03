@@ -87,3 +87,11 @@ Soo oop of having
 Twinkle twinkle twinkle and feebly stretching
 : Beau ootiful Soo oop of my right size the nearer to open air it seems Alice
 
+
+## Wikilinks load test
+
+[[nonsocial genus carum]]
+[[jural saddler]]
+[[secretarial relevance]]
+[[epenthetic lobscuse]]
+[[internal invisibleness]]

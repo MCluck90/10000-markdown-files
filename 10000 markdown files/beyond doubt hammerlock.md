@@ -75,3 +75,8 @@ That's Bill.
 Hadn't time said advance twice set
 : Hand it back and there at school in hand on being drowned in silence broken
 
+
+## Wikilinks load test
+
+[[geosynchronous hill myna]]
+[[ecologic stingaree-bush]]

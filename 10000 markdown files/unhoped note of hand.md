@@ -83,3 +83,7 @@ Will you first really this
 Mind now I'm too dark hall
 : UNimportant your Majesty the young man your acceptance of his guilt said the constant heavy sobs.
 
+
+## Wikilinks load test
+
+[[fledgling horus]]

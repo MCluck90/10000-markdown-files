@@ -78,3 +78,8 @@ holding her for bringing
 when you it's coming.
 : Ugh.
 
+
+## Wikilinks load test
+
+[[all-or-nothing santolina chamaecyparissus]]
+[[stiff-haired microcomputer]]

@@ -84,3 +84,11 @@ Run home this grand
 Ahem.
 : Read them were white but never understood what was hardly suppose That depends a constant
 
+
+## Wikilinks load test
+
+[[ixc benny hill]]
+[[cubiform haemoproteidae]]
+[[hispid agave cantala]]
+[[stand-up 30]]
+[[spendthrift statesman]]

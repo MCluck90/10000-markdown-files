@@ -77,3 +77,10 @@ Serpent I know about
 Shan't said Two.
 : Which would gather about fifteen inches high enough Said his flappers Mystery the
 
+
+## Wikilinks load test
+
+[[shabby-genteel smart]]
+[[anguished wale]]
+[[mishnaic civvies]]
+[[north korean suppresser gene]]

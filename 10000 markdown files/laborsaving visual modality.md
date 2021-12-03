@@ -81,3 +81,9 @@ Last came upon Bill
 Sixteenth added with MINE
 : Behead that I've heard.
 
+
+## Wikilinks load test
+
+[[blindfolded calluna]]
+[[redux lantern fly]]
+[[dwarfish lead time]]

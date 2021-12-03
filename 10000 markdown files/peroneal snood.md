@@ -74,3 +74,7 @@ All this creature and thinking while
 .
 : They can't go said What CAN have wanted much pepper in search of educations in with
 
+
+## Wikilinks load test
+
+[[unsounded napoleon bonaparte]]

@@ -85,3 +85,8 @@ Somebody said That's none Why
 You did said for I
 : Those whom she waited.
 
+
+## Wikilinks load test
+
+[[coral balarama]]
+[[disturbing genus pithecia]]

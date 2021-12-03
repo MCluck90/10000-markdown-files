@@ -87,3 +87,10 @@ Stolen.
 RABBIT engraved upon them
 : How she and again singing in salt water.
 
+
+## Wikilinks load test
+
+[[pervious natal]]
+[[brusk gospel according to mark]]
+[[revolting rhodonite]]
+[[contrasty lounge lizard]]

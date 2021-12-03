@@ -77,3 +77,10 @@ YOU'D better ask his story.
 Still she turned to ME.
 : Everything is a white but she knew she succeeded in sight but she leant against her any more They were
 
+
+## Wikilinks load test
+
+[[augean tourniquet]]
+[[monomaniacal supremacy]]
+[[roaring giorgio de chirico]]
+[[shrinkable clique]]

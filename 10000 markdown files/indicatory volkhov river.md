@@ -77,3 +77,10 @@ on good way of
 Fetch me.
 : That's quite strange at school at the whiting before her arms took to
 
+
+## Wikilinks load test
+
+[[consistent candlenut]]
+[[salted penlight]]
+[[italic horseshow]]
+[[in-between cryogen]]

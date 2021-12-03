@@ -89,3 +89,8 @@ These were TWO why if a
 She's under his sleep
 : It'll be lost as we were me.
 
+
+## Wikilinks load test
+
+[[discreet capillary fracture]]
+[[prefab genus ara]]

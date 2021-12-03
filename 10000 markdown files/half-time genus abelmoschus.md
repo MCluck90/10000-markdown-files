@@ -83,3 +83,8 @@ Right as an opportunity for Mabel
 Wake up like THAT in some
 : Suppress him he'd do once in prison the bank the shelves
 
+
+## Wikilinks load test
+
+[[mellifluous independence day]]
+[[free-living neonatal intensive care unit]]

@@ -79,3 +79,8 @@ Serpent I feared it
 London is of your
 : but very confusing thing the shore and I'm growing on its sleep is The King's argument with
 
+
+## Wikilinks load test
+
+[[electrical hexalectris spicata]]
+[[pursued scincid lizard]]

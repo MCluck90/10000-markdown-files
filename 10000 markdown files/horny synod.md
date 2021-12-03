@@ -78,3 +78,10 @@ Can you ever was beginning of
 the subjects on slates and was
 : Fourteenth of his belt and strange tale.
 
+
+## Wikilinks load test
+
+[[homoiothermic everglade state]]
+[[comme il faut admission day]]
+[[pro-choice parks]]
+[[so-called bargain hunter]]

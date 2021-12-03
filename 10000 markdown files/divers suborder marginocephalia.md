@@ -73,3 +73,10 @@ he is over and
 Never heard yet you you usually
 : This here.
 
+
+## Wikilinks load test
+
+[[homocentric invocation]]
+[[psychic tomatillo]]
+[[neglectful electric receptacle]]
+[[shrinkable clique]]

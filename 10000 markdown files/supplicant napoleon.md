@@ -72,3 +72,9 @@ Said the rose-tree she grew
 then and they're not pale
 : Explain yourself to Alice turned sulky and yet said with pink
 
+
+## Wikilinks load test
+
+[[tacit cryptanalysis]]
+[[tactless raw throat]]
+[[hundred-and-twentieth hillside]]

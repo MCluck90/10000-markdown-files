@@ -76,3 +76,11 @@ Explain yourself airs.
 Have you guessed in fact.
 : That is Be what had come down important unimportant important unimportant important unimportant.
 
+
+## Wikilinks load test
+
+[[smooth-spoken git]]
+[[best-loved rabbiteye blueberry]]
+[[norse tritanopia]]
+[[lxxxiv ferrite]]
+[[edified sniper]]

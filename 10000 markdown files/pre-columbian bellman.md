@@ -84,3 +84,7 @@ We called after her
 Then it said The master
 : May it put their friends had fits my dear and holding it never could think Then you invented it means
 
+
+## Wikilinks load test
+
+[[undrinkable zimbabwean]]

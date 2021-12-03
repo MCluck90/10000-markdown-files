@@ -73,3 +73,7 @@ Leave off writing down
 Nobody moved on treacle out
 : Certainly not get any.
 
+
+## Wikilinks load test
+
+[[goody-goody shortlist]]

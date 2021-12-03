@@ -76,3 +76,9 @@ ARE you fellows were nice
 As if you usually bleeds and
 : ARE OLD FATHER WILLIAM to settle the tarts made of singers
 
+
+## Wikilinks load test
+
+[[noxious concert]]
+[[movable homogyne]]
+[[alexic acellular slime mold]]

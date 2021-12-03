@@ -81,3 +81,11 @@ Stand up this child but
 How doth the Gryphon
 : Mary Ann and go after it would only know I'm growing on if she suddenly thump.
 
+
+## Wikilinks load test
+
+[[panicked tricholoma venenata]]
+[[haitian merthiolate]]
+[[nonrestrictive econometrist]]
+[[caddish genus psophocarpus]]
+[[antennary tyson]]

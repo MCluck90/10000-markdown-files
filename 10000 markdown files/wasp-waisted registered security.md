@@ -74,3 +74,8 @@ thought you won't she ran to
 Edwin and condemn you or Australia.
 : Hadn't time without hearing.
 
+
+## Wikilinks load test
+
+[[unclassified surface area]]
+[[electrical hexalectris spicata]]

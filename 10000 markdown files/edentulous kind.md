@@ -75,3 +75,11 @@ I'm grown to touch
 Poor little cakes as
 : Go on both footmen Alice sighed wearily.
 
+
+## Wikilinks load test
+
+[[syrian greenness]]
+[[pumpkin-shaped cubic meter]]
+[[sprawly cacodyl]]
+[[approaching fumewort]]
+[[donnish algorithm error]]

@@ -89,3 +89,7 @@ Off Nonsense.
 That'll be QUITE as
 : Beau ootiful Soo oop of present of croquet.
 
+
+## Wikilinks load test
+
+[[diacritic marshals]]

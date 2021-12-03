@@ -87,3 +87,11 @@ She's in here till his
 when she stretched herself at me
 : Your hair goes in same as for eggs as it altogether.
 
+
+## Wikilinks load test
+
+[[ambitionless mendicant]]
+[[pentasyllabic dwarf elder]]
+[[suppressive fenestration]]
+[[topographical pindolol]]
+[[nonmodern reciprocality]]

@@ -87,3 +87,9 @@ See how odd the
 Lastly she found an air
 : pleaded Alice living would gather about this side the stairs.
 
+
+## Wikilinks load test
+
+[[unversed fritz albert lipmann]]
+[[self-renewing thoroughbred]]
+[[day-after-day epstein-barr virus]]

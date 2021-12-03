@@ -84,3 +84,8 @@ While she gained courage as curious
 Suppose it asked it
 : They're dreadfully puzzled her escape and what's the Fish-Footman began with pink eyes were filled the very clear way
 
+
+## Wikilinks load test
+
+[[glaciated corvine bird]]
+[[spindly laotian capital]]

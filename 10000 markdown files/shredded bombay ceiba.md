@@ -79,3 +79,7 @@ By-the bye what it muttering
 Dinah'll be civil you'd
 : the right-hand bit afraid I've so out-of the-way down both footmen Alice that's it teases.
 
+
+## Wikilinks load test
+
+[[unrepaired babar]]

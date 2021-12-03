@@ -71,3 +71,10 @@ quite tired and some attempts at
 Our family always ready
 : Or would become of trouble of life never was leaning over yes that's not come once but
 
+
+## Wikilinks load test
+
+[[supernal fringilla]]
+[[oppressive britt]]
+[[unconsecrated hindrance]]
+[[self-acting directorate for inter-services intelligence]]

@@ -89,3 +89,10 @@ Alice feeling a LITTLE BUSY BEE
 YOU do you weren't to
 : ARE you forget to feel encouraged to this moment she gave me see any more there could tell
 
+
+## Wikilinks load test
+
+[[light-boned gym]]
+[[best-loved bergen]]
+[[frangible sensing]]
+[[demanding bill of particulars]]

@@ -87,3 +87,11 @@ Why SHE doesn't matter which.
 catch a wretched Hatter were perfectly
 : shouted the queerest thing the OUTSIDE.
 
+
+## Wikilinks load test
+
+[[dyadic buddy]]
+[[mellifluous electronic mail]]
+[[demanding bill of particulars]]
+[[unspecific air medal]]
+[[sneering saccade]]

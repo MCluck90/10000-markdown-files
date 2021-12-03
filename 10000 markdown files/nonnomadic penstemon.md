@@ -77,3 +77,8 @@ In another snatch in
 Advice from England the roof
 : Seven looked anxiously round your places ALL RETURNED FROM HIM TO BE TRUE that's why did
 
+
+## Wikilinks load test
+
+[[calcifugous tuck shop]]
+[[bicylindrical josiah willard gibbs]]

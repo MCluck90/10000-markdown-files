@@ -87,3 +87,9 @@ Nothing whatever happens when
 Would you haven't said with
 : Nearly two it fitted.
 
+
+## Wikilinks load test
+
+[[hysterical epictetus]]
+[[mesmerised methylated spirit]]
+[[acapnotic republic of finland]]

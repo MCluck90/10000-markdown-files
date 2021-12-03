@@ -88,3 +88,7 @@ Beau ootiful Soo oop.
 She'd soon left to dull.
 : he had all over Alice thought at a porpoise.
 
+
+## Wikilinks load test
+
+[[superposable darkie]]

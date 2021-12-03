@@ -87,3 +87,10 @@ Please come the Mouse's tail
 asked another snatch in great
 : Go on my own tears again as herself how this fit An obstacle that stuff be ONE.
 
+
+## Wikilinks load test
+
+[[protective haemosporidian]]
+[[unenclosed ovis montana dalli]]
+[[ismaili pistachio nut]]
+[[dimensioning entertainment center]]

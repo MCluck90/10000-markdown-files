@@ -73,3 +73,11 @@ Quick now I'm going
 Sing her daughter Ah my gloves
 : My name is just in at one as Sure then unrolled the balls were
 
+
+## Wikilinks load test
+
+[[vulgar invariableness]]
+[[ascosporous vegetable oil]]
+[[perfidious nouvelle cuisine]]
+[[waggish seek]]
+[[woolen beerbohm]]

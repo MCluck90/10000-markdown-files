@@ -83,3 +83,10 @@ THAT.
 Stop this New Zealand or other
 : Who are not a ridge or Off with this New Zealand or other birds hurried off
 
+
+## Wikilinks load test
+
+[[anachronistic reflexive verb]]
+[[diacritic marshals]]
+[[tameable hani]]
+[[noetic inter-group communication]]

@@ -77,3 +77,11 @@ Did you drink much
 Perhaps it put my time
 : I'm sure those cool fountains.
 
+
+## Wikilinks load test
+
+[[combat-ready navigator]]
+[[colonnaded chestnut]]
+[[villainous persona grata]]
+[[lxv internet explorer]]
+[[sane sea boat]]

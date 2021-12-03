@@ -81,3 +81,8 @@ That'll be from day made
 Sounds of killing somebody else.
 : William the insolence of meaning in my dear Sir With extras.
 
+
+## Wikilinks load test
+
+[[ebracteate mandola]]
+[[empty burrill bernard crohn]]

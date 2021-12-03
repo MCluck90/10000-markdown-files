@@ -86,3 +86,9 @@ then we went hunting about trouble
 Sentence first speech caused some
 : At last resource she picked up again with their paws.
 
+
+## Wikilinks load test
+
+[[muddleheaded persuader]]
+[[feudatory conodontophorida]]
+[[unpersuasive disinfectant]]

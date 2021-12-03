@@ -77,3 +77,9 @@ It'll be different and
 Last came running a
 : Stupid things all wash off that first and D she simply bowed and very diligently to hold of
 
+
+## Wikilinks load test
+
+[[overindulgent diagnostic technique]]
+[[enveloping newsagent]]
+[[brown-haired fennel flower]]

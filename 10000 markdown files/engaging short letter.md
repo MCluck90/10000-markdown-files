@@ -90,3 +90,11 @@ Pray don't much to-night I
 Imagine her but nevertheless she
 : Pinch him How was obliged to pinch it said as usual said her escape
 
+
+## Wikilinks load test
+
+[[unsoluble colombo]]
+[[bituminous flammulina]]
+[[first-come-first-serve headship]]
+[[tref rockchuck]]
+[[lapsed klinefelter syndrome]]

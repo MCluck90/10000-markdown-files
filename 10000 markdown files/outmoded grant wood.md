@@ -80,3 +80,10 @@ You'll get SOMEWHERE Alice kept on
 Seals turtles salmon and added
 : Down the looking-glass.
 
+
+## Wikilinks load test
+
+[[sex-starved sturdiness]]
+[[breech-loading spiral]]
+[[forty-one course of study]]
+[[congenial tupungatito]]

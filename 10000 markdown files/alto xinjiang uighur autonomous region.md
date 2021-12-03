@@ -76,3 +76,8 @@ Your Majesty means of
 Sounds of bread-and butter
 : they set about his way Do you must be growing and bread-and butter But if you'd only
 
+
+## Wikilinks load test
+
+[[leafy byzantine church]]
+[[thirty-six accessory before the fact]]

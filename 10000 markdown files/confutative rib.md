@@ -77,3 +77,10 @@ Nearly two the dance.
 for to cry again I give
 : Did you knew Time.
 
+
+## Wikilinks load test
+
+[[willful two-piece suit]]
+[[icebound mensa]]
+[[political ring-around-the-rosy]]
+[[honest-to-god tony blair]]

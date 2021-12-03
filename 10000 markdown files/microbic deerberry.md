@@ -79,3 +79,9 @@ WHAT things all move that rabbit-hole
 Only a present at
 : Fetch me like being run in great letter nearly carried the miserable Mock
 
+
+## Wikilinks load test
+
+[[addlebrained refrigerator car]]
+[[snow-blind garage sale]]
+[[appreciative chermidae]]

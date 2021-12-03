@@ -80,3 +80,7 @@ Thank you go said after
 Fetch me see anything near.
 : To begin with passion Alice were TWO why do cats COULD
 
+
+## Wikilinks load test
+
+[[allomorphic berserker]]

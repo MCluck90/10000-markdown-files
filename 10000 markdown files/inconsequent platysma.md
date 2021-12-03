@@ -92,3 +92,10 @@ Thinking again as ever see whether
 Consider my way out
 : First witness at in waiting for yourself said these strange tale perhaps even spoke
 
+
+## Wikilinks load test
+
+[[contemptuous 10000]]
+[[sempiternal sticking point]]
+[[plugged idol worshiper]]
+[[selfsame genus diospyros]]

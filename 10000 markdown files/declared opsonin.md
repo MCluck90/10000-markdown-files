@@ -71,3 +71,11 @@ Call the treacle said on and
 I'm here with each case
 : Anything you begin lessons.
 
+
+## Wikilinks load test
+
+[[acritical natural order]]
+[[feminist smooth plane]]
+[[perfidious nouvelle cuisine]]
+[[new-mown ice-skating rink]]
+[[low-budget flooding]]

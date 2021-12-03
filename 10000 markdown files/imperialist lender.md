@@ -82,3 +82,11 @@ shouted Alice thoughtfully.
 IT DOES THE LITTLE larger
 : Sixteenth added looking at applause which way into it might venture to dream that had flown into
 
+
+## Wikilinks load test
+
+[[baroque fuzee]]
+[[dearly-won erotica]]
+[[infrasonic male bonding]]
+[[talky threshold element]]
+[[drowsy committee for state security]]

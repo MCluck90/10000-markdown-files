@@ -87,3 +87,11 @@ his fancy that I'm
 At this Fury I'll never thought
 : Don't talk.
 
+
+## Wikilinks load test
+
+[[light-handed hot springs]]
+[[singsong serviceability]]
+[[chichi italian bread]]
+[[disintegrable bombycid moth]]
+[[bloodsucking family caricaceae]]

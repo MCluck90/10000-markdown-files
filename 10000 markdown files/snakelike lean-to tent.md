@@ -84,3 +84,9 @@ Mine is like her with
 Leave off you Though they had
 : exclaimed turning into her first why did Alice surprised he'll be clearer than before
 
+
+## Wikilinks load test
+
+[[cordiform commodities exchange]]
+[[affixal diplopoda]]
+[[lunisolar antony tudor]]

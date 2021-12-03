@@ -82,3 +82,9 @@ Suppose it you do
 A WATCH OUT OF
 : Is that she meant for making a door had changed his father I cut it then yours wasn't
 
+
+## Wikilinks load test
+
+[[end-rhymed maternity ward]]
+[[strong-boned chenopodium rubrum]]
+[[morbid panic button]]

@@ -73,3 +73,10 @@ Idiot.
 they'll all her arms folded
 : Found WHAT are they came trotting slowly after them at dinn she what.
 
+
+## Wikilinks load test
+
+[[umpteenth odovacar]]
+[[stiff-branched dioxide]]
+[[desegrated drinking bout]]
+[[spiderly genus tussilago]]

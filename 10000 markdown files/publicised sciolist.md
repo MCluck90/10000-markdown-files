@@ -84,3 +84,10 @@ Don't choke him.
 you keep moving them didn't.
 : I'll eat the fun.
 
+
+## Wikilinks load test
+
+[[laggard ephestia]]
+[[exigent euphorbia exigua]]
+[[exotic sausage pizza]]
+[[cuneal firedamp]]

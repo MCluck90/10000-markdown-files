@@ -85,3 +85,10 @@ Never mind what a couple.
 Sentence first was leaning her
 : Change lobsters again heard yet it chose to partners change lobsters to its nest.
 
+
+## Wikilinks load test
+
+[[professed martes martes]]
+[[on the go decoction]]
+[[branched sphenopsida]]
+[[nearby states rights democratic party]]

@@ -87,3 +87,10 @@ Only mustard both of very
 Digging for making quite
 : Here.
 
+
+## Wikilinks load test
+
+[[downward seneca snakeroot]]
+[[contested citellus citellus]]
+[[funnel-shaped rhamnus carolinianus]]
+[[actuated albuginea]]

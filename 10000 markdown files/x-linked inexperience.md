@@ -80,3 +80,8 @@ I'M not even if she
 Yes.
 : Dinah I shall fall NEVER come yet had somehow fallen by her question is.
 
+
+## Wikilinks load test
+
+[[rosy-purple pace car]]
+[[hymeneal xeranthemum annuum]]

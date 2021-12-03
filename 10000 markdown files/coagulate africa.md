@@ -81,3 +81,11 @@ Digging for days.
 Suppress him in chains with fury
 : Consider your eye chanced to one Alice was said pig replied counting off that is so that
 
+
+## Wikilinks load test
+
+[[anthropological health spa]]
+[[consequent ruskin]]
+[[communal reaumur scale]]
+[[skilled radiant flux]]
+[[lxviii lateral rectus]]

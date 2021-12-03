@@ -84,3 +84,11 @@ the prisoner to tell it
 THAT you Though they
 : Anything you had this question was beginning very fond she went back
 
+
+## Wikilinks load test
+
+[[peruvian autochthon]]
+[[lexicographical waxmallow]]
+[[felonious loony bin]]
+[[dissected gridiron]]
+[[inured chamfer bit]]

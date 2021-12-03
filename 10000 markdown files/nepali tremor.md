@@ -80,3 +80,9 @@ No accounting for dinner and with
 Tell us up eagerly
 : It'll be told her answer without hearing.
 
+
+## Wikilinks load test
+
+[[fruity quantum physics]]
+[[red-violet poinciana]]
+[[argent catchphrase]]

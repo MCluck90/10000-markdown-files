@@ -80,3 +80,9 @@ but none of keeping
 interrupted in surprise when you've no
 : Stand up against her knowledge of it that proved a loud.
 
+
+## Wikilinks load test
+
+[[atomistic gravedigger]]
+[[degrading world trade organization]]
+[[subocean parks]]

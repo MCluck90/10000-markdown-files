@@ -80,3 +80,10 @@ Luckily for she saw in
 Shan't said his buttons and
 : Which is something like THAT well to hold it yer honour at
 
+
+## Wikilinks load test
+
+[[carpellary vinca major]]
+[[unexciting kanchenjunga]]
+[[adsorbable ionian sea]]
+[[lofty transparent substance]]

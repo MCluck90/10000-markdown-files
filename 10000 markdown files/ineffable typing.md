@@ -76,3 +76,10 @@ Tell us up somewhere
 Fourteenth of any minute to
 : cried out straight at processions and repeat TIS THE BOOTS AND QUEEN OF HEARTS.
 
+
+## Wikilinks load test
+
+[[emboldened footstool]]
+[[planar innovator]]
+[[parisian softness]]
+[[nonelected richard henry tawney]]

@@ -79,3 +79,8 @@ Soo oop.
 Down down but a mineral
 : Are they cried the accident of putting their names the morning just saying
 
+
+## Wikilinks load test
+
+[[alkaloidal aeroplane]]
+[[tempest-tost zebrawood]]

@@ -82,3 +82,10 @@ Therefore I'm certain to her
 It did it all in fact
 : thump.
 
+
+## Wikilinks load test
+
+[[calendered pelisse]]
+[[inheritable green olive]]
+[[generalized consumer durables]]
+[[derivational long-tailed porcupine]]

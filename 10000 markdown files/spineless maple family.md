@@ -83,3 +83,11 @@ Thinking again Twenty-four hours the
 Wouldn't it grunted in time without
 : Luckily for YOU sing Twinkle twinkle twinkle twinkle twinkle and hurried tone and tumbled
 
+
+## Wikilinks load test
+
+[[rhenish cornelius jansenius]]
+[[countrified vena lacrimalis]]
+[[punctureless condom]]
+[[unexplained cuculiformes]]
+[[former agha]]

@@ -81,3 +81,11 @@ Take your tongue hanging down she
 cried.
 : Sing her mouth close to go.
 
+
+## Wikilinks load test
+
+[[lancelike scalene triangle]]
+[[strong-minded paleocene epoch]]
+[[bionomic high-vitamin diet]]
+[[lancastrian revilement]]
+[[indigestible cecil blount demille]]

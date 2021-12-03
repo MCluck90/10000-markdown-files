@@ -83,3 +83,7 @@ Half-past one corner of
 Take some fun.
 : Beautiful beauti FUL SOUP.
 
+
+## Wikilinks load test
+
+[[reprehensible ware]]

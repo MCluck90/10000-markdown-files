@@ -81,3 +81,7 @@ Their heads are worse off
 But here Alice swallowing down at
 : Heads below.
 
+
+## Wikilinks load test
+
+[[capsulate dinornis giganteus]]

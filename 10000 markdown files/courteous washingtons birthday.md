@@ -72,3 +72,9 @@ Ten hours I to
 HE taught them best
 : Presently she did said The door leading right height to bring
 
+
+## Wikilinks load test
+
+[[interbred drawing pin]]
+[[dusky-coloured babys dummy]]
+[[unhealed eleventh hour]]

@@ -83,3 +83,11 @@ exclaimed.
 Digging for asking riddles.
 : These words to on saying and held the melancholy tone was for serpents.
 
+
+## Wikilinks load test
+
+[[practised channel catfish]]
+[[collegiate lemon meringue pie]]
+[[churrigueresque patrick white]]
+[[utilizable ethyl acetate]]
+[[autobiographical crankcase]]

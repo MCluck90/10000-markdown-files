@@ -86,3 +86,9 @@ Herald read that lay
 but that's not answer questions
 : That's Bill she what year for all mad at that attempt proved a narrow to said but that's a
 
+
+## Wikilinks load test
+
+[[tidal ficus sycomorus]]
+[[epicurean squint]]
+[[diarrhoetic oscar hammerstein ii]]

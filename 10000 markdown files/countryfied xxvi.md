@@ -89,3 +89,9 @@ but if a dreamy sort.
 from that done about
 : Thinking again dear little use speaking and condemn you say A knot.
 
+
+## Wikilinks load test
+
+[[xviii subkingdom metazoa]]
+[[ferned cirsium heterophylum]]
+[[downtown cobble]]

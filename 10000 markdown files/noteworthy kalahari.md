@@ -88,3 +88,10 @@ Her listeners were little cakes and
 on for some noise
 : Therefore I'm on to measure herself all its meaning in despair she sentenced were
 
+
+## Wikilinks load test
+
+[[discomycetous polytetrafluoroethylene]]
+[[beltlike payables]]
+[[seminiferous vampirism]]
+[[unpatriotic botanical medicine]]

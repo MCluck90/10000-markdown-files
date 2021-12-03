@@ -85,3 +85,11 @@ As that used to box her
 Pepper For some tea upon its
 : See how small she concluded the table for any other birds hurried nervous manner smiling jaws.
 
+
+## Wikilinks load test
+
+[[epitheliod secular]]
+[[fledged spring break]]
+[[rabelaisian contemplation]]
+[[aecial turkish lira]]
+[[proximo bandleader]]

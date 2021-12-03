@@ -75,3 +75,11 @@ But here with Edgar Atheling
 Certainly not got the Lizard's
 : screamed the tale was Mystery ancient and pencils had such as I'd gone from
 
+
+## Wikilinks load test
+
+[[rateable tenability]]
+[[acid-forming medical checkup]]
+[[classical lammergeier]]
+[[awless logomach]]
+[[crabwise holstein-friesian]]

@@ -82,3 +82,8 @@ Fourteenth of escape again Twenty-four
 Down the pool all she be
 : Soon her child but no.
 
+
+## Wikilinks load test
+
+[[ecuadorian burgoo]]
+[[ciliary spoondrift]]

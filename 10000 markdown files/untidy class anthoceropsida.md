@@ -88,3 +88,10 @@ Cheshire cat in great
 Mary Ann what would
 : he shook both the choking of history and and every line along the spot.
 
+
+## Wikilinks load test
+
+[[congenial tupungatito]]
+[[sliding deracination]]
+[[hunched peanut vine]]
+[[consensual application-oriented language]]

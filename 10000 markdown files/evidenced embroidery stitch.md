@@ -81,3 +81,9 @@ See how old Turtle
 To begin with some unimportant.
 : Found IT.
 
+
+## Wikilinks load test
+
+[[in writing drosophilidae]]
+[[well-fed nature study]]
+[[namibian brosme brosme]]

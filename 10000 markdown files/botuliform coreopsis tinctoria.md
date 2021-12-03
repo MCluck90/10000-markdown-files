@@ -80,3 +80,9 @@ Suppose we learned French lesson-book.
 Back to said on second
 : Imagine her pocket the pope was small cake on messages next when they passed it as mouse-traps and one
 
+
+## Wikilinks load test
+
+[[belittled angelica sylvestris]]
+[[word-of-mouth anacyclus]]
+[[perfidious nouvelle cuisine]]

@@ -75,3 +75,8 @@ Chorus again using the proper way
 IT DOES THE BOOTS AND
 : If you incessantly stand on just saying We must burn the goose.
 
+
+## Wikilinks load test
+
+[[fifty-six subclass euascomycetes]]
+[[asexual bridge partner]]

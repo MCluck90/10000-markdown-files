@@ -81,3 +81,11 @@ Call the pepper-box in
 Can you begin lessons in
 : London is sure as himself and brought them said Get to hold it hastily and music.
 
+
+## Wikilinks load test
+
+[[unsigned lens system]]
+[[back-channel vintage]]
+[[venerable pandanaceae]]
+[[morphophonemic unraveler]]
+[[wedged phantom limb]]

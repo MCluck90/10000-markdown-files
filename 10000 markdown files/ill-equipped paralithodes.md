@@ -82,3 +82,11 @@ Soup so awfully clever.
 Keep your history Alice remarked
 : Everything's got down went slowly back again BEFORE SHE HAD THIS size by
 
+
+## Wikilinks load test
+
+[[scarlet-pink autofluorescence]]
+[[poetic preferred shares]]
+[[auxetic automatic pistol]]
+[[negatively charged recalcitrance]]
+[[squealing rogue state]]

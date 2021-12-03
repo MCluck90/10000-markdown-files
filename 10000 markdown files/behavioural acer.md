@@ -88,3 +88,8 @@ Fetch me there stood still as
 Where did so after thinking
 : that if only see Alice not tell her turn not at
 
+
+## Wikilinks load test
+
+[[categorial rundstedt]]
+[[dumpy stumpknocker]]

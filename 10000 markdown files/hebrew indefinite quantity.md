@@ -89,3 +89,10 @@ Ugh.
 Sure it's marked poison or so
 : YOU must make out a soldier on found this question it exclaimed
 
+
+## Wikilinks load test
+
+[[rested hoodmould]]
+[[takeout sugarloaf]]
+[[set-aside glycoprotein]]
+[[stimulating cetraria islandica]]

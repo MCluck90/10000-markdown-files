@@ -76,3 +76,8 @@ roared the Gryphon interrupted
 Repeat YOU said It IS the
 : .
 
+
+## Wikilinks load test
+
+[[lung-like chivaree]]
+[[pasted genus martynia]]

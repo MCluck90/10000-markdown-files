@@ -85,3 +85,11 @@ Leave off a red-hot poker
 Stop this paper as yet
 : I'LL soon got the other ladder.
 
+
+## Wikilinks load test
+
+[[denotative plight]]
+[[boneless spurge family]]
+[[spheroidal krone]]
+[[bathyal interdiction]]
+[[shitless plasmablast]]

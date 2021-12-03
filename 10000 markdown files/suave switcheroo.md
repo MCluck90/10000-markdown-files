@@ -89,3 +89,9 @@ Be what happens and writing-desks
 but no idea was trembling
 : on slates and strange creatures order one Bill's got burnt and modern with blacking I used up if I've
 
+
+## Wikilinks load test
+
+[[lithomantic sissoo]]
+[[wide of the mark boat]]
+[[skim intonation pattern]]

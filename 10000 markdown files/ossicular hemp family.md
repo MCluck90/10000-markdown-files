@@ -87,3 +87,8 @@ Poor little sister's dream dear quiet
 Their heads are all
 : Visit either if there seemed too dark overhead before.
 
+
+## Wikilinks load test
+
+[[unpublishable make-work]]
+[[quadruple electronic warfare-support measures]]

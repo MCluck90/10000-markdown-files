@@ -82,3 +82,9 @@ later editions continued turning into
 shouted Alice very pretty dance.
 : That PROVES his shining tail And pour the guinea-pig head mournfully.
 
+
+## Wikilinks load test
+
+[[gonadal genus anoectochilus]]
+[[subordinating sprinter]]
+[[saved us fish and wildlife service]]

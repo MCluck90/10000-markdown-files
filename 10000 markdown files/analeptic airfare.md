@@ -79,3 +79,9 @@ as far said no
 Alas.
 : that makes me too small.
 
+
+## Wikilinks load test
+
+[[turbaned elymus hispidus]]
+[[small-cap petitio]]
+[[arrow-shaped family labiatae]]

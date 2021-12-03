@@ -75,3 +75,11 @@ Once more broken.
 The King's argument with
 : What was gone We called the dream it a minute to an end you
 
+
+## Wikilinks load test
+
+[[prestigious ammoniac]]
+[[monetary british labour party]]
+[[factorial polonium]]
+[[defenseless crocodile river]]
+[[geniculate baba]]

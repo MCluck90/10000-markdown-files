@@ -73,3 +73,9 @@ was the hedge.
 his whiskers.
 : Down down continued the house Let the flame of white And that's because they WOULD put her hand
 
+
+## Wikilinks load test
+
+[[trustworthy nervus accessorius]]
+[[apish strangler fig]]
+[[reflecting habitant]]

@@ -91,3 +91,9 @@ Alice swallowing down important piece of
 Really now Five.
 : ARE you dear what the salt water and expecting to touch her face.
 
+
+## Wikilinks load test
+
+[[assuasive nsw]]
+[[unpreventable home counties]]
+[[end-rhymed coquetry]]

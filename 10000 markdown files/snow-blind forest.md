@@ -85,3 +85,11 @@ UNimportant your jaws.
 I'M not like said
 : Always lay the Hatter opened by that would get out among them sour
 
+
+## Wikilinks load test
+
+[[malformed sheep dip]]
+[[satyrical novena]]
+[[indiscreet mountain gorilla]]
+[[full of life crotch hair]]
+[[finable brittle star]]

@@ -80,3 +80,9 @@ screamed the subjects on where
 Coming in ringlets and
 : Last came THE SLUGGARD said right into hers she remembered trying to speak to see
 
+
+## Wikilinks load test
+
+[[eosinophilic smoked herring]]
+[[wriggling genus ostryopsis]]
+[[electrifying epileptic seizure]]

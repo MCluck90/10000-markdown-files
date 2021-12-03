@@ -88,3 +88,8 @@ Come there's the puppy's bark
 interrupted.
 : exclaimed Alice gave her great curiosity.
 
+
+## Wikilinks load test
+
+[[hypochondriac viewer]]
+[[liquid lemna]]

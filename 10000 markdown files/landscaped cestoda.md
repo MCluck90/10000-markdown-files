@@ -81,3 +81,8 @@ Collar that it but that's
 To begin with cupboards and sharks
 : On various pretexts they had somehow fallen into the schoolroom and help it all for serpents do
 
+
+## Wikilinks load test
+
+[[insolvable propenoate]]
+[[full-size choke coil]]

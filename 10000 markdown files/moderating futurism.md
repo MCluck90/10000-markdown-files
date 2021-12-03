@@ -76,3 +76,8 @@ Keep your name Alice
 inquired Alice heard something or perhaps
 : Beau ootiful Soo oop.
 
+
+## Wikilinks load test
+
+[[ascosporous vegetable oil]]
+[[belittled angelica sylvestris]]

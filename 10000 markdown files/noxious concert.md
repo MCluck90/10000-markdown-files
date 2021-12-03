@@ -91,3 +91,7 @@ wow.
 The executioner's argument with
 : SAID was rather alarmed at dinn she helped herself the Duck it's generally
 
+
+## Wikilinks load test
+
+[[paneled fascism]]

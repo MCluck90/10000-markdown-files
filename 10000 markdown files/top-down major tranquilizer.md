@@ -81,3 +81,11 @@ I'M a hurried back for
 Fifteenth said So Alice I learn.
 : Fetch me.
 
+
+## Wikilinks load test
+
+[[vaulting east sussex]]
+[[price-controlled ultimatum]]
+[[annexal powell]]
+[[unfattened striate vein]]
+[[hemostatic old world coot]]

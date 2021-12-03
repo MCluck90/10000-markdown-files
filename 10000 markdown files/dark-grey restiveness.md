@@ -91,3 +91,11 @@ Either the night-air doesn't tell
 pleaded poor hands so
 : He won't stand beating.
 
+
+## Wikilinks load test
+
+[[iritic seismology]]
+[[occult analog computer]]
+[[epistemic brute]]
+[[graphic scet]]
+[[schoolgirlish sarcoidosis]]

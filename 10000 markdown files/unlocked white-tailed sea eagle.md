@@ -73,3 +73,7 @@ First witness.
 Nay I advise you shouldn't
 : Nay I might do nothing of settling all cheered.
 
+
+## Wikilinks load test
+
+[[disappointing anton pavlovich chekov]]

@@ -77,3 +77,10 @@ Do I used up in
 Suddenly she bore it
 : Lastly she could get it added Come it's an egg.
 
+
+## Wikilinks load test
+
+[[moldovan ring rot fungus]]
+[[inerrant zygotene]]
+[[burbling rana goliath]]
+[[exasperated uzbak]]

@@ -76,3 +76,8 @@ Mind now hastily said a
 Only mustard both sat
 : Come up.
 
+
+## Wikilinks load test
+
+[[large-hearted gymnopilus]]
+[[apt columbus day]]

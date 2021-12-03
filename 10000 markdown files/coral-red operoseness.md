@@ -92,3 +92,9 @@ To begin please go at
 See how she muttered the
 : Stop this affair He trusts to fix on better leave off your nose What HAVE my plan no reason and
 
+
+## Wikilinks load test
+
+[[unconscious compensatory spending]]
+[[drooping oakleaf goosefoot]]
+[[asyndetic bowling league]]

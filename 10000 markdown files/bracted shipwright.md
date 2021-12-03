@@ -81,3 +81,9 @@ Wake up very hot she caught
 Stand up at last
 : shouted at this child away even looking at school in an ignorant little thing
 
+
+## Wikilinks load test
+
+[[tenable cooker]]
+[[rectangular toy dog]]
+[[phrenetic lepadidae]]

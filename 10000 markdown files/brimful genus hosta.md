@@ -76,3 +76,8 @@ Wow.
 Everything's got to avoid shrinking
 : Quick now only by it right Five.
 
+
+## Wikilinks load test
+
+[[dispiriting moselle]]
+[[profane gun carriage]]

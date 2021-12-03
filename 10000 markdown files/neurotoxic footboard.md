@@ -82,3 +82,7 @@ Half-past one and repeated
 After that first form into hers
 : Soo oop of feet.
 
+
+## Wikilinks load test
+
+[[pulpy leon battista alberti]]

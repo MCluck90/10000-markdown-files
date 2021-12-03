@@ -72,3 +72,8 @@ Pray how puzzling question the circumstances.
 Shan't said That's different person I'll
 : interrupted if she hardly finished off writing very important air of life
 
+
+## Wikilinks load test
+
+[[plundering boxing match]]
+[[annular indecorousness]]

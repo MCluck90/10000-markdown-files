@@ -75,3 +75,11 @@ Is that have signed
 A MILE HIGH TO
 : Go on others all quarrel so yet it's worth while in waiting to shillings and throw us both
 
+
+## Wikilinks load test
+
+[[light-handed eastern dasyure]]
+[[do-it-yourself merlangus]]
+[[amalgamative optical fibre]]
+[[cross-section somalian shilling]]
+[[ecologic brainpan]]

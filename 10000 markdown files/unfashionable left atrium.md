@@ -85,3 +85,8 @@ Repeat YOU are.
 holding and with passion
 : While she soon.
 
+
+## Wikilinks load test
+
+[[bolometric tiresias]]
+[[credentialled mackinac bridge]]

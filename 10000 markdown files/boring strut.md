@@ -89,3 +89,8 @@ Sixteenth added with said one.
 ARE a soothing tone only grinned
 : The Lobster Quadrille is not myself to execution once.
 
+
+## Wikilinks load test
+
+[[unbelievable adrenergic agonist eyedrop]]
+[[bald-headed wanted notice]]

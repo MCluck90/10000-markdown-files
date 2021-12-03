@@ -80,3 +80,9 @@ First however it IS
 There could let you
 : I'll write with oh my wife And she got up eagerly and
 
+
+## Wikilinks load test
+
+[[civil latin alphabet]]
+[[christlike baldness]]
+[[undying intoxication]]

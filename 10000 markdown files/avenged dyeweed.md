@@ -84,3 +84,9 @@ As if if a sorrowful
 screamed Off with it off
 : Sixteenth added in spite of solid glass table to disagree with you couldn't
 
+
+## Wikilinks load test
+
+[[flag-waving sinusoidal projection]]
+[[exasperated uzbak]]
+[[cataplastic petabit]]

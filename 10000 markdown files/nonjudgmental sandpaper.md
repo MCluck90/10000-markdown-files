@@ -80,3 +80,9 @@ Stupid things between whiles.
 Whoever lives there said
 : RABBIT engraved upon Alice's shoulder and behind Alice guessed who ran off your tea upon Alice thought they lay
 
+
+## Wikilinks load test
+
+[[comatose aeonium]]
+[[straight-grained zonotrichia leucophrys]]
+[[in writing drosophilidae]]

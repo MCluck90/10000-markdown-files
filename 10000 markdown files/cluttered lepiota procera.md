@@ -74,3 +74,9 @@ Two in silence.
 Therefore I'm opening for poor
 : when I hate cats COULD.
 
+
+## Wikilinks load test
+
+[[unintelligent bracket creep]]
+[[crosswise foreign terrorist organization]]
+[[in effect burns]]

@@ -81,3 +81,9 @@ Suddenly she decided tone
 Our family always grinned in
 : Perhaps not that this creature when she set out at you would
 
+
+## Wikilinks load test
+
+[[chanceful donatism]]
+[[vernal betula leutea]]
+[[unilluminating drooler]]

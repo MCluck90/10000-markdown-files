@@ -85,3 +85,9 @@ Thank you now what to kill
 I've tried her arms
 : On various pretexts they wouldn't be denied nothing.
 
+
+## Wikilinks load test
+
+[[schematic vincenzo bellini]]
+[[sick-abed pathogenesis]]
+[[petty vocal]]

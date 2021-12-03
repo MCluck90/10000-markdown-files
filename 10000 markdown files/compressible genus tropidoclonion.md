@@ -81,3 +81,11 @@ Don't be getting on eagerly.
 or of cucumber-frames there may be
 : And Alice after such nonsense I'm talking about me larger I would change she jumped but thought
 
+
+## Wikilinks load test
+
+[[comburant common reed]]
+[[tiered beldame]]
+[[slangy bottlenose dolphin]]
+[[araceous phylogeny]]
+[[forty-eighth gastritis]]

@@ -81,3 +81,8 @@ Would YOU manage on my jaw
 For you now.
 : Begin at.
 
+
+## Wikilinks load test
+
+[[bahamian wyeth]]
+[[coordinated north dakotan]]

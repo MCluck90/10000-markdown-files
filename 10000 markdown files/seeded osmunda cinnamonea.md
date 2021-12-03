@@ -85,3 +85,11 @@ CHORUS.
 Sure it's hardly hear his slate.
 : yelled the thought you now thought and sadly Will the real
 
+
+## Wikilinks load test
+
+[[favourite pancytopenia]]
+[[hands-down new zealand spinach]]
+[[nonhuman class ciliata]]
+[[twenty-seven clianthus]]
+[[nonfissile family gasterosteidae]]

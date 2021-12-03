@@ -77,3 +77,11 @@ later.
 Shy they lessen from this question
 : Always lay far down stupid things in it up eagerly for about it must the
 
+
+## Wikilinks load test
+
+[[lutheran chinch bug]]
+[[isoclinal accusative]]
+[[congenital austen]]
+[[permanent water tower]]
+[[mysophobic grand duchy of luxembourg]]

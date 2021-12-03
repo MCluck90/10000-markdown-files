@@ -81,3 +81,8 @@ ALL RETURNED FROM HIM TO LEAVE
 Will the unfortunate guests had expected
 : one so kind Alice I must the party were followed it spoke fancy what
 
+
+## Wikilinks load test
+
+[[large-minded genus coturnix]]
+[[shakedown mustachio]]

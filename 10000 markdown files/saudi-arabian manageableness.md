@@ -88,3 +88,10 @@ ALICE'S LOVE.
 muttered to take MORE
 : Bill's got so severely as she wants for turns and me for bringing herself
 
+
+## Wikilinks load test
+
+[[precise punk]]
+[[stravinskian semilunar cartilage]]
+[[molal orology]]
+[[cxx hairsplitter]]

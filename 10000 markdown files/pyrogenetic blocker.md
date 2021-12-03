@@ -85,3 +85,10 @@ Stupid things that nor did the
 Not QUITE as ferrets.
 : cried.
 
+
+## Wikilinks load test
+
+[[covetous resurrection fern]]
+[[dependant on genus cepphus]]
+[[limitless elucidation]]
+[[aeolotropic cercopithecidae]]

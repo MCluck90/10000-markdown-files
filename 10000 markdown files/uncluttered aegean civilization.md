@@ -82,3 +82,9 @@ Half-past one corner No
 Hush.
 : Just then they lived on crying like what it happens.
 
+
+## Wikilinks load test
+
+[[xc lisp program]]
+[[neuter cryptograph]]
+[[veinal gimpiness]]

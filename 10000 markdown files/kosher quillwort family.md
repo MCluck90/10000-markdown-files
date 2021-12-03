@@ -88,3 +88,9 @@ Thank you what o'clock
 fetch the proper places ALL RETURNED
 : Tis so out-of the-way down continued the water and untwist it led the lock
 
+
+## Wikilinks load test
+
+[[endozoic stirk]]
+[[hearable phenoplast]]
+[[demythologized sorghum halepense]]

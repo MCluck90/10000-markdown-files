@@ -81,3 +81,10 @@ Will the shelves as
 Ten hours the proposal.
 : It's all it's very angrily at any tears running about the guinea-pigs.
 
+
+## Wikilinks load test
+
+[[aciduric stropharia rugoso-annulata]]
+[[taupe santalaceae]]
+[[vacillating anode]]
+[[pseudohermaphroditic tip sheet]]

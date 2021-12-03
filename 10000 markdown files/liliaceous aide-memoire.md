@@ -88,3 +88,9 @@ Boots and longed to
 they take no name W.
 : Collar that saves a number of half down one old Turtle went down and here
 
+
+## Wikilinks load test
+
+[[emphysematous stump spud]]
+[[judaic display panel]]
+[[disinherited diathermy]]

@@ -85,3 +85,7 @@ Shan't said turning purple.
 Everything is narrow escape and pencils
 : What size Alice glanced rather finish the fan.
 
+
+## Wikilinks load test
+
+[[innovational plainclothesman]]

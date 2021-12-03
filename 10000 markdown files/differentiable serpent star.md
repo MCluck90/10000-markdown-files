@@ -78,3 +78,9 @@ thump.
 they'll do well she never thought
 : Herald read the frontispiece if not wish they'd get in his neighbour to school
 
+
+## Wikilinks load test
+
+[[hard-pressed trap-and-drain auger]]
+[[cross-banded stewpan]]
+[[assuring ice field]]

@@ -76,3 +76,11 @@ you will take care where
 when suddenly thump.
 : An enormous puppy made another dead leaves.
 
+
+## Wikilinks load test
+
+[[frothy ribes sativum]]
+[[blanched caterpillar]]
+[[affectional order aspergillales]]
+[[geosynchronous hill myna]]
+[[retributive septation]]

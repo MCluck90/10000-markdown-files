@@ -77,3 +77,10 @@ However jury-men would NOT
 Why you come back
 : Shall I should be beheaded.
 
+
+## Wikilinks load test
+
+[[eldest electronic device]]
+[[individualistic product research]]
+[[unnatural high-level radioactive waste]]
+[[oiled growth-onset diabetes]]

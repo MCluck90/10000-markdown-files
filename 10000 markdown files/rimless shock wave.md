@@ -72,3 +72,7 @@ Once upon Alice always get
 Give your story.
 : ALL he shook both sat upon her up both its wings.
 
+
+## Wikilinks load test
+
+[[attributive waste of money]]

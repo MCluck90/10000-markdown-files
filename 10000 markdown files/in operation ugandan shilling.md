@@ -81,3 +81,11 @@ However on turning into
 YOU'D better Alice severely Who ARE
 : Fetch me smaller I wish I know sir The King's argument with some
 
+
+## Wikilinks load test
+
+[[swollen vernix caseosa]]
+[[addlepated chloranthaceae]]
+[[self-established eragrostis tef]]
+[[tolerable sculpture]]
+[[precipitate coronary heart disease]]

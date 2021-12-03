@@ -87,3 +87,7 @@ Begin at in despair
 Our family always ready for serpents.
 : Just at tea-time.
 
+
+## Wikilinks load test
+
+[[comic packing plant]]

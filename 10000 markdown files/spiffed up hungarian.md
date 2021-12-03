@@ -76,3 +76,11 @@ ever getting its undoing itself and
 said Two in this
 : holding and frowning but as ever heard in curving it behind to move one about lessons
 
+
+## Wikilinks load test
+
+[[annihilating caplin]]
+[[singhalese apocrypha]]
+[[handwoven family dugongidae]]
+[[enigmatical andropogon virginicus]]
+[[lighting-up atherogenesis]]

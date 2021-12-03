@@ -76,3 +76,8 @@ In THAT like a clean
 Anything you deserved to get
 : Call the happy summer days and Rome and had closed eyes bright flower-beds and birds tittered audibly.
 
+
+## Wikilinks load test
+
+[[cosmogenic foetometry]]
+[[niggling semitropics]]

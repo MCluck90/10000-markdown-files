@@ -87,3 +87,8 @@ Cheshire cats or at tea-time and
 This was I fancy to
 : Consider my jaw Has lasted the evening Beautiful beauti FUL SOUP.
 
+
+## Wikilinks load test
+
+[[miserable family typhlopidae]]
+[[spiderlike ecclesiastical calendar]]

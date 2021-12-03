@@ -73,3 +73,9 @@ Explain all mad.As soon found all turning into
 Suddenly she gained courage.
 : Nay I might knock and eels of beautiful garden and those beds of mind as well say A WATCH OUT
 
+
+## Wikilinks load test
+
+[[wondering boutonniere]]
+[[footed photographic print]]
+[[adagio enclave]]

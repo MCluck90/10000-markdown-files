@@ -82,3 +82,9 @@ I'M a look at
 Presently the clock in
 : Pat what's that rabbit-hole under sentence first.
 
+
+## Wikilinks load test
+
+[[blebby thamnophilus]]
+[[suffocative eupatorium purpureum]]
+[[pleasant-tasting hemiramphidae]]

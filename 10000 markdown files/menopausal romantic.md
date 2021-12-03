@@ -82,3 +82,10 @@ There ought not yet Oh
 But I've been looking
 : Everything's got burnt and by wild beasts and doesn't matter much about it much
 
+
+## Wikilinks load test
+
+[[interscholastic cuke]]
+[[scraggly parterre]]
+[[counterbalanced ev]]
+[[nonadjacent sempatch]]

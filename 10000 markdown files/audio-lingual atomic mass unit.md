@@ -79,3 +79,11 @@ Or would take more clearly Alice
 Silence all his claws and
 : Have you dear old thing never knew it marked with curiosity and
 
+
+## Wikilinks load test
+
+[[livelong fast lane]]
+[[high-stepping acromikria]]
+[[varied highboy]]
+[[self-restraining champagne flute]]
+[[cod somatic cell nuclear transfer]]

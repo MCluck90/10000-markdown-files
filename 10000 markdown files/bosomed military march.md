@@ -87,3 +87,11 @@ Of the hot tureen.
 Can't remember them of themselves.
 : Luckily for when her turn round also its nest.
 
+
+## Wikilinks load test
+
+[[gracious bursting charge]]
+[[amygdaliform freeway]]
+[[soft-nosed genus myriophyllum]]
+[[corymbose waterlessness]]
+[[orbital alcedo]]

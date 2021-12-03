@@ -79,3 +79,7 @@ Imagine her became alive
 Wake up but they came THE
 : ALICE'S LOVE.
 
+
+## Wikilinks load test
+
+[[vestmental cruciferous vegetable]]

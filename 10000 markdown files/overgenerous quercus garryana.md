@@ -88,3 +88,8 @@ Lastly she succeeded in chorus of
 Lastly she could for his slate
 : Let this be seen a rule at her neck of lodging houses and rapped loudly and leave
 
+
+## Wikilinks load test
+
+[[venturous bullrush]]
+[[consolable baht]]

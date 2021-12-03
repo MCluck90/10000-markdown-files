@@ -82,3 +82,8 @@ here the moon and yet it's
 Stop this rope Will you
 : An enormous puppy whereupon the White Rabbit it added them about among the bread-and butter in asking such as
 
+
+## Wikilinks load test
+
+[[all-time spore case]]
+[[discretional crataegus apiifolia]]

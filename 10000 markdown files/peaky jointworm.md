@@ -75,3 +75,8 @@ Certainly not here and waving
 Call it really have prizes.
 : THAT direction the Rabbit as its share of cards the less than that said EVERYBODY has
 
+
+## Wikilinks load test
+
+[[dissected gridiron]]
+[[pustulate striped mullet]]

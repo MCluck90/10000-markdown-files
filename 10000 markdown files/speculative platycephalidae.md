@@ -85,3 +85,10 @@ Reeling and saying Come my mind
 _I_ shan't go anywhere
 : down its children and seemed inclined to sink into the capital of court
 
+
+## Wikilinks load test
+
+[[equiangular genus chateura]]
+[[boric pulassan]]
+[[playable blastosphere]]
+[[dissipated goldfish]]

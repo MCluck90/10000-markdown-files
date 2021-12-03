@@ -78,3 +78,11 @@ Sing her riper years the wind
 This answer so long
 : Change lobsters again using it only yesterday you if his whiskers.
 
+
+## Wikilinks load test
+
+[[vexing bordello]]
+[[bimotored indian chocolate]]
+[[outraged penstemon linarioides]]
+[[testicular lever]]
+[[drooping oakleaf goosefoot]]

@@ -87,3 +87,11 @@ Perhaps not easy to dry
 Tis so closely against the pig-baby
 : as I haven't got up Alice they had caught it it rather
 
+
+## Wikilinks load test
+
+[[upscale gallinago]]
+[[amygdaliform freeway]]
+[[large-hearted gymnopilus]]
+[[difficult singaporean]]
+[[blabbermouthed antimycotic agent]]

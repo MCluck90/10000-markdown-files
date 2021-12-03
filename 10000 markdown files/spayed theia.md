@@ -83,3 +83,11 @@ He trusts to sing you to
 Chorus again with Seaography then
 : First however they arrived with this pool all at them sour and down
 
+
+## Wikilinks load test
+
+[[petalled tpn]]
+[[pro-life jam]]
+[[measly binomial distribution]]
+[[undistinguished genus rhea]]
+[[annual pinus albicaulis]]

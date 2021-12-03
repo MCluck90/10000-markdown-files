@@ -80,3 +80,8 @@ later.
 thought at.
 : A bright brass plate.
 
+
+## Wikilinks load test
+
+[[lunate bad block]]
+[[pleurocarpous scottish lowlander]]

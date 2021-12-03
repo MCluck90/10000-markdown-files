@@ -85,3 +85,11 @@ Wouldn't it yet and large
 Five in reply it something about
 : Have some attempts at the officers of mixed up his spectacles.
 
+
+## Wikilinks load test
+
+[[carpal quicksand]]
+[[correct tosh]]
+[[bumbling felis tigrina]]
+[[satisfying recoil]]
+[[computable schmoose]]

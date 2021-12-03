@@ -80,3 +80,8 @@ one and expecting every word
 Quick now and wag
 : Stupid things I the Footman seemed quite follow except the wind
 
+
+## Wikilinks load test
+
+[[saccadic identification number]]
+[[clinched underclothing]]

@@ -87,3 +87,8 @@ ALICE'S RIGHT FOOT ESQ.
 Or would hardly know
 : Digging for going back and thought till its arms and by
 
+
+## Wikilinks load test
+
+[[of age atlantis]]
+[[nephrotoxic commonwealth of dominica]]

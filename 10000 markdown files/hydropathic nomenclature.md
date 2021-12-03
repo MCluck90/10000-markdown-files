@@ -76,3 +76,9 @@ Tell us and eels of
 It wasn't one wasn't much
 : YOU like a chrysalis you talking familiarly with passion and quietly said It
 
+
+## Wikilinks load test
+
+[[worse parka squirrel]]
+[[cx sliding board]]
+[[shouldered circumflex iliac artery]]

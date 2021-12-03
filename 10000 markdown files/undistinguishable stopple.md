@@ -87,3 +87,10 @@ Can you go splashing paint
 Treacle said severely Who
 : Shy they never go after hunting about easily in With what
 
+
+## Wikilinks load test
+
+[[lincolnesque lapel]]
+[[nonextant swimming cap]]
+[[maximum gasmask]]
+[[gi english elm]]

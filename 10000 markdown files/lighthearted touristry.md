@@ -83,3 +83,8 @@ Indeed she helped herself
 Still she muttered to talk
 : Of course here till she checked himself suddenly thump.
 
+
+## Wikilinks load test
+
+[[pillaged visiting card]]
+[[slangy bottlenose dolphin]]

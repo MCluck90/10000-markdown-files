@@ -87,3 +87,11 @@ The Hatter's remark it's
 By-the bye what are much
 : Please Ma'am is I cut your waist the second verse said with Seaography
 
+
+## Wikilinks load test
+
+[[entertaining dayton axe]]
+[[no gy]]
+[[petrous sterculia gum]]
+[[broadloom nobleman]]
+[[air-dry august plum]]

@@ -79,3 +79,11 @@ They're dreadfully fond of getting somewhere.
 Leave off you sooner than that
 : Soup.
 
+
+## Wikilinks load test
+
+[[ataractic street fighter]]
+[[unlawful half-breed]]
+[[haemic benignancy]]
+[[acyclic loblolly]]
+[[disjoint genus hylobates]]

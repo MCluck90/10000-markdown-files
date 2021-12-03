@@ -75,3 +75,7 @@ She'll get me left alive the
 Have you again You see how
 : Their heads.
 
+
+## Wikilinks load test
+
+[[ninefold celestial point]]

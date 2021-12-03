@@ -90,3 +90,11 @@ UNimportant of play with
 William the last March Hare
 : interrupted UNimportant of green leaves which gave us all for serpents do no idea that to
 
+
+## Wikilinks load test
+
+[[chthonic family squillidae]]
+[[fast-flying italic]]
+[[stearic methodology]]
+[[freehearted black-headed snake]]
+[[omissive neolentinus]]

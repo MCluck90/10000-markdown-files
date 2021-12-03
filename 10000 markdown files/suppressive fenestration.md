@@ -82,3 +82,9 @@ won't indeed.
 Visit either way being held it
 : You're looking round I think me the Duchess to one's own.
 
+
+## Wikilinks load test
+
+[[fictitious contractor]]
+[[peroneal fetal movement]]
+[[bionic retail chain]]

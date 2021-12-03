@@ -82,3 +82,8 @@ Sure I may not appear
 Heads below.
 : said a sky-rocket.
 
+
+## Wikilinks load test
+
+[[graceless takeoff booster]]
+[[evidenced embroidery stitch]]

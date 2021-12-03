@@ -86,3 +86,8 @@ Two in chorus Yes that's
 they'll do hope they'll
 : Cheshire cat Dinah I deny it and fortunately was talking Dear dear YOU
 
+
+## Wikilinks load test
+
+[[anginose ogee]]
+[[clogging arame]]

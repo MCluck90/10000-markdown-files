@@ -78,3 +78,11 @@ Two lines.
 Down down all its
 : For he wore his heart would manage on my shoulders.
 
+
+## Wikilinks load test
+
+[[maladjusted financial obligation]]
+[[incident stereotype]]
+[[greenish hepatitis b]]
+[[stooping chess match]]
+[[patent dionysius]]

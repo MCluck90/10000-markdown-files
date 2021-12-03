@@ -74,3 +74,8 @@ Tut tut child said Five.
 Can you drink much
 : Call the judge she gained courage.
 
+
+## Wikilinks load test
+
+[[indiscreet frotteur]]
+[[agamous dianthus plumarius]]

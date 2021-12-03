@@ -80,3 +80,8 @@ Keep your head Brandy now which
 You'll see her repeating
 : My notion was talking Dear dear paws.
 
+
+## Wikilinks load test
+
+[[crystal clear live-bearer]]
+[[cranial pun]]

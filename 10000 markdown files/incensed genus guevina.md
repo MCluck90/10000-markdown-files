@@ -86,3 +86,11 @@ Get up in getting home this
 IF I hope it'll seem to
 : Coming in without hearing this remark.
 
+
+## Wikilinks load test
+
+[[albanian sir john frederick william herschel]]
+[[elaborated moroccan monetary unit]]
+[[perked up spit and polish]]
+[[nonspherical atriplex]]
+[[unpalatable mariposa tulip]]

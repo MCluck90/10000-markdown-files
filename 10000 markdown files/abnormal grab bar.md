@@ -80,3 +80,8 @@ The twinkling.
 Read them all she
 : Two days.
 
+
+## Wikilinks load test
+
+[[furthermost antechamber]]
+[[ci negroid]]

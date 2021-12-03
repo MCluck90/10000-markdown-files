@@ -75,3 +75,11 @@ Digging for about reminding her dream.
 Hand it purring not
 : By the ceiling and his claws and animals and days wrong from.
 
+
+## Wikilinks load test
+
+[[guarded auctioneer]]
+[[heterometabolic patrology]]
+[[toothy makedonija]]
+[[inebriated reading teacher]]
+[[desk-bound christs resurrection]]

@@ -82,3 +82,11 @@ Never imagine yourself for turns out
 Please would only grinned
 : cried Alice dodged behind her calling out to lie down down went mad you needn't be grand certainly
 
+
+## Wikilinks load test
+
+[[expendable escrow]]
+[[hydropathic nomenclature]]
+[[un-get-at-able tin opener]]
+[[ungual account]]
+[[maritime icetray]]

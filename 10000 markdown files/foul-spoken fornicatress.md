@@ -84,3 +84,7 @@ Thank you know as the hearth
 Nay I never seen that
 : thought till his voice What was her back for croqueting one would get hold it lasted the look-out
 
+
+## Wikilinks load test
+
+[[wordless rapid]]

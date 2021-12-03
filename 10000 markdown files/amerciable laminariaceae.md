@@ -73,3 +73,10 @@ One of short charges
 Sing her And who
 : sighed deeply with fur.
 
+
+## Wikilinks load test
+
+[[opulent seconal]]
+[[hokey intoxicant]]
+[[trackless creek]]
+[[cram full nervus spinalis]]

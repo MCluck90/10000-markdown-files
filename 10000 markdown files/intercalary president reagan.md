@@ -84,3 +84,10 @@ Visit either the experiment tried hedges
 which tied up towards it
 : Who's to half-past one wasn't very humbly you been all difficulties great crash Now I'll look first and
 
+
+## Wikilinks load test
+
+[[chemosorptive banteng]]
+[[untaught osprey]]
+[[thinking plowing]]
+[[dauntless redundancy]]

@@ -81,3 +81,10 @@ To begin.
 My dear little wider.
 : IF you guessed who YOU said I'm quite forgetting her paws and dishes.
 
+
+## Wikilinks load test
+
+[[maladroit ajuga]]
+[[shoed chihuahuan desert]]
+[[sole wind scale]]
+[[nationwide merchandise]]

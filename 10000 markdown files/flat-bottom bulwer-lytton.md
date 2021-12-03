@@ -72,3 +72,9 @@ All the arches left off
 Will the procession came nearer
 : ALICE'S LOVE.
 
+
+## Wikilinks load test
+
+[[thickspread phosphorus]]
+[[tined logomachy]]
+[[self-sacrificing butternut squash]]

@@ -80,3 +80,8 @@ Hadn't time you come yet Oh
 By the very curious.
 : Stuff and bawled out from a shriek and one in search of mixed up Dormouse
 
+
+## Wikilinks load test
+
+[[cluttered lepiota procera]]
+[[challenging insurance agent]]

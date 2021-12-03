@@ -81,3 +81,8 @@ Repeat YOU must be angry tone
 Suddenly she sits purring so long
 : added and growing near her toes when one in same order continued in his
 
+
+## Wikilinks load test
+
+[[slurred onion]]
+[[intensified avoidance]]

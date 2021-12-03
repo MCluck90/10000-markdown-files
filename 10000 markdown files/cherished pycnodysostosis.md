@@ -85,3 +85,7 @@ either the flame of
 Of the edge with
 : Prizes.
 
+
+## Wikilinks load test
+
+[[rose-cheeked dowsing]]

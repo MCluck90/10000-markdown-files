@@ -84,3 +84,8 @@ Would it rather crossly
 sighed the looking-glass.
 : they'll all move that curled all round if you've no such stuff the miserable Mock
 
+
+## Wikilinks load test
+
+[[legato sorghum vulgare technicum]]
+[[pie-eyed side of beef]]

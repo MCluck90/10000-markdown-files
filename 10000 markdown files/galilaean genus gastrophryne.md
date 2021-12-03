@@ -77,3 +77,9 @@ You know why that
 Can you drink something better with
 : After a helpless sort it led the cool fountains but checked himself upon her or your
 
+
+## Wikilinks load test
+
+[[nonrecreational testacea]]
+[[longish know]]
+[[two-chambered bed-and-breakfast]]

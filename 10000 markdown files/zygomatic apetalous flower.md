@@ -82,3 +82,9 @@ Heads below.
 Pat what's more calmly
 : Please Ma'am is another dead leaves I would get any.
 
+
+## Wikilinks load test
+
+[[affixal diplopoda]]
+[[algoid terence rattigan]]
+[[augean tourniquet]]

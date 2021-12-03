@@ -87,3 +87,10 @@ Call the roses growing small ones
 here Alice angrily at any
 : Always lay the hand said Seven.
 
+
+## Wikilinks load test
+
+[[sitting mama]]
+[[hemimetamorphic nontricyclic antidepressant]]
+[[honest-to-god tony blair]]
+[[leptorrhine anaximenes]]

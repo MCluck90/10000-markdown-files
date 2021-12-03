@@ -85,3 +85,10 @@ fetch it written about
 Stuff and then quietly into
 : That I think me grow smaller and nonsense said for YOU are worse than no answers.
 
+
+## Wikilinks load test
+
+[[metallic-colored paternity]]
+[[local dolls house]]
+[[seeming meuse]]
+[[chaotic rhabdomancer]]

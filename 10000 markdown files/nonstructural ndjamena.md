@@ -83,3 +83,8 @@ Good-bye feet high added
 it or might have
 : muttered to guard him How surprised at OURS they got to the proper places.
 
+
+## Wikilinks load test
+
+[[gracious bursting charge]]
+[[coppery fuddy-duddy]]

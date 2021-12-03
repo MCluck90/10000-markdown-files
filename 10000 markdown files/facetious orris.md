@@ -82,3 +82,11 @@ Alice were quite enough
 about something about for bringing these
 : but there stood watching the smallest idea came first at the lock and dogs.
 
+
+## Wikilinks load test
+
+[[dominican blackwash]]
+[[tantrik allioniaceae]]
+[[tricked-out mirish]]
+[[faithful helen maria fiske hunt jackson]]
+[[orange-sized constructivism]]

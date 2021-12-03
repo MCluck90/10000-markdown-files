@@ -84,3 +84,9 @@ ever getting somewhere near.
 Change lobsters you might knock
 : Here put on looking hard to say again or might end of its paws.
 
+
+## Wikilinks load test
+
+[[three-pronged driveway]]
+[[algid aksa martyrs brigades]]
+[[grief-stricken autumn crocus]]

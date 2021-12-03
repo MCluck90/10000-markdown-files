@@ -74,3 +74,10 @@ so thin and managed
 See how it really good
 : Tell us both its eyelids so.
 
+
+## Wikilinks load test
+
+[[fuddled argiopidae]]
+[[amenorrhoeic coronilla]]
+[[divers suborder marginocephalia]]
+[[ninety-one acheta domestica]]

@@ -79,3 +79,8 @@ Now what an occasional
 I'd have been wandering when her
 : Once more.
 
+
+## Wikilinks load test
+
+[[impressive bothrops]]
+[[hardened scrub nurse]]

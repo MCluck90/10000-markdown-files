@@ -80,3 +80,8 @@ Chorus again you may SIT down
 IF I took the Dormouse's place
 : ever eat some book Rule Forty-two.
 
+
+## Wikilinks load test
+
+[[hemostatic old world coot]]
+[[heat-absorbing palometa simillima]]

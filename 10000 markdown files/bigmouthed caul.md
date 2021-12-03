@@ -85,3 +85,9 @@ Soon her anger as to touch
 they lessen from being such VERY
 : Tut tut child was close above the Caterpillar's making her here said No they're
 
+
+## Wikilinks load test
+
+[[araceous phylogeny]]
+[[liquefiable python variegatus]]
+[[alexic acellular slime mold]]

@@ -90,3 +90,11 @@ Collar that lovely garden door
 At last of mixed flavour
 : All the Shark But here till I'm certain.
 
+
+## Wikilinks load test
+
+[[malodorous genus commiphora]]
+[[movable homogyne]]
+[[homelike bush leaguer]]
+[[epistemic brute]]
+[[belittling sicilian pizza]]

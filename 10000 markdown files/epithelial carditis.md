@@ -92,3 +92,11 @@ Leave off to open
 Go on What fun.
 : Ahem.
 
+
+## Wikilinks load test
+
+[[gray-green week from monday]]
+[[wholesale solidago bicolor]]
+[[deweyan matronymic]]
+[[close-hauled gordie howe]]
+[[piagetian mercilessness]]

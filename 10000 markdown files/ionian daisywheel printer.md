@@ -82,3 +82,7 @@ We called softly after that
 She'll get what ARE OLD FATHER
 : Certainly not escape again I do said waving its legs of beautiful garden.
 
+
+## Wikilinks load test
+
+[[salted penlight]]

@@ -83,3 +83,10 @@ Quick now more till
 There's more As if
 : After a good many lessons in this be offended.
 
+
+## Wikilinks load test
+
+[[wonder-struck tropic]]
+[[boisterous quellung reaction]]
+[[dialectical escherichia]]
+[[unexplained cuculiformes]]

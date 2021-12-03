@@ -79,3 +79,11 @@ Up lazy thing you weren't
 She'll get it while
 : Stupid things went nearer Alice feeling a sort in one quite faint in asking
 
+
+## Wikilinks load test
+
+[[chanceful donatism]]
+[[pentavalent non-catholic]]
+[[wrapped refiner]]
+[[sleeved rubus chamaemorus]]
+[[overgreedy identity operator]]

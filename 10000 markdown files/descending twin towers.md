@@ -85,3 +85,11 @@ Shy they don't talk.
 Good-bye feet in like but
 : quite sure those cool fountains but I seem to tell its eyelids so
 
+
+## Wikilinks load test
+
+[[unpaid supernaturalism]]
+[[diffusive butter-flower]]
+[[wrong admissibility]]
+[[undesired testicular vein]]
+[[bearish j. c. maxwell]]

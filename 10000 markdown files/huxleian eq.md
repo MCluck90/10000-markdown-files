@@ -80,3 +80,9 @@ She's in confusion that
 She's in Coils.
 : However it old fellow.
 
+
+## Wikilinks load test
+
+[[wrinkled riding]]
+[[ferric mammon]]
+[[light-boned gym]]

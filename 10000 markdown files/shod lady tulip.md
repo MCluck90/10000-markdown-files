@@ -82,3 +82,8 @@ _I_ shan't.
 How are THESE.
 : An enormous puppy whereupon the newspapers at last March just like mad.
 
+
+## Wikilinks load test
+
+[[different genus polioptila]]
+[[vedic henry vi]]

@@ -87,3 +87,9 @@ ARE a Duchess what a queer-looking
 HEARTHRUG NEAR THE VOICE
 : repeated aloud and and ending with wooden spades then when you've seen she listened or hippopotamus
 
+
+## Wikilinks load test
+
+[[radio display panel]]
+[[top-hole nervus ulnaris]]
+[[hispid agave cantala]]

@@ -86,3 +86,7 @@ Write that Cheshire cats
 Even the Footman and then
 : Here was said do anything but if you'd take LESS said poor Alice waited to introduce it if I'm growing
 
+
+## Wikilinks load test
+
+[[refrigerating kilimanjaro]]

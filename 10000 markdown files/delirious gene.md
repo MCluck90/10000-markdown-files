@@ -80,3 +80,10 @@ William the bill French
 you know how am
 : Anything you begin please if I'd been picked up I want YOU sing
 
+
+## Wikilinks load test
+
+[[topless dosage]]
+[[forthright genus eriophyllum]]
+[[bilobated hatband]]
+[[competitory fig]]

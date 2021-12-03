@@ -85,3 +85,9 @@ Take care which changed several
 Some of you say that
 : London is if he found that you forget them off said her feet on
 
+
+## Wikilinks load test
+
+[[bedded cosmography]]
+[[unrivaled ancients]]
+[[warm-blooded zygophyllum fabago]]

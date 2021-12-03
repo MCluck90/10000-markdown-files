@@ -83,3 +83,10 @@ We won't interrupt again
 There's more simply Never mind about
 : CHORUS.
 
+
+## Wikilinks load test
+
+[[rifled raffaello sanzio]]
+[[pitiable cicatrix]]
+[[inexhaustible quartz battery]]
+[[pancake-style stock-in-trade]]

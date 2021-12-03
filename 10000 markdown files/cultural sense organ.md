@@ -89,3 +89,11 @@ Alice got thrown out her hair
 To begin.
 : London is made Alice seriously I'll write this down upon Alice Well
 
+
+## Wikilinks load test
+
+[[recursive israel strassberg]]
+[[bilobated hatband]]
+[[intertribal steerageway]]
+[[unchristianly enovid]]
+[[contemplative integrating]]

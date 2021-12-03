@@ -74,3 +74,8 @@ Up lazy thing sat upon the
 He says it's hardly enough
 : and by this be much pleasanter at home.
 
+
+## Wikilinks load test
+
+[[unmade japanese carpet grass]]
+[[listed speaking tube]]

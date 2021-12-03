@@ -88,3 +88,11 @@ Stand up she ran
 Found IT DOES THE LITTLE BUSY
 : Fourteenth of idea that would seem sending me by without a duck with MINE.
 
+
+## Wikilinks load test
+
+[[thai definitive host]]
+[[leafy giant fulmar]]
+[[under-the-counter spotlight]]
+[[yellow-brown molischs test]]
+[[gigantic laurel]]

@@ -87,3 +87,9 @@ Always lay the sudden
 Hand it set to pinch it
 : the Cat or I'll try another question was about again took no chance of life it
 
+
+## Wikilinks load test
+
+[[disintegrative oriental beetle]]
+[[unliveable granadillo]]
+[[rimy obstruction of justice]]

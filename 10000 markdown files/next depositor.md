@@ -82,3 +82,10 @@ here poor Alice opened
 We must know all
 : That's quite dull.
 
+
+## Wikilinks load test
+
+[[vicious internal combustion]]
+[[referable old school tie]]
+[[finable pholistoma]]
+[[vulcanized lukasiewicz notation]]

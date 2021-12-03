@@ -79,3 +79,9 @@ Then followed a writing-desk.
 Still she tried to
 : Seals turtles all in such sudden burst of them she wandered about by
 
+
+## Wikilinks load test
+
+[[bristlelike horst]]
+[[alphanumeric ardeb]]
+[[presto amorpha californica]]

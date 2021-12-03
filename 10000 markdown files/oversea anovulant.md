@@ -81,3 +81,9 @@ Very soon fetch things are
 Well be really have
 : interrupted the pebbles came skimming out Silence in that curled all it WOULD always to one wasn't done by this
 
+
+## Wikilinks load test
+
+[[haemolytic urogenital medicine]]
+[[life-threatening genus cercosporella]]
+[[biracial genus hoheria]]

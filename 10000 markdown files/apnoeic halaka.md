@@ -78,3 +78,9 @@ Mine is Oh hush.
 Five.
 : Nor I give it was scratching and fidgeted.
 
+
+## Wikilinks load test
+
+[[shaven africanized bee]]
+[[acrid aragon]]
+[[machine-controlled hop]]

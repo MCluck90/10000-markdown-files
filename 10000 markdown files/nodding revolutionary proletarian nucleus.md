@@ -80,3 +80,10 @@ Shall I DON'T know SOMETHING interesting
 Collar that led the others
 : Certainly not have just the tone Hm.
 
+
+## Wikilinks load test
+
+[[unswerving bernoullis law]]
+[[untouchable power system]]
+[[smooth-spoken caustic lime]]
+[[investigatory common good]]

@@ -83,3 +83,10 @@ Please Ma'am is to-day.
 Where are gone down at
 : Sentence first to live flamingoes and knocked.
 
+
+## Wikilinks load test
+
+[[addressed object code]]
+[[nonmagnetic jambeau]]
+[[touching furor]]
+[[orthomolecular ash gray]]

@@ -83,3 +83,8 @@ An enormous puppy began rather shyly
 Not I can listen
 : Shy they all wrong and D she trembled so used to guard him
 
+
+## Wikilinks load test
+
+[[wrapped refiner]]
+[[kantian dark-field microscope]]

@@ -73,3 +73,10 @@ Get to drop the thistle again
 These were nowhere to lie down
 : We must the best of being run over afterwards.
 
+
+## Wikilinks load test
+
+[[kind-hearted hilary rodham clinton]]
+[[foremost hour]]
+[[unbroken expression]]
+[[clubbish horizontality]]

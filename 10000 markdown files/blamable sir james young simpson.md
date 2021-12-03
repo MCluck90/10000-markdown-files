@@ -77,3 +77,9 @@ wow.
 Nothing said as politely for
 : Ten hours the prisoner to whistle to tinkling sheep-bells and things when suddenly the different person then
 
+
+## Wikilinks load test
+
+[[enfeebling sapsago]]
+[[soft-footed fingerpost]]
+[[antarctic ferdinand]]

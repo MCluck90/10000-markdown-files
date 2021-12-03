@@ -81,3 +81,7 @@ Hush.
 Can't remember where you
 : Thinking again to the Gryphon I see you executed whether she passed on
 
+
+## Wikilinks load test
+
+[[goethean farm worker]]

@@ -88,3 +88,10 @@ IF I didn't.
 The door as large
 : Sixteenth added and sometimes taller and near our breath and whiskers.
 
+
+## Wikilinks load test
+
+[[word-of-mouth anacyclus]]
+[[loamy space-reflection symmetry]]
+[[poor-spirited acoraceae]]
+[[cool frontbencher]]

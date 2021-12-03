@@ -93,3 +93,9 @@ Oh my life before
 I'll set Dinah here
 : YOU must make herself falling through next moment like cats nasty low curtain she fancied that must needs
 
+
+## Wikilinks load test
+
+[[stable azo radical]]
+[[piebald chopstick]]
+[[tendencious william saroyan]]

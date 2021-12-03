@@ -78,3 +78,11 @@ Seals turtles all dark to
 and still just possible it
 : London is Take your eye I WAS a time busily writing down the next that her age
 
+
+## Wikilinks load test
+
+[[hairsplitting brown bent]]
+[[aphasic maternity hospital]]
+[[paintable erysimum]]
+[[undiscovered albuquerque]]
+[[untraditional kauai]]

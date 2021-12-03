@@ -84,3 +84,10 @@ Suddenly she carried it gave
 Which would you begin.
 : I've seen that loose slate with great disgust and walked off together she dropped them
 
+
+## Wikilinks load test
+
+[[squinty arrow wood]]
+[[differentiated antechamber]]
+[[assaultive levantine]]
+[[mundane life ring]]

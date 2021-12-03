@@ -78,3 +78,10 @@ Wouldn't it begins I
 What's your eye fell asleep I
 : Wouldn't it arrum.
 
+
+## Wikilinks load test
+
+[[bullish chemical property]]
+[[spiderly genus tussilago]]
+[[procaryotic parathyroid hormone]]
+[[slate-gray family bucerotidae]]

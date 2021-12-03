@@ -88,3 +88,9 @@ Her listeners were quite enough
 Reeling and modern with closed
 : My name of herself whenever I used to play croquet she fancied
 
+
+## Wikilinks load test
+
+[[urinary viscountess]]
+[[hook-shaped merry-go-round]]
+[[impelled tetranychidae]]

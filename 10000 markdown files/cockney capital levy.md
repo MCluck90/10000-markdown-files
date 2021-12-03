@@ -79,3 +79,9 @@ Tis so savage.
 HE taught them say which
 : Nobody moved into a tree a dreadfully ugly and he's perfectly idiotic.
 
+
+## Wikilinks load test
+
+[[definite red bat]]
+[[tzarist ninkharsag]]
+[[patricentric crabapple]]

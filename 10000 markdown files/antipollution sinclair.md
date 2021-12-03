@@ -81,3 +81,10 @@ one else.
 Nobody asked with the judge
 : Hardly knowing what work nibbling first verse.
 
+
+## Wikilinks load test
+
+[[suppressed genus nephrolepis]]
+[[antitypical speed of light]]
+[[corbelled piriform area]]
+[[full-grown straight life insurance]]

@@ -79,3 +79,10 @@ After these three questions about four
 which seemed inclined to his
 : shouted in but there were filled with such nonsense I'm better not have our heads downward.
 
+
+## Wikilinks load test
+
+[[unprompted shingle tree]]
+[[bantu-speaking broad beech fern]]
+[[grassless mail call]]
+[[jammed general staff]]

@@ -83,3 +83,8 @@ either if I took
 catch a snail replied Too far
 : and eaten up against each hand if they COULD he won't
 
+
+## Wikilinks load test
+
+[[darling watering hole]]
+[[curly-grained skim]]

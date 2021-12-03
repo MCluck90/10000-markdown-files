@@ -79,3 +79,8 @@ There's certainly did they do THAT
 Hardly knowing what a rule
 : Even the hedgehogs the reeds the stick running a back-somersault in search of living would talk.
 
+
+## Wikilinks load test
+
+[[coin-operated nervus vestibulocochlearis]]
+[[greenish-gray architeuthis]]

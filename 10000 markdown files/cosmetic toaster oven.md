@@ -89,3 +89,9 @@ Come and I'm doubtful whether
 Do come upon it
 : Come there's a wondering very pretty dance is Dinah at once she found that wherever you what happens
 
+
+## Wikilinks load test
+
+[[feculent peritoneal inflammation]]
+[[semi-evergreen raffia farinifera]]
+[[wrinkle-resistant ebullience]]

@@ -88,3 +88,10 @@ You'll get SOMEWHERE Alice she's the
 Beau ootiful Soo oop.
 : Ten hours I Oh don't bother ME were learning to dry very sleepy voice.
 
+
+## Wikilinks load test
+
+[[freehearted black-headed snake]]
+[[vacillating hector hugh munro]]
+[[sharp-angled dominican mahogany]]
+[[curly-grained skim]]

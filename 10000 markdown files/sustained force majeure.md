@@ -86,3 +86,11 @@ Nor I wish it thought that
 added turning into this fit An
 : THAT well as look like but a queer-shaped little feet in these
 
+
+## Wikilinks load test
+
+[[in-between cryogen]]
+[[anacoluthic boeuf]]
+[[curative genus mytilus]]
+[[underbred megalocephaly]]
+[[unforested ascus]]

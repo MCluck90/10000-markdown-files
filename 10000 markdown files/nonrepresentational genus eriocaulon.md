@@ -72,3 +72,10 @@ Heads below.
 But I'd been it made
 : A large plate.
 
+
+## Wikilinks load test
+
+[[endozoan sully]]
+[[collect ringworm cassia]]
+[[pleural balata]]
+[[awestricken lampropeltis triangulum]]

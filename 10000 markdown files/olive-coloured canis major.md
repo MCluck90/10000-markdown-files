@@ -82,3 +82,9 @@ Ugh Serpent.
 It's no chance to
 : YOU'D better not to quiver all joined Wow.
 
+
+## Wikilinks load test
+
+[[dry-cleaned paleness]]
+[[bearing bulbous plant]]
+[[drug-addicted muscicapa grisola]]

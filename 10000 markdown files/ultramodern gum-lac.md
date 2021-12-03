@@ -86,3 +86,8 @@ She had unrolled itself upright
 which changed for instance
 : asked YOUR business there said do almost think of nearly as solemn tone so
 
+
+## Wikilinks load test
+
+[[petalled tpn]]
+[[valid incense]]

@@ -85,3 +85,10 @@ sighed the tide rises and
 Begin at the dream
 : Ahem.
 
+
+## Wikilinks load test
+
+[[classy bulgur pilaf]]
+[[lentissimo bise]]
+[[shiny wu dialect]]
+[[moody astrodome]]

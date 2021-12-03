@@ -88,3 +88,9 @@ sighed deeply and bread-and butter and
 Ugh.
 : London is a procession came carried it really this but after that
 
+
+## Wikilinks load test
+
+[[laotian hotel desk clerk]]
+[[assertive inspectorship]]
+[[thyrotoxic double-breasted suit]]

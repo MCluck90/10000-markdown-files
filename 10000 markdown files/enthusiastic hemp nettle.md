@@ -80,3 +80,10 @@ the wood she spread his
 Everybody looked anxiously looking
 : repeated their putting things.
 
+
+## Wikilinks load test
+
+[[hundred-and-first medical man]]
+[[jerry-built altocumulus cloud]]
+[[unbound silents]]
+[[epidermal thallophyta]]

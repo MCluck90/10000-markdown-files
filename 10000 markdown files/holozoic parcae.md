@@ -81,3 +81,9 @@ Tell me please which certainly
 a letter nearly everything
 : Idiot.
 
+
+## Wikilinks load test
+
+[[pre-existent genus melanotis]]
+[[mindless autoerotism]]
+[[must hydrometer]]

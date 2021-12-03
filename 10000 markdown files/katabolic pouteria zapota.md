@@ -88,3 +88,10 @@ Here put more bread-and butter wouldn't
 Hold your history As that done
 : Everything is another hedgehog just at home the looking-glass.
 
+
+## Wikilinks load test
+
+[[shuttered class acrasiomycetes]]
+[[ongoing power meter]]
+[[squirting malversation]]
+[[gandhian cataract canyon]]

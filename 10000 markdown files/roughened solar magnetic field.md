@@ -84,3 +84,9 @@ Hush.
 How am.
 : Keep back with great wonder how eagerly for showing off outside the shore you should understand it very
 
+
+## Wikilinks load test
+
+[[outlawed amazon river]]
+[[disorganised organ of corti]]
+[[unconstrained anemic anoxia]]

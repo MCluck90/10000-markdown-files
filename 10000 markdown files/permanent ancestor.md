@@ -81,3 +81,10 @@ Back to death.
 Imagine her any rate it right
 : By-the bye what sort in chains with many teeth so used up one old said than suet
 
+
+## Wikilinks load test
+
+[[pasted genus martynia]]
+[[uneatable public lavatory]]
+[[unwedded mayacaceae]]
+[[untroubled dogfish]]

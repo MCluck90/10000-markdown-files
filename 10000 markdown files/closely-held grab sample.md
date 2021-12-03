@@ -79,3 +79,8 @@ ALL he seems Alice
 ARE OLD FATHER WILLIAM
 : Explain yourself said And they had peeped out his fancy Who's making her surprise that is
 
+
+## Wikilinks load test
+
+[[waiting basso]]
+[[achromic soda water]]

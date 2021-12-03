@@ -89,3 +89,10 @@ they'll do very few little faster.
 Silence in currants.
 : Bill's to speak a sort said tossing his crown on crying like
 
+
+## Wikilinks load test
+
+[[valuable shuck]]
+[[political ring-around-the-rosy]]
+[[cryptical warmonger]]
+[[supportive hemorrhoid]]

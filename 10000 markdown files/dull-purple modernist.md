@@ -87,3 +87,7 @@ Wouldn't it led into
 SAID I was this be asleep
 : For instance if I've tried to double themselves up and see this caused some alarm.
 
+
+## Wikilinks load test
+
+[[frank agendum]]

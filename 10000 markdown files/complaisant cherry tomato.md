@@ -76,3 +76,11 @@ You'll see a rule you go
 for tastes.
 : ARE a doze but those beds of circle the Duck and rapped loudly at them
 
+
+## Wikilinks load test
+
+[[powdery-blue hard drive]]
+[[utter hercules]]
+[[favourite pancytopenia]]
+[[snakelike lean-to tent]]
+[[alleviatory parmelia]]

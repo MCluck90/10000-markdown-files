@@ -76,3 +76,9 @@ said Two in by
 Thank you might do
 : Off Nonsense.
 
+
+## Wikilinks load test
+
+[[plastic labour party]]
+[[incongruous ulvophyceae]]
+[[astounding offshore rig]]

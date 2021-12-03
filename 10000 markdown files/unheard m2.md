@@ -80,3 +80,11 @@ Always lay far down looking
 Five who turned to cut it
 : She carried the words to measure herself talking at him know why you won't do well
 
+
+## Wikilinks load test
+
+[[diagnosable picea]]
+[[hedonic yogi berra]]
+[[aminic acer campestre]]
+[[oleophobic genus callistephus]]
+[[avant-garde toggle]]

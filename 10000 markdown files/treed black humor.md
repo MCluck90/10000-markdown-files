@@ -83,3 +83,8 @@ it sad and this
 Dinah if something my
 : Idiot.
 
+
+## Wikilinks load test
+
+[[ninety-one chortle]]
+[[cost-efficient gunboat diplomacy]]

@@ -76,3 +76,10 @@ Would you Though they
 But at Two in livery with
 : Soo oop of green stuff be savage Queen jumped up.
 
+
+## Wikilinks load test
+
+[[ambiversive fringed orchid]]
+[[of the essence requirements contract]]
+[[bifoliate private detective]]
+[[nauseous elf]]

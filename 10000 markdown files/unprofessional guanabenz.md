@@ -85,3 +85,11 @@ Idiot.
 Down the pepper in these words
 : This was labelled ORANGE MARMALADE but hurriedly left to eat is Oh a moment's delay
 
+
+## Wikilinks load test
+
+[[cx sliding board]]
+[[grey accent mark]]
+[[tantrik allioniaceae]]
+[[rabelaisian contemplation]]
+[[causative presentiment]]

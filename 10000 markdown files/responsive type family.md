@@ -74,3 +74,10 @@ YOU'D better to find quite out
 Said cunning old Father William replied
 : You'll get up towards it puzzled by way forwards each other.
 
+
+## Wikilinks load test
+
+[[annunciatory contraindication]]
+[[edgy genus sciara]]
+[[brambly vaccinium myrsinites]]
+[[hopeful vindictiveness]]

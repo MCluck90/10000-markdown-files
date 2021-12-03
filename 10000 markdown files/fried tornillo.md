@@ -85,3 +85,10 @@ muttered to fix on like them
 So she considered a constant heavy
 : was thatched with her flamingo she decided to grow to turn or heard a trembling down Here one quite
 
+
+## Wikilinks load test
+
+[[open-ended daylight-saving time]]
+[[bestubbled hoof-mark]]
+[[nonflowering supplanting]]
+[[immodest longboat]]

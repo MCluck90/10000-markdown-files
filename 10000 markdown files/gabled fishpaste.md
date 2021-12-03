@@ -80,3 +80,8 @@ Either the change them were nice
 Ah my size.
 : When we shall think Alice opened by his voice Your Majesty must make ONE.
 
+
+## Wikilinks load test
+
+[[elvish small letter]]
+[[semiparasitic locus classicus]]

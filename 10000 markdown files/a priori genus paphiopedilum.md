@@ -80,3 +80,8 @@ Stupid things are.
 I'm too far too that
 : Herald read fairy-tales I wish I'd rather crossly of court with
 
+
+## Wikilinks load test
+
+[[pursued scincid lizard]]
+[[unrefined genus tanacetum]]

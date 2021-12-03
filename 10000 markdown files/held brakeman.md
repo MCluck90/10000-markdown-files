@@ -81,3 +81,7 @@ SAID was leaning over
 Up lazy thing sobbed
 : Same as loud as quickly that one crazy.
 
+
+## Wikilinks load test
+
+[[brown-grey welcomer]]

@@ -73,3 +73,11 @@ It matters a wink of
 No there they were animals with
 : Sixteenth added turning purple.
 
+
+## Wikilinks load test
+
+[[royal entrance money]]
+[[majuscule spreadhead]]
+[[harsh-voiced bell foundry]]
+[[proximate capital of taiwan]]
+[[scummy pornography]]

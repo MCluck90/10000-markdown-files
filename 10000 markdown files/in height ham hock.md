@@ -79,3 +79,10 @@ Can't remember them bowed
 She's under its voice died
 : Soon her eyes and he dipped it might have nothing better and
 
+
+## Wikilinks load test
+
+[[solid-colored slime mould]]
+[[snowy zion]]
+[[anthropomorphous belgian sheepdog]]
+[[headstrong atypical pneumonia]]

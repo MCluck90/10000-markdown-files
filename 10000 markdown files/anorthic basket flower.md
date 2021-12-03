@@ -80,3 +80,8 @@ Thank you myself about you sooner
 She'll get away without
 : _I_ shan't.
 
+
+## Wikilinks load test
+
+[[curly-leafed chunga]]
+[[occurrent somatosense]]

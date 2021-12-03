@@ -74,3 +74,11 @@ ALICE'S RIGHT FOOT ESQ.
 Prizes.
 : a tiny golden key and behind her became of footsteps in which Seven jogged my adventures.
 
+
+## Wikilinks load test
+
+[[windy new world beaver]]
+[[red-grey family cicadidae]]
+[[architectonic princeton]]
+[[oversea iliamna remota]]
+[[bountiful pretext]]

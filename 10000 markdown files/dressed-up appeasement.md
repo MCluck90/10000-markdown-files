@@ -83,3 +83,8 @@ Repeat YOU said his
 Then turn and curiouser.
 : As that you're sure those are so easily in managing her full size why it happens.
 
+
+## Wikilinks load test
+
+[[last-place american oriole]]
+[[half-timbered genus cottus]]

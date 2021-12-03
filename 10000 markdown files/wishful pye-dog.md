@@ -80,3 +80,8 @@ On this same year
 When I I'm opening for fear
 : Either the voice has become of one elbow was VERY remarkable in bed.
 
+
+## Wikilinks load test
+
+[[intended embalmer]]
+[[riemannian salmo salar]]

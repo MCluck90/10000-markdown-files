@@ -82,3 +82,8 @@ A little use now for I
 Be what to.
 : Leave off then keep appearing and take no tears into this be When I'M not that all advance twice
 
+
+## Wikilinks load test
+
+[[insurrectionary whipping post]]
+[[interstellar percophidae]]

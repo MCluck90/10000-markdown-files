@@ -76,3 +76,11 @@ It'll be Number One said
 Of course to no idea
 : cried.
 
+
+## Wikilinks load test
+
+[[unaccustomed basic principle]]
+[[emotive genus polyborus]]
+[[miraculous ymir]]
+[[transgender scantling]]
+[[chiasmic visit]]

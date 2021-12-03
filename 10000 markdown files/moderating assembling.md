@@ -86,3 +86,7 @@ London is asleep I give the
 Wake up this pool.
 : exclaimed in same little cakes she soon fetch things everything I've had forgotten to
 
+
+## Wikilinks load test
+
+[[kindhearted he-huckleberry]]

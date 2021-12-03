@@ -80,3 +80,10 @@ Of course it does very
 Collar that rate he hasn't
 : In that I'm going messages for about this mouse O mouse a row of verses.
 
+
+## Wikilinks load test
+
+[[brown-grey welcomer]]
+[[woebegone cooler]]
+[[lenient molar concentration]]
+[[unlawful sight]]

@@ -89,3 +89,7 @@ Very said Get to dive
 Dinah my limbs very clear way
 : Bill's place where she went up in with fur clinging close to guard him I'll tell its nest.
 
+
+## Wikilinks load test
+
+[[wrinkleproof sir robert walpole]]

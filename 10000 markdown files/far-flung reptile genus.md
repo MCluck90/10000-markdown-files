@@ -80,3 +80,9 @@ Cheshire cats if I really you
 Hand it here lad.
 : Off Nonsense.
 
+
+## Wikilinks load test
+
+[[straw-coloured crown colony]]
+[[retroactive massasoit]]
+[[lighted ceratodontidae]]

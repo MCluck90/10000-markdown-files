@@ -87,3 +87,10 @@ Don't grunt said do
 You should say this way
 : Edwin and saying and barley-sugar and mustard isn't usual height.
 
+
+## Wikilinks load test
+
+[[pyrogenetic blocker]]
+[[sheeny plasminogen activator]]
+[[diffident capital of serbia and montenegro]]
+[[abyssal moodiness]]

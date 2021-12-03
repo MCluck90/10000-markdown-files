@@ -82,3 +82,7 @@ Collar that day I don't give
 Herald read several times
 : later.
 
+
+## Wikilinks load test
+
+[[nonsocial genus carum]]

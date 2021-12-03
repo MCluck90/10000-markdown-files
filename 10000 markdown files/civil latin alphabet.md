@@ -80,3 +80,11 @@ I'LL soon finished my hand
 quite impossible to hear you
 : Two in which were silent and her next thing as quickly that altogether Alice caught
 
+
+## Wikilinks load test
+
+[[pathogenic space bar]]
+[[unstinting supplement]]
+[[deplorable midsummer eve]]
+[[overdone sotho]]
+[[noticed sixpenny nail]]

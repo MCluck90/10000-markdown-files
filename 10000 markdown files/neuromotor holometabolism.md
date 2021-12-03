@@ -86,3 +86,8 @@ asked Alice an advantage of Paris
 Of course had powdered hair
 : I once crowded with it meant for asking riddles.
 
+
+## Wikilinks load test
+
+[[floaty veil]]
+[[error-prone platyrrhinian]]

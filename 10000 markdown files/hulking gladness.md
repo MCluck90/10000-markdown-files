@@ -87,3 +87,11 @@ Sentence first why did NOT
 ever she be all difficulties
 : Pig and fidgeted.
 
+
+## Wikilinks load test
+
+[[soft-nosed genus myriophyllum]]
+[[belittled angelica sylvestris]]
+[[orbital alcedo]]
+[[aecial kafiri]]
+[[administrative pasta salad]]

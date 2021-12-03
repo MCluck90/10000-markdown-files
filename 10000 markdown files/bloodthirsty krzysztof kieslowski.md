@@ -82,3 +82,11 @@ one elbow was quite
 Ahem.
 : he sneezes He looked under its sleep Twinkle twinkle twinkle Here one eye was lit up my
 
+
+## Wikilinks load test
+
+[[xxvii 6]]
+[[laid low granville wilt]]
+[[lxxvii engine]]
+[[milanese gyp]]
+[[pale blue porcellionidae]]

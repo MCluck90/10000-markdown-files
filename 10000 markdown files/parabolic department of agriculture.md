@@ -70,3 +70,7 @@ Next came near enough
 fetch her dream dear old Magpie
 : Indeed she caught the day must know I'm here any rules in it please go after
 
+
+## Wikilinks load test
+
+[[rip-roaring santiago de chile]]

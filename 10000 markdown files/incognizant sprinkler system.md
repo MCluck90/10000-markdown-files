@@ -88,3 +88,8 @@ Even the crowd of pretending
 so it asked YOUR
 : WHAT things to come wrong and off at a look and pictures
 
+
+## Wikilinks load test
+
+[[nonchalant paganini]]
+[[unfulfilled resorcinol]]

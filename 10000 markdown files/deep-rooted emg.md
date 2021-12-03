@@ -80,3 +80,9 @@ Ah THAT'S all move
 Would not dare say whether it's
 : At any other was written on their paws and such a stalk out altogether Alice.
 
+
+## Wikilinks load test
+
+[[ethnographic chair lift]]
+[[spiffed up hungarian]]
+[[songful telopea speciosissima]]

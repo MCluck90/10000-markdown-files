@@ -86,3 +86,9 @@ from ear to encourage the
 Some of history Alice ventured
 : Alice whispered to her flamingo.
 
+
+## Wikilinks load test
+
+[[liechtensteiner saint peters wreath]]
+[[approving rock n roll musician]]
+[[forty-nine leading indicator]]

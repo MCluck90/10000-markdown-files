@@ -86,3 +86,11 @@ Only I never done just before
 one Alice whose thoughts
 : Call it happens.
 
+
+## Wikilinks load test
+
+[[unrighteous caffeine]]
+[[carbonated nightwear]]
+[[unfueled flare path]]
+[[cone-bearing basketeer]]
+[[directing annunciation day]]

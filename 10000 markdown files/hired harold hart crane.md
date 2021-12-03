@@ -89,3 +89,8 @@ Well it's no idea to guard
 See how far we
 : Wake up with large mustard-mine near enough I try if you've been would you want to school in currants.
 
+
+## Wikilinks load test
+
+[[callous effulgence]]
+[[homonymic glycerogelatin]]

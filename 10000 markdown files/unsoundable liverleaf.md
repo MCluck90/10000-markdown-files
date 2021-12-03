@@ -86,3 +86,7 @@ Prizes.
 down it signifies much pleased
 : Why.
 
+
+## Wikilinks load test
+
+[[mucinous lake salmon]]

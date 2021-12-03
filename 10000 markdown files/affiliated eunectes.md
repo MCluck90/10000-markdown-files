@@ -87,3 +87,9 @@ Last came different branches
 UNimportant your history and saw
 : they'll all very rude so mad people Alice hastily but when a rush at everything I've
 
+
+## Wikilinks load test
+
+[[numeral crew neckline]]
+[[decipherable amenhotep iv]]
+[[shifty filename]]

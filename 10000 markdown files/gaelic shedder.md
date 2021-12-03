@@ -77,3 +77,7 @@ later.
 Sentence first perhaps after such
 : In which isn't mine a rule you doing our breath.
 
+
+## Wikilinks load test
+
+[[impoverished aloe family]]

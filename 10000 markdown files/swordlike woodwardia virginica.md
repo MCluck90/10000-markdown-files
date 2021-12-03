@@ -82,3 +82,11 @@ Nay I then turning to doubt
 the exact shape doesn't
 : Pig.
 
+
+## Wikilinks load test
+
+[[amenorrhoeal fucoid]]
+[[arty-crafty hoar]]
+[[gyral liliaceous plant]]
+[[complaintive carvedilol]]
+[[low-budget merriment]]

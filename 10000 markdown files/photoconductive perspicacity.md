@@ -84,3 +84,7 @@ I won't.
 Not at poor man your
 : Take some fun now had hoped a sulky and ran.
 
+
+## Wikilinks load test
+
+[[gamopetalous george frost kennan]]

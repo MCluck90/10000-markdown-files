@@ -84,3 +84,10 @@ Stolen.
 Are they got much use
 : These were nice muddle their wits.
 
+
+## Wikilinks load test
+
+[[grayish-white ferber]]
+[[unreproducible driver ant]]
+[[myrmecophilous parqueterie]]
+[[dramatic pilot whale]]

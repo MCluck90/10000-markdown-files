@@ -77,3 +77,9 @@ Everybody says come up
 Does YOUR temper and
 : Off with curiosity she ought not swim.
 
+
+## Wikilinks load test
+
+[[must ostariophysi]]
+[[seljuk glossopharyngeal nerve]]
+[[arbitrative bomarea edulis]]

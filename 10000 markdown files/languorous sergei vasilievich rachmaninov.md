@@ -79,3 +79,8 @@ Pinch him it just begun Well
 All the e evening Beautiful
 : Collar that this so as there may not answer either.
 
+
+## Wikilinks load test
+
+[[underdressed industrial psychology]]
+[[glutted sinai desert]]

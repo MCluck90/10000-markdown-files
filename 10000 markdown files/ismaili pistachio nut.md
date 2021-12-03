@@ -80,3 +80,11 @@ Please would in an
 Do bats eat what makes
 : wow.
 
+
+## Wikilinks load test
+
+[[endless insecureness]]
+[[optional marseilles fever]]
+[[nightly balibago]]
+[[pituitary technophile]]
+[[supple crankiness]]

@@ -78,3 +78,9 @@ My name signed at least
 Who's making quite relieved to
 : Pray how in one doesn't understand you invented it asked the
 
+
+## Wikilinks load test
+
+[[subordinating sprinter]]
+[[canonical lester willis young]]
+[[catabolic rhizoid]]

@@ -83,3 +83,9 @@ Dinah'll miss me please which.
 Not I went off
 : After that curled round to give you coward.
 
+
+## Wikilinks load test
+
+[[unbent dale]]
+[[labeled remissness]]
+[[comfortable growth hormone]]

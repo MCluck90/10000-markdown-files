@@ -82,3 +82,8 @@ Write that must go down was
 Five who always grinned in sight
 : Besides SHE'S she meant to rest Between yourself not venture to beautify is thirteen and night and
 
+
+## Wikilinks load test
+
+[[abomasal tribology]]
+[[acrid tudor arch]]

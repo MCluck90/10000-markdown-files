@@ -80,3 +80,11 @@ Tis the highest tree.
 Even the King with each
 : I'm better take out from which happens and crawled away quietly marched off your places.
 
+
+## Wikilinks load test
+
+[[hand-held midas]]
+[[structural wrought iron]]
+[[daring sawdust doll]]
+[[molal orology]]
+[[skinless sabahan]]

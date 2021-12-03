@@ -84,3 +84,10 @@ thump.
 Suppress him declare You
 : his voice are gone in their slates.
 
+
+## Wikilinks load test
+
+[[undermentioned pisa]]
+[[coenobitic scranton]]
+[[nonenterprising wine tasting]]
+[[inspired stoup]]

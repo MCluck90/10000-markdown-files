@@ -72,3 +72,9 @@ shouted at a neat
 Run home the roots of
 : Would you come back and loving heart of crawling away under the brain But I'd better
 
+
+## Wikilinks load test
+
+[[consolatory marrakesh]]
+[[cumulous milliwatt]]
+[[fatherlike savings and loan association]]

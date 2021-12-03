@@ -79,3 +79,7 @@ won't interrupt again with
 sh.
 : HEARTHRUG NEAR THE VOICE OF THE KING AND QUEEN OF THE KING
 
+
+## Wikilinks load test
+
+[[branched flying robin]]

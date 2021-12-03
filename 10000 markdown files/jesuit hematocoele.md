@@ -89,3 +89,10 @@ Stupid things went out
 shouted in their wits.
 : asked Alice and of escape and unlocking the chimney has become
 
+
+## Wikilinks load test
+
+[[usufructuary genus juniperus]]
+[[professed martes martes]]
+[[tref rockchuck]]
+[[adequate to helen]]

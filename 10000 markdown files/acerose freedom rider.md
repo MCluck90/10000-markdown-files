@@ -74,3 +74,8 @@ Stuff and I'm Mabel.
 Stand up by the hearth
 : There's a hundred pounds.
 
+
+## Wikilinks load test
+
+[[monoicous army brat]]
+[[approaching fumewort]]

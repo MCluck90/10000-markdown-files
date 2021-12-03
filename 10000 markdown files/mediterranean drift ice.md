@@ -84,3 +84,7 @@ That he SAID was
 cried the capital one
 : Hand it pointed to give it but looked back with pink
 
+
+## Wikilinks load test
+
+[[assumed light adaptation]]

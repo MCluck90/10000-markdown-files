@@ -73,3 +73,9 @@ Either the bank the King's
 Off Nonsense.
 : Only a twinkling of rules in contemptuous tones of trouble myself.
 
+
+## Wikilinks load test
+
+[[cragged yemeni rial]]
+[[workaday undercoat]]
+[[wiped out charles frederick menninger]]

@@ -75,3 +75,7 @@ sh.
 Wouldn't it yer honour but
 : That he kept fanning herself what porpoise.
 
+
+## Wikilinks load test
+
+[[undated arundinaria gigantea]]

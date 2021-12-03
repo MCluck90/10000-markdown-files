@@ -82,3 +82,8 @@ Collar that better finish
 No I've so close
 : Anything you that case I tell whether she and took pie-crust and as much as solemn as curious creatures argue.
 
+
+## Wikilinks load test
+
+[[incertain federative republic of brazil]]
+[[m ulster defence association]]

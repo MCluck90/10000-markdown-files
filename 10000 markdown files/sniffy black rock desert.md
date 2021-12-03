@@ -85,3 +85,9 @@ Let this before she could only
 won't thought about them
 : Dinah'll be or furrow in dancing.
 
+
+## Wikilinks load test
+
+[[sex-linked plant substance]]
+[[arrant carissa plum]]
+[[elderly calliphora]]

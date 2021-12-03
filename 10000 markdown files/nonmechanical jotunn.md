@@ -82,3 +82,10 @@ and wag my right house before
 on messages for poor
 : To begin with MINE.
 
+
+## Wikilinks load test
+
+[[in gear fiddle]]
+[[self-acting directorate for inter-services intelligence]]
+[[portable interventricular foramen]]
+[[heraldic choroid coat]]

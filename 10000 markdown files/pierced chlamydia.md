@@ -81,3 +81,10 @@ when I'm very politely Did
 I'm grown to bring but never
 : Stand up at first really.
 
+
+## Wikilinks load test
+
+[[lash-like hairnet]]
+[[patrilinear genus aepyornis]]
+[[outraged particularisation]]
+[[placatory sporobolus poiretii]]

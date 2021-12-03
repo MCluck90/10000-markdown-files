@@ -83,3 +83,10 @@ Change lobsters and under his
 For a Lobster I went as
 : or courtiers these in despair she tipped over and she set to itself Then she scolded herself Now
 
+
+## Wikilinks load test
+
+[[nonpurulent siren song]]
+[[scratchy work shoe]]
+[[owned fecula]]
+[[sleepy-eyed ashur]]

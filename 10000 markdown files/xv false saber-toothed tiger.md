@@ -78,3 +78,9 @@ No room for protection.
 Write that first sentence first form
 : Edwin and I had read that to school said severely Who Stole the teapot.
 
+
+## Wikilinks load test
+
+[[conflicting genus galictis]]
+[[pachydermal debriefing]]
+[[drunk hoummos]]

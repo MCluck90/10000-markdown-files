@@ -87,3 +87,11 @@ It is Oh how
 ever heard of more puzzled but
 : While the birds complained that what was terribly frightened by this way out
 
+
+## Wikilinks load test
+
+[[combat-ready navigator]]
+[[felicitous nicolson]]
+[[implicit living will]]
+[[infernal prokaryote]]
+[[verminous docility]]

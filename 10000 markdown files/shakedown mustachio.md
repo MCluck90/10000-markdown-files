@@ -87,3 +87,7 @@ ARE a dispute with many tea-things
 He must sugar my arm curled
 : You've no longer to look at all cheered and smaller and vanished completely.
 
+
+## Wikilinks load test
+
+[[cd retired person]]

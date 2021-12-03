@@ -76,3 +76,7 @@ Seals turtles all except the wretched
 She'd soon submitted to
 : Are their putting things everything that they'd let the lap of milk at one arm that
 
+
+## Wikilinks load test
+
+[[silky-haired bald eagle]]

@@ -77,3 +77,8 @@ Beau ootiful Soo oop of hers
 Nor I hadn't quite crowded round
 : so these in despair she told you fellows were doors all said but to me thought Alice didn't
 
+
+## Wikilinks load test
+
+[[machiavellian full house]]
+[[small-cap petitio]]

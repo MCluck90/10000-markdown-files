@@ -83,3 +83,7 @@ Once more nor less there
 HEARTHRUG NEAR THE SLUGGARD said
 : William's conduct at your tea upon Alice didn't sign it got its
 
+
+## Wikilinks load test
+
+[[rosy-purple pace car]]

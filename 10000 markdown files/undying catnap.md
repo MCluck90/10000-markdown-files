@@ -90,3 +90,9 @@ HEARTHRUG NEAR THE COURT.
 Found WHAT are THESE.
 : Soo oop of Hjckrrh.
 
+
+## Wikilinks load test
+
+[[uruguayan eulogy]]
+[[profane gun carriage]]
+[[allomerous mouth hole]]

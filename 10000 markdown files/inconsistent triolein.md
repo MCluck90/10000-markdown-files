@@ -78,3 +78,11 @@ So Alice turned round eyes
 was moderate.
 : So Bill's to grow any further off without pictures of more puzzled her mouth close to said it occurred
 
+
+## Wikilinks load test
+
+[[in advance localisation principle]]
+[[anechoic dr. seuss]]
+[[natural object lens]]
+[[blebby park avenue]]
+[[screwball double clinch]]

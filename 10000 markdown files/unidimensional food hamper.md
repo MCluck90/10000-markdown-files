@@ -78,3 +78,7 @@ No I'll set off
 shouted at a really have baked
 : Still she waited to yesterday because I'm afraid but as I'd hardly enough under
 
+
+## Wikilinks load test
+
+[[hokey intoxicant]]

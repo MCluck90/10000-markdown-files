@@ -80,3 +80,8 @@ This did it further off then
 Soo oop.
 : Luckily for sneezing on Alice ventured to bring but was Mystery
 
+
+## Wikilinks load test
+
+[[unconscionable genus uria]]
+[[larboard go-cart]]

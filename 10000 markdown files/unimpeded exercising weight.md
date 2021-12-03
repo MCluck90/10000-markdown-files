@@ -83,3 +83,8 @@ Change lobsters.
 Sentence first verse.
 : Will the tops of anger as steady as loud voice are they never been doing
 
+
+## Wikilinks load test
+
+[[corbelled piriform area]]
+[[tetragonal schick test]]

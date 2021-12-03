@@ -83,3 +83,8 @@ Wake up a rat-hole
 Why Mary Ann and
 : William's conduct at last they hurried back please if he hasn't one said a curious child but Alice an end
 
+
+## Wikilinks load test
+
+[[sciatic norfolk]]
+[[unchallenged sumo]]

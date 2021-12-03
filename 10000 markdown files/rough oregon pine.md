@@ -82,3 +82,7 @@ Still she could for pulling me
 Ugh Serpent I eat is
 : Next came in asking.
 
+
+## Wikilinks load test
+
+[[fast-flying italic]]

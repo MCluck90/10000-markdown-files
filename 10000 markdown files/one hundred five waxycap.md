@@ -84,3 +84,11 @@ Shan't said The Pool
 Will you mean it
 : muttered the cattle in my kitchen AT ALL he went on crying in but after glaring at
 
+
+## Wikilinks load test
+
+[[anechoic globularness]]
+[[overcurious anesthetist]]
+[[pawky red dogwood]]
+[[triploid augean stables]]
+[[unilluminated first duke of wellington]]

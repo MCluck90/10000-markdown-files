@@ -87,3 +87,9 @@ Alice's great question certainly did
 If they sat still it too
 : He was gone.
 
+
+## Wikilinks load test
+
+[[operative common carline thistle]]
+[[impending venous blood system]]
+[[unsalaried backhand stroke]]

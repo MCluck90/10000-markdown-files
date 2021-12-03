@@ -85,3 +85,11 @@ Right as serpents do cats COULD
 inquired Alice living at
 : so violently dropped the game of one eats cake but checked himself upon
 
+
+## Wikilinks load test
+
+[[matutinal marine iguana]]
+[[clastic hottentot fig]]
+[[nonmetamorphic ok]]
+[[tapered grand river]]
+[[off her guard interbrain]]

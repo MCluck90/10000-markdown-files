@@ -79,3 +79,8 @@ Stuff and rubbed its axis Talking
 Sure it can draw you
 : Everything is here.
 
+
+## Wikilinks load test
+
+[[greyish-black hectometer]]
+[[accident-prone golden calf]]

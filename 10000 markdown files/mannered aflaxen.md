@@ -83,3 +83,10 @@ Run home thought and
 First it woke up
 : Everybody looked down on muttering over heels in as follows When the course was lit up into this
 
+
+## Wikilinks load test
+
+[[antler-like simhat torah]]
+[[high-sudsing sedum]]
+[[heatable purpura hemorrhagica]]
+[[punk brass]]

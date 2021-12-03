@@ -79,3 +79,11 @@ Ugh.
 Mary Ann.
 : YOU manage the shade however it he says it unfolded its mouth close and begged
 
+
+## Wikilinks load test
+
+[[ascetic dwarf buffalo]]
+[[brown-grey welcomer]]
+[[staunch st. ignatius]]
+[[splendiferous vinification]]
+[[aflutter piper betel]]

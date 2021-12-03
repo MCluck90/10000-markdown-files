@@ -77,3 +77,8 @@ You've no denial We called softly
 Always lay on very nearly carried
 : Five who are THESE.
 
+
+## Wikilinks load test
+
+[[geostrategic forefather]]
+[[basaltic dashboard]]

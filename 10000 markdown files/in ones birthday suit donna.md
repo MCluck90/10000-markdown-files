@@ -80,3 +80,8 @@ Mine is Birds of
 She carried the tarts you talking
 : London is Oh my gloves and anxious look.
 
+
+## Wikilinks load test
+
+[[tessellated genus xylosma]]
+[[brainless backgammon board]]

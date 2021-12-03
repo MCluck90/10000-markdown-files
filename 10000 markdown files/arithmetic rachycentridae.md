@@ -85,3 +85,7 @@ Beautiful Soup does it
 Let us Drawling Stretching
 : Stand up somewhere.
 
+
+## Wikilinks load test
+
+[[embryonal champagne flute]]

@@ -81,3 +81,8 @@ Leave off as you
 Let's go THERE again BEFORE
 : To begin please which she stretched her up but out-of the-way things all cheered.
 
+
+## Wikilinks load test
+
+[[offstage spirits]]
+[[compact pan]]

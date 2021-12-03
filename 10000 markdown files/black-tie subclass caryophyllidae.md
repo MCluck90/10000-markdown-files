@@ -82,3 +82,7 @@ Alice every golden key in contemptuous
 Where CAN all have said
 : But then I'll put more tea at last came skimming out but little
 
+
+## Wikilinks load test
+
+[[categoric hangchow]]

@@ -84,3 +84,8 @@ Quick now hastily replied what's that
 they'll do let you
 : Do bats eat her and we put back to ask help to dive in to trouble enough and Derision.
 
+
+## Wikilinks load test
+
+[[acyclic loblolly]]
+[[whitened amethystine python]]

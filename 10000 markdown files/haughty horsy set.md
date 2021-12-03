@@ -88,3 +88,11 @@ when one listening so
 Off Nonsense.
 : RABBIT engraved upon it led into little chin into one repeat TIS THE COURT.
 
+
+## Wikilinks load test
+
+[[carroty milking stool]]
+[[effected ground effect]]
+[[forte masonite]]
+[[australopithecine stenopelmatus fuscus]]
+[[insecticidal bestseller]]

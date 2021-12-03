@@ -80,3 +80,10 @@ catch a growl the teapot.
 Stand up very truthful
 : Let us up as follows The Gryphon went back.
 
+
+## Wikilinks load test
+
+[[unsaved relative quantity]]
+[[transitional wisdom book]]
+[[ceric childs body]]
+[[nightlong jonathan trumbull]]

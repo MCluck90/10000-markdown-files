@@ -83,3 +83,8 @@ A likely story for YOU
 Lastly she scolded herself
 : Can't remember where.
 
+
+## Wikilinks load test
+
+[[indigestible cecil blount demille]]
+[[passable dodecahedron]]

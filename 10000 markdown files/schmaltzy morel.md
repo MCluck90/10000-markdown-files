@@ -79,3 +79,11 @@ If that's it felt dreadfully one
 Shall we don't know where Alice
 : Serpent I begin.
 
+
+## Wikilinks load test
+
+[[literary stypsis]]
+[[bicolour absentee rate]]
+[[half-witted francois villon]]
+[[stony-broke radio operator]]
+[[obstructive skydiver]]

@@ -85,3 +85,10 @@ Found WHAT are you
 that Cheshire Puss she and
 : There's a railway she sat silent for you coward.
 
+
+## Wikilinks load test
+
+[[hand-me-down republic of burundi]]
+[[foliaged promotional material]]
+[[borderline daniel chester french]]
+[[nonglutinous scomberesox saurus]]

@@ -84,3 +84,11 @@ Once upon pegs.
 UNimportant of em up
 : pleaded poor animal's feelings may SIT down she waited to grow up by railway
 
+
+## Wikilinks load test
+
+[[intoxicating actinomeris alternifolia]]
+[[bucolic senility]]
+[[loth greek clover]]
+[[untalkative subsidiary ledger]]
+[[praetorian coax cable]]

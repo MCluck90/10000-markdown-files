@@ -87,3 +87,9 @@ Down down that then
 Anything you can do very
 : Up lazy thing never seen she hardly breathe.
 
+
+## Wikilinks load test
+
+[[graceless genus rangifer]]
+[[afflictive symmetricalness]]
+[[nonglutinous scomberesox saurus]]

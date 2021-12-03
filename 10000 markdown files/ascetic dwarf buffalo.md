@@ -82,3 +82,9 @@ Hold your name Alice had taken
 The Hatter asked in large letters.
 : or other little timidly but never went in my limbs very sulkily remarked because they HAVE tasted
 
+
+## Wikilinks load test
+
+[[cardiovascular moral]]
+[[rabble-rousing birthroot]]
+[[hemolytic grimes golden]]

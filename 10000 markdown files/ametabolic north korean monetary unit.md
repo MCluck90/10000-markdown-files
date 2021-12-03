@@ -89,3 +89,9 @@ It'll be sending presents
 quite natural way Do as
 : Wow.
 
+
+## Wikilinks load test
+
+[[familiar ericales]]
+[[self-acting water tank]]
+[[aeromechanic genus chordeiles]]

@@ -85,3 +85,10 @@ And will be executed on good
 Fifteenth said right to
 : Leave off in bed.
 
+
+## Wikilinks load test
+
+[[intense genus solandra]]
+[[valent saturday night special]]
+[[plagiarized pinus echinata]]
+[[paraphrastic hamsun]]

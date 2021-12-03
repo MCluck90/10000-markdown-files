@@ -75,3 +75,8 @@ What's in at HIS time
 his arm yer honour.
 : That's all.
 
+
+## Wikilinks load test
+
+[[austrian serum globulin]]
+[[garrulous bridge hand]]

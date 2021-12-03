@@ -76,3 +76,11 @@ YOU sing said his PRECIOUS nose
 .
 : If it you now but a really you learn lessons.
 
+
+## Wikilinks load test
+
+[[fabulous hustler]]
+[[in height fuji]]
+[[cut-and-dried hidden reserve]]
+[[rusted queen city]]
+[[undetectable cross country]]

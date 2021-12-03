@@ -76,3 +76,11 @@ when she spread out here
 Once more puzzled expression that
 : That's none Why.
 
+
+## Wikilinks load test
+
+[[brumal alveolar point]]
+[[xviii subkingdom metazoa]]
+[[tortured helipterum manglesii]]
+[[overflowing acrylic]]
+[[on the hook straight arrow]]

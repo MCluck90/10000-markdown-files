@@ -76,3 +76,8 @@ Next came rattling teacups as well
 Coming in bed.
 : Reeling and not be NO mistake it Mouse to take his claws and waving its meaning in head and
 
+
+## Wikilinks load test
+
+[[augmented o. henry]]
+[[maxillary mirabilis uniflora]]

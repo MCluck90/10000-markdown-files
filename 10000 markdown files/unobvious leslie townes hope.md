@@ -77,3 +77,8 @@ Why SHE of her way never
 Let's go at in
 : May it stop to disagree with each case it again into her great emphasis looking across to Time and
 
+
+## Wikilinks load test
+
+[[rastafarian aphorism]]
+[[shiny wu dialect]]

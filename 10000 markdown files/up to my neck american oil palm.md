@@ -82,3 +82,8 @@ Do bats eat what I'm
 or judge by talking over me
 : but in an agony of terror.
 
+
+## Wikilinks load test
+
+[[inducive unrespectability]]
+[[auditory pawnee]]

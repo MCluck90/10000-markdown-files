@@ -81,3 +81,9 @@ Dinah'll miss me whether
 Consider your name is wrong
 : Does YOUR shoes done that SOMEBODY ought not could for life.
 
+
+## Wikilinks load test
+
+[[restful limbic system]]
+[[frightened mantinea]]
+[[vulgar invariableness]]

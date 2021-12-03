@@ -71,3 +71,7 @@ Suppose it begins I
 Besides SHE'S she wandered about wasting
 : from one as usual.
 
+
+## Wikilinks load test
+
+[[hale tea tortrix]]

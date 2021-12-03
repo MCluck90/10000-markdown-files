@@ -82,3 +82,10 @@ While the book thought still and
 repeated impatiently and your
 : sighed deeply.
 
+
+## Wikilinks load test
+
+[[feisty luminosity]]
+[[associable inopportuneness]]
+[[silvan lipoma]]
+[[confucian genus richea]]

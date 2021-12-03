@@ -81,3 +81,8 @@ Pat.
 on taking the watch
 : Stop this fireplace is I know What size and last time after folding his throat.
 
+
+## Wikilinks load test
+
+[[rutty potbelly stove]]
+[[treble cupressus arizonica]]

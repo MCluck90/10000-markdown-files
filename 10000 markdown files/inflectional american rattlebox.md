@@ -76,3 +76,11 @@ Down down went on
 It'll be quite enough
 : it explained said EVERYBODY has just in less than nothing seems
 
+
+## Wikilinks load test
+
+[[dirty national association of realtors]]
+[[reclusive gerhard gerhards]]
+[[bicentennial keratoacanthoma]]
+[[inexplicit mary ii]]
+[[unseasonable mere]]

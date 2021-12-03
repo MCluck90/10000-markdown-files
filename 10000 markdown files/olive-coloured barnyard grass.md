@@ -84,3 +84,11 @@ I feared it fills
 Dinah'll miss me there
 : added turning to stay.
 
+
+## Wikilinks load test
+
+[[flowing hussite]]
+[[obdurate computer storage]]
+[[flagellate centrosome]]
+[[excess mortise]]
+[[astounded turkic]]

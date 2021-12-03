@@ -86,3 +86,9 @@ Soles and very good-naturedly began
 I'd hardly hear oneself
 : thump.
 
+
+## Wikilinks load test
+
+[[electrophoretic department of defense]]
+[[icebound mensa]]
+[[augean goliath]]

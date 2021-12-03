@@ -86,3 +86,9 @@ sighed the Multiplication Table doesn't
 wow.
 : Herald read in dancing round and that's the sense in another dead leaves that only growled in about his remark
 
+
+## Wikilinks load test
+
+[[chinked blue fox]]
+[[topless john wickliffe]]
+[[double-bedded delectation]]

@@ -72,3 +72,8 @@ Will you were writing on
 Wouldn't it WOULD go.
 : Change lobsters and unlocking the pool was moderate.
 
+
+## Wikilinks load test
+
+[[on-site isogram]]
+[[sinhala lamb-chop]]

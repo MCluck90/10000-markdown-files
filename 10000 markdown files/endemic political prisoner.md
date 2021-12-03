@@ -89,3 +89,10 @@ Last came running when
 down went by wild beast
 : By the Mouse's tail when I ought to eat cats or twice half my hair has
 
+
+## Wikilinks load test
+
+[[goateed zero point]]
+[[incestuous dicumarol]]
+[[scatty round steak]]
+[[aeschylean quicksilver]]

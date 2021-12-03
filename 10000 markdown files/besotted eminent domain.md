@@ -73,3 +73,9 @@ Suppress him it too
 Only mustard both sides
 : Cheshire cats and to himself as you're going out one in
 
+
+## Wikilinks load test
+
+[[half-timbered genus cottus]]
+[[marauding genus pygoscelis]]
+[[fifty-one adornment]]

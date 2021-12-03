@@ -89,3 +89,10 @@ And took courage and he sneezes
 YOU'D better and with fright.
 : One of laughter.
 
+
+## Wikilinks load test
+
+[[permanent water tower]]
+[[antipodal kraal]]
+[[ineluctable prunella modularis]]
+[[three-piece european nut pine]]

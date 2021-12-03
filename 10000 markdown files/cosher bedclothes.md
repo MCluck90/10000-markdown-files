@@ -73,3 +73,8 @@ There's a great hurry muttering
 Herald read in reply
 : Beau ootiful Soo oop.
 
+
+## Wikilinks load test
+
+[[presto amorpha californica]]
+[[elfin pseudocolus fusiformis]]

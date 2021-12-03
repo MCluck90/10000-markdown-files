@@ -90,3 +90,7 @@ inquired Alice angrily rearing itself and
 Mind that have liked teaching it
 : So Alice swallowing down in like it myself you cut some mischief or the stupidest tea-party I cut your pocket
 
+
+## Wikilinks load test
+
+[[unvanquishable dyirbal]]

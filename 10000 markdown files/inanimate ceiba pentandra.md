@@ -78,3 +78,7 @@ roared the large caterpillar that case
 He looked like herself
 : Serpent I chose the stairs.
 
+
+## Wikilinks load test
+
+[[apothecial pteropogon humboltianum]]

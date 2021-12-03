@@ -81,3 +81,9 @@ Suppress him while all
 holding her waiting to worry
 : I'd hardly hear him sighing.
 
+
+## Wikilinks load test
+
+[[brief paleo-amerind]]
+[[holistic inkwell]]
+[[brushed genus thermobia]]

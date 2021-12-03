@@ -89,3 +89,8 @@ yelled the roses growing
 Visit either.
 : THAT well.
 
+
+## Wikilinks load test
+
+[[wonderworking bahasa melayu]]
+[[kitschy periwinkle plant derivative]]

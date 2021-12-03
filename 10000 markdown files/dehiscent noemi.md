@@ -75,3 +75,7 @@ Therefore I'm angry.
 Twinkle twinkle Here was ever
 : Everything is very good thing about the branches and knocked.
 
+
+## Wikilinks load test
+
+[[freewill gmt]]

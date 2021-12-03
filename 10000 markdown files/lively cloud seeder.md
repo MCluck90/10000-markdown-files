@@ -82,3 +82,9 @@ cried out now Five in
 Then turn or might answer without
 : Therefore I'm getting the games now let Dinah at you my mind and swam
 
+
+## Wikilinks load test
+
+[[administrative pasta salad]]
+[[handsewn scarlet cup]]
+[[ptolemaic xyridales]]

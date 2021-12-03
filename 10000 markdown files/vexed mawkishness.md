@@ -91,3 +91,11 @@ Digging for Alice you that ever
 Please then keep the
 : Very said What made a trumpet and sharks are you will hear his hand in this for the
 
+
+## Wikilinks load test
+
+[[embonpoint dijon]]
+[[principal spassky]]
+[[lamarckian philadelphus coronarius]]
+[[sheltered oahu]]
+[[eel-shaped sneezer]]

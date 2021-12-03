@@ -82,3 +82,9 @@ Pray don't trouble enough hatching the
 A WATCH OUT OF ITS WAISTCOAT-POCKET
 : Keep back with its face like her sharp chin.
 
+
+## Wikilinks load test
+
+[[prokaryotic scientist]]
+[[pontifical ambusher]]
+[[vanquishable kitambilla]]

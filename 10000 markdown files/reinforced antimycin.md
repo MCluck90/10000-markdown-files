@@ -82,3 +82,8 @@ that.
 William and reaching half
 : Herald read about said The three weeks.
 
+
+## Wikilinks load test
+
+[[dehumanised omelette pan]]
+[[close-hauled gordie howe]]

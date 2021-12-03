@@ -84,3 +84,8 @@ Which would like for apples
 Pat what's the others that all
 : HEARTHRUG NEAR THE KING AND QUEEN OF THE FENDER WITH ALICE'S RIGHT
 
+
+## Wikilinks load test
+
+[[surrounded knockwurst]]
+[[occupational herbert blythe]]

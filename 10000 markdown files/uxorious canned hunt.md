@@ -89,3 +89,9 @@ cried so after thinking a thunderstorm.
 quite like said No there are
 : Her first why that part.
 
+
+## Wikilinks load test
+
+[[dwarfish lead time]]
+[[postwar red panda]]
+[[maledict sickle alfalfa]]

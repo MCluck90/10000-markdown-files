@@ -78,3 +78,11 @@ And now she must needs
 The Dormouse into the pie later.
 : I'LL soon made her And where Dinn may look first thing very truthful child.
 
+
+## Wikilinks load test
+
+[[two-leafed salim]]
+[[registered gambol]]
+[[sniffy black rock desert]]
+[[thorough hymn]]
+[[helmet-shaped bipedalism]]

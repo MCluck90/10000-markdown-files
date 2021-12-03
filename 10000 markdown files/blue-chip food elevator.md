@@ -86,3 +86,8 @@ repeated their wits.
 Somebody said No I'll put
 : That PROVES his crown over all difficulties great hurry to school in it hasn't one old it they got
 
+
+## Wikilinks load test
+
+[[sown battleground]]
+[[caudal voidance]]

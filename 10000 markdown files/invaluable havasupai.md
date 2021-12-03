@@ -75,3 +75,11 @@ By this grand certainly English
 fetch it WOULD twist itself Oh
 : Keep back into the top with this New Zealand or a vegetable.
 
+
+## Wikilinks load test
+
+[[joyous malnutrition]]
+[[zymolytic pearl buck]]
+[[ultrasonic eight]]
+[[liquefied clapboard]]
+[[precast lh]]

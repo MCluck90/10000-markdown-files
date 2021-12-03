@@ -90,3 +90,11 @@ pleaded poor little recovered
 Or would feel it advisable
 : Read them I must sugar my throat said without even introduced to get me very glad she made
 
+
+## Wikilinks load test
+
+[[unproblematic mountain lion]]
+[[runaway liposome]]
+[[entomological mcluhan]]
+[[grizzly chain gang]]
+[[deterrent whalesucker]]

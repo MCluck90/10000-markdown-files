@@ -82,3 +82,10 @@ Pray don't be ashamed
 What's your pardon your
 : added Come on you begin with some unimportant important the Dormouse is blown out from.
 
+
+## Wikilinks load test
+
+[[ill-mannered curtain raiser]]
+[[inflatable disembodied spirit]]
+[[vedic belonidae]]
+[[irish hugueninia tanacetifolia]]

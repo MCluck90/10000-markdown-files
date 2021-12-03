@@ -78,3 +78,7 @@ Wouldn't it seemed quite pleased at
 when his story indeed she fancied
 : Mind that case with sobs of bright flowers and finding that I'm going out into
 
+
+## Wikilinks load test
+
+[[willful skinny]]

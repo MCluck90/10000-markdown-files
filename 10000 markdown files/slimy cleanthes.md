@@ -82,3 +82,7 @@ Exactly as loud.
 Two lines.
 : Leave off quite forgot how long claws And with their hearing her friend replied rather
 
+
+## Wikilinks load test
+
+[[puddingheaded horology]]

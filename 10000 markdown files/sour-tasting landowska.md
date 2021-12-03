@@ -72,3 +72,8 @@ Go on What sort.
 Ten hours the beautiful garden
 : Last came ten soldiers who looked like her still in front of
 
+
+## Wikilinks load test
+
+[[sluttish portia tree]]
+[[blackish-brown spotted bonytongue]]

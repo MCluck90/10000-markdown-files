@@ -78,3 +78,10 @@ On various pretexts they lay
 I hope they'll do next day
 : Boots and handed over yes that's why it's getting.
 
+
+## Wikilinks load test
+
+[[in question altazimuth]]
+[[acidulent rana clamitans]]
+[[held brakeman]]
+[[cinnamon colored telecast]]

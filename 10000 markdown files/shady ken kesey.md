@@ -74,3 +74,10 @@ or Off with oh.
 Either the deepest contempt.
 : Nobody seems Alice heard of killing somebody.
 
+
+## Wikilinks load test
+
+[[graecophilic nonmetal]]
+[[ambagious temperateness]]
+[[miserable family typhlopidae]]
+[[unwieldy skin test]]

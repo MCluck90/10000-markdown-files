@@ -78,3 +78,11 @@ Really my right so small
 wow.
 : down his knuckles.
 
+
+## Wikilinks load test
+
+[[predisposed orthopteron]]
+[[chlamydeous crackerjack]]
+[[commonsensical auditory modality]]
+[[annihilating caplin]]
+[[miraculous samson]]

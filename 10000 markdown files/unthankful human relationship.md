@@ -73,3 +73,8 @@ A likely true If
 Behead that by it
 : Dinah.
 
+
+## Wikilinks load test
+
+[[sustained sweet coltsfoot]]
+[[anguished wale]]

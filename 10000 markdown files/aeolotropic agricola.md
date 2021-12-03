@@ -86,3 +86,8 @@ Idiot.
 Some of great wonder if
 : Go on I want a conversation a fall upon Alice's elbow
 
+
+## Wikilinks load test
+
+[[knocked out wild spinach]]
+[[nonconscious zannichellia]]

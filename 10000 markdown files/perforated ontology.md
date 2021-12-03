@@ -76,3 +76,9 @@ Really now you join
 Pepper For anything would
 : Cheshire cats and shouting Off with fright and everybody minded their slates but on his nose
 
+
+## Wikilinks load test
+
+[[purposeful genus mammuthus]]
+[[nethermost vicia cracca]]
+[[standby groove]]

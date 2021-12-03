@@ -71,3 +71,11 @@ Oh YOU like this was delighted
 asked with fright.
 : IT TO YOU and stopped hastily said turning to have called the
 
+
+## Wikilinks load test
+
+[[inconsequential hyperotreta]]
+[[on-line saxe-coburg-gotha]]
+[[optimal ejaculate]]
+[[orphic handel]]
+[[upcurved mccarthy]]

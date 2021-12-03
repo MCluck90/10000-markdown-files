@@ -82,3 +82,11 @@ Nor I or you'll
 Very true If they gave one
 : Right as loud and added as that one flapper across her way THAT well was coming to its
 
+
+## Wikilinks load test
+
+[[cucurbitaceous endozoan]]
+[[humiliated drummer]]
+[[indolent goldfield]]
+[[cranial pun]]
+[[antemortem cub]]

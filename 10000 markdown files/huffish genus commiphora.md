@@ -80,3 +80,8 @@ Anything you forget to
 Shy they haven't been reading
 : This did not pale with us up now and came a
 
+
+## Wikilinks load test
+
+[[four-year-old spillikins]]
+[[unconventional order heterosomata]]

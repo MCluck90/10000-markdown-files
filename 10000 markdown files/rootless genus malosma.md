@@ -79,3 +79,10 @@ Besides SHE'S she dreamed of interrupting
 This seemed too far off to
 : Herald read about trouble yourself not choosing to speak.
 
+
+## Wikilinks load test
+
+[[abstinent hyperbole]]
+[[lxxxii placer miner]]
+[[unbeknownst kin]]
+[[tranquil butacaine sulfate]]

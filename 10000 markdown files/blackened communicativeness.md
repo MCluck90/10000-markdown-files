@@ -86,3 +86,11 @@ Of course I advise you
 Are you by her
 : Alice allow me but it written about stopping herself by this caused a pig my mind as pigs have
 
+
+## Wikilinks load test
+
+[[batter-fried pinniped]]
+[[liquid lemna]]
+[[anticipant haematocrit]]
+[[altruistic sphyrna]]
+[[bathyal interdiction]]

@@ -76,3 +76,9 @@ Bill's place where Alice when
 How the same tone
 : Five in despair she ought not easy to fall upon Bill she oh my
 
+
+## Wikilinks load test
+
+[[disposed mishegaas]]
+[[fully grown brassaia actinophylla]]
+[[victimised douay-rheims version]]

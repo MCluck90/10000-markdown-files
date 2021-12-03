@@ -84,3 +84,10 @@ he repeated impatiently and I'm
 Pat what's the locks I
 : Prizes.
 
+
+## Wikilinks load test
+
+[[two-wheeled spoilation]]
+[[apothecial pteropogon humboltianum]]
+[[stunning rote]]
+[[hundred-and-first medical man]]

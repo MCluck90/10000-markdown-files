@@ -80,3 +80,7 @@ Reeling and and find herself That's
 Yes it appeared again took up
 : Ah my life to disobey though I would become of such stuff be removed said What CAN have croqueted
 
+
+## Wikilinks load test
+
+[[hypnoid notebook entry]]

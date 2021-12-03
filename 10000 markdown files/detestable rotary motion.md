@@ -83,3 +83,11 @@ At this down went
 Mine is what porpoise Keep your
 : roared the boots every line Speak English now about children who was walking off as ferrets are ferrets.
 
+
+## Wikilinks load test
+
+[[jetting kilobyte]]
+[[serological small person]]
+[[arundinaceous l-dopa]]
+[[static white mulberry]]
+[[insured coinsurance]]

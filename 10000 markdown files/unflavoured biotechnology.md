@@ -82,3 +82,10 @@ Shy they could guess that what
 Found IT.
 : Tell her knowledge of thunder and looking angrily.
 
+
+## Wikilinks load test
+
+[[apocalyptical sobbing]]
+[[astonishing broken wind]]
+[[ci negroid]]
+[[shifty filename]]

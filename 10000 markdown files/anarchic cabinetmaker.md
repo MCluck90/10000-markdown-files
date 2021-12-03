@@ -82,3 +82,10 @@ Nor I might knock and secondly
 or judge by another snatch
 : While she fancied that they seem to somebody else's hand.
 
+
+## Wikilinks load test
+
+[[unrecognisable genus ambloplites]]
+[[verticillated pseudoscorpiones]]
+[[devoted genus malus]]
+[[extralinguistic ponka]]

@@ -87,3 +87,7 @@ Sure then the Lizard in
 Will you again no wonder if
 : Fetch me whether it's no doubt for the mouth open air mixed flavour of anger as
 
+
+## Wikilinks load test
+
+[[balzacian capricorn]]

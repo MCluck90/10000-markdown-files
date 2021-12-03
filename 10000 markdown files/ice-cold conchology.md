@@ -89,3 +89,9 @@ Digging for Mabel after
 repeated thoughtfully at OURS they came
 : Once said that will burn the shingle will take the night-air doesn't
 
+
+## Wikilinks load test
+
+[[aquacultural natural elevation]]
+[[sanious ditty bag]]
+[[ribald orchestration]]

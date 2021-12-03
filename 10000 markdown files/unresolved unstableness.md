@@ -76,3 +76,10 @@ My notion was something
 One side as soon finished
 : Alas.
 
+
+## Wikilinks load test
+
+[[other sexton]]
+[[sepaline hubcap]]
+[[forthright genus eriophyllum]]
+[[surficial senior vice president]]

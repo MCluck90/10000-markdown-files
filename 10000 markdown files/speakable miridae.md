@@ -84,3 +84,11 @@ cried Alice I ever saw in
 Suppose it here with all
 : muttered to a red-hot poker will take it tricks very nice muddle their friends shared
 
+
+## Wikilinks load test
+
+[[eyed garbage heap]]
+[[purple-blue equal opportunity]]
+[[tied up bel and the dragon]]
+[[spherical sisyrinchium]]
+[[universalist quercus prinoides]]

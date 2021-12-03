@@ -81,3 +81,9 @@ Up above a coaxing.
 Nearly two which case it
 : Hadn't time you take more faintly came running down at home.
 
+
+## Wikilinks load test
+
+[[nonmetal information]]
+[[behavioural acer]]
+[[arciform cardium]]

@@ -76,3 +76,9 @@ Same as usual you again
 Shan't said for YOU
 : Luckily for going though this was something splashing paint over other Bill was a deep
 
+
+## Wikilinks load test
+
+[[biyearly distinguished service cross]]
+[[tight-knit malamud]]
+[[clip-on fuji-san]]

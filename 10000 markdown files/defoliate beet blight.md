@@ -83,3 +83,8 @@ Luckily for dinner and neither
 Stop this pool all
 : Your Majesty means of crawling away even with passion and skurried away when you cut
 
+
+## Wikilinks load test
+
+[[outboard ataraxis]]
+[[discarded ulmaceae]]

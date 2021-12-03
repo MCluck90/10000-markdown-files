@@ -82,3 +82,11 @@ _I_ shan't.
 Wouldn't it watched the
 : By this.
 
+
+## Wikilinks load test
+
+[[flirtatious commerce department]]
+[[oversexed salal]]
+[[vapid bureaucratic procedure]]
+[[self-coloured basuco]]
+[[detested social organisation]]

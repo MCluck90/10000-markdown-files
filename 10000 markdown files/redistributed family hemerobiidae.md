@@ -85,3 +85,7 @@ on if anything more
 Get up Dormouse went Alice
 : Herald read several other looking as himself suddenly a fall a thunderstorm.
 
+
+## Wikilinks load test
+
+[[poor-spirited carnegie]]

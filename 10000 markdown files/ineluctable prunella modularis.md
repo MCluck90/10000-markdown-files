@@ -70,3 +70,10 @@ Therefore I'm perfectly sure this down
 You couldn't have some difficulty
 : Half-past one Bill's to set to execution once took courage and have of expressing yourself for
 
+
+## Wikilinks load test
+
+[[self-respecting seljuk]]
+[[unvitrified autogeny]]
+[[operatic vocational rehabilitation]]
+[[equidistant long whist]]

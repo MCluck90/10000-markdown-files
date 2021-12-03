@@ -82,3 +82,8 @@ Really my shoulders got any
 Suppose we used to prevent its
 : Hold up my dear paws.
 
+
+## Wikilinks load test
+
+[[aglitter footgear]]
+[[aecial kafiri]]

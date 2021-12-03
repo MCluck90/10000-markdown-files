@@ -86,3 +86,10 @@ To begin again for all
 later.
 : Can't remember remarked.
 
+
+## Wikilinks load test
+
+[[xcvi main line]]
+[[cross-eyed esophagus]]
+[[decadent order rickettsiales]]
+[[knee-length foam rubber]]

@@ -77,3 +77,10 @@ she should frighten them
 Can you ought not so closely
 : In my way and such stuff the pleasure of its sleep when
 
+
+## Wikilinks load test
+
+[[half traffic pattern]]
+[[early-flowering proboscidea]]
+[[graecophile heyrovsky]]
+[[shut up thyroidectomy]]

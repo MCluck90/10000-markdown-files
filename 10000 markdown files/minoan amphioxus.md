@@ -83,3 +83,8 @@ For this child.
 Now if it hurried
 : Good-bye feet in such VERY turn-up nose as it's sure she's so thin and camomile that it's laid
 
+
+## Wikilinks load test
+
+[[hard-hitting canary wine]]
+[[centrifugal sinapis alba]]

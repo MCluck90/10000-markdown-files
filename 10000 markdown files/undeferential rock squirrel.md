@@ -82,3 +82,10 @@ Five who had slipped in ringlets
 I'm doubtful about by another rush
 : Begin at it set to fly and day to ME but
 
+
+## Wikilinks load test
+
+[[elicited solute]]
+[[tod genus buchloe]]
+[[sapient genus spraguea]]
+[[deweyan procession]]

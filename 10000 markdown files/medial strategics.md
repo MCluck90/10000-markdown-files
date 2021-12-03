@@ -88,3 +88,8 @@ Mary Ann.
 Luckily for yourself said but
 : it grunted in.
 
+
+## Wikilinks load test
+
+[[exceptional landowska]]
+[[connected james clerk maxwell]]

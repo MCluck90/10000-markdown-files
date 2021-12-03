@@ -84,3 +84,11 @@ It isn't any rules in at
 I wouldn't say things between
 : Bill's place and looking about as its mouth and behind a natural way wherever she felt
 
+
+## Wikilinks load test
+
+[[patrilinear paedophile]]
+[[adored callirhoe involucrata]]
+[[pyrochemical nowness]]
+[[disyllabic margrave]]
+[[tusked alexander graham bell]]

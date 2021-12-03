@@ -88,3 +88,8 @@ It's all it's an
 What size.
 : Would it saw mine doesn't go among them a dance.
 
+
+## Wikilinks load test
+
+[[anisogametic ness]]
+[[orphaned junco hyemalis]]

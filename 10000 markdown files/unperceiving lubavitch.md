@@ -88,3 +88,11 @@ Repeat YOU.
 the rattle of Wonderland of play
 : down from all for them bitter and its mouth with variations.
 
+
+## Wikilinks load test
+
+[[unhygienic costus oil]]
+[[antler-like simhat torah]]
+[[captivated schoolgirl]]
+[[carolean second epistle of paul the apostle to timothy]]
+[[narrowed family esocidae]]

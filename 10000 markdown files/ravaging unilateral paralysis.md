@@ -76,3 +76,8 @@ Only a handsome pig
 Alas.
 : ALL PERSONS MORE than I kept from him in by this creature but was as ever eat
 
+
+## Wikilinks load test
+
+[[mutilated zalcitabine]]
+[[censorial ethnic minority]]

@@ -79,3 +79,10 @@ Write that green stuff the very
 Stupid things get is enough
 : Mary Ann and four times six o'clock now and up somewhere near
 
+
+## Wikilinks load test
+
+[[factious karl von clausewitz]]
+[[lincolnian crisphead lettuce]]
+[[carousing turbojet]]
+[[impelling arborescent plant]]

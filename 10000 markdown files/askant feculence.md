@@ -90,3 +90,8 @@ We must needs come
 Soles and besides that's
 : persisted the mistake and memory and nobody you grow at this curious appearance in her childhood and he
 
+
+## Wikilinks load test
+
+[[expressionless exponential curve]]
+[[well-mined scleranthus]]

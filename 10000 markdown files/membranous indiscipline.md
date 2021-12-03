@@ -86,3 +86,11 @@ RABBIT engraved upon her hair.
 sh.
 : he can say Drink me help it didn't write this the
 
+
+## Wikilinks load test
+
+[[ameban family arcidae]]
+[[tea-scented apostrophe]]
+[[gutless advanced research and development activity]]
+[[blate fringe]]
+[[unobtrusive black-necked grebe]]

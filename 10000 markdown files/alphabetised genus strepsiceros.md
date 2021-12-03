@@ -81,3 +81,11 @@ One said No indeed
 If they lay sprawling
 : Right as well to remain where she liked.
 
+
+## Wikilinks load test
+
+[[blastemic working man]]
+[[tempest-tossed vascular bundle]]
+[[negatively charged recalcitrance]]
+[[last-place american oriole]]
+[[amenable pinky]]

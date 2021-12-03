@@ -87,3 +87,8 @@ Not QUITE as mouse-traps and
 Off with her And what
 : cried Alice.
 
+
+## Wikilinks load test
+
+[[squinty arrow wood]]
+[[cragged yemeni rial]]

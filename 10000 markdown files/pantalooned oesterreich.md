@@ -78,3 +78,9 @@ Therefore I'm glad they couldn't guess
 IF I fancied she found
 : wow.
 
+
+## Wikilinks load test
+
+[[boisterous quellung reaction]]
+[[amalgamate pargetry]]
+[[chlamydeous crackerjack]]

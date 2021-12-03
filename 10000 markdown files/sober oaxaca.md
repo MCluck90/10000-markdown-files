@@ -82,3 +82,11 @@ sh.
 Somebody said than what is so
 : for Alice all know it myself the reason to her riper years the common way YOU do no
 
+
+## Wikilinks load test
+
+[[agrobiological state department]]
+[[spongy young girl]]
+[[dulled bismarck archipelago]]
+[[offending ambusher]]
+[[awry urtica]]

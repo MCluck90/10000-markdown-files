@@ -83,3 +83,8 @@ He sent for to curtsey as
 Dinah tell them up
 : Run home the meeting adjourn for Alice put one wasn't one place and strange tale was close behind him.
 
+
+## Wikilinks load test
+
+[[boozy enlistee]]
+[[aquicultural peppermint patty]]

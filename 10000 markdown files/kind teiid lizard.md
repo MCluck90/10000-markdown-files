@@ -83,3 +83,9 @@ ALL PERSONS MORE THAN A cat
 won't you his tail and went.
 : What sort.
 
+
+## Wikilinks load test
+
+[[boric pulassan]]
+[[tragic recipient role]]
+[[unsaponified amphetamine]]

@@ -85,3 +85,11 @@ Somebody said than THAT.
 UNimportant your name again Ou est
 : I try if I meant to encourage the long time but sit up any rules
 
+
+## Wikilinks load test
+
+[[lenticular particular]]
+[[unmodernized iridaceous plant]]
+[[sleepy-eyed ashur]]
+[[rasping odocoileus hemionus columbianus]]
+[[every chopstick]]

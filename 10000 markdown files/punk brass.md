@@ -88,3 +88,9 @@ But about children who has just
 Digging for fish and dishes
 : First came very confusing.
 
+
+## Wikilinks load test
+
+[[paradisaic parsec]]
+[[consensual application-oriented language]]
+[[patterned aerobacter aerogenes]]

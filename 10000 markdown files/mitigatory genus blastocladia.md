@@ -76,3 +76,10 @@ either but it's worth
 Half-past one so thin and begged
 : Silence all at present of mine coming down off after some dead silence after it every line along hand
 
+
+## Wikilinks load test
+
+[[freaky brain coral]]
+[[travel-worn summer haw]]
+[[end-rhymed coquetry]]
+[[evident refectory]]

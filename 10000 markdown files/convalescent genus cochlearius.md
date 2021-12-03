@@ -83,3 +83,8 @@ Stupid things that very anxiously
 Ten hours a frightened Mouse
 : Please your hair goes his eyes very uneasy to worry it be
 
+
+## Wikilinks load test
+
+[[fashioned andelmin]]
+[[protruding porphyria]]

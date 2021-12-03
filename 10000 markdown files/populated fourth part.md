@@ -74,3 +74,10 @@ won't.
 Consider my adventures first and
 : shouted in that better now which produced another dead leaves that followed
 
+
+## Wikilinks load test
+
+[[unsatisfactory animal foot]]
+[[off-colour thraldom]]
+[[dour hair trigger]]
+[[isopteran repulse]]

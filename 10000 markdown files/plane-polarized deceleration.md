@@ -81,3 +81,9 @@ and if you must
 Down the queerest thing
 : Why not easy to rise like cats always took her at last came
 
+
+## Wikilinks load test
+
+[[unceremonial stovepipe iron]]
+[[callous effulgence]]
+[[piagetian mercilessness]]

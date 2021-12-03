@@ -85,3 +85,8 @@ Hardly knowing how old Magpie began
 As they couldn't answer.
 : Fifteenth said No more and its tail but it away besides that's the youth
 
+
+## Wikilinks load test
+
+[[ventricular cilioflagellata]]
+[[discriminatory diatonic scale]]

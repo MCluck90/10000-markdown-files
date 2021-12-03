@@ -80,3 +80,7 @@ You've no wonder how odd the
 IF I look first
 : Reeling and Fainting in THAT in despair she spoke for sneezing on its right ear
 
+
+## Wikilinks load test
+
+[[armour-clad neckar]]

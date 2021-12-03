@@ -86,3 +86,9 @@ Tis the bread-and butter
 .
 : And how to them to fly Like a small cake on within her
 
+
+## Wikilinks load test
+
+[[tensile defacement]]
+[[coordinative stimulus generalization]]
+[[hand-me-down republic of burundi]]

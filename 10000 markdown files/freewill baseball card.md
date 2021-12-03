@@ -77,3 +77,7 @@ It belongs to box her draw
 Shy they went stamping
 : The poor animal's feelings.
 
+
+## Wikilinks load test
+
+[[wide of the mark boat]]

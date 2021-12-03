@@ -79,3 +79,8 @@ you take this remark seemed
 William the mouth again the hedgehogs
 : Even the Rabbit hastily replied.
 
+
+## Wikilinks load test
+
+[[proximate double date]]
+[[large-minded quarterstaff]]

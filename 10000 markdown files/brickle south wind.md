@@ -81,3 +81,8 @@ Chorus again or any other
 wow.
 : Those whom she again.
 
+
+## Wikilinks load test
+
+[[unemployed money order]]
+[[new-mown ice-skating rink]]

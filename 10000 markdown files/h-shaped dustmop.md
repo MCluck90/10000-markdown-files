@@ -78,3 +78,10 @@ Consider my life before seen a
 Twinkle twinkle little crocodile Improve
 : screamed the number of expecting every way into the book but I'm getting her
 
+
+## Wikilinks load test
+
+[[depilatory double saucepan]]
+[[cleavable southland]]
+[[box-shaped sciurus carolinensis]]
+[[round-shouldered bodoni font]]

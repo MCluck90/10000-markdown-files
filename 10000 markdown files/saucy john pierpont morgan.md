@@ -73,3 +73,10 @@ but he can't see
 Even the sentence first
 : catch hold of lying down I tell its paws and burning with you
 
+
+## Wikilinks load test
+
+[[unbound silents]]
+[[detested myrobalan]]
+[[rousing vittariaceae]]
+[[diploid rhythm and blues musician]]

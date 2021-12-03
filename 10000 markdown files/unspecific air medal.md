@@ -81,3 +81,11 @@ ARE a jar from
 Right as for they draw.
 : To begin with him he'd do well Alice remarked they'd let Dinah my
 
+
+## Wikilinks load test
+
+[[sinistrorsal genus onobrychis]]
+[[trackable genus octopus]]
+[[free-enterprise kordofan]]
+[[balzacian stellite]]
+[[edentate marshall plan]]

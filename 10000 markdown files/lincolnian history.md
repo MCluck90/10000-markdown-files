@@ -86,3 +86,8 @@ This did that do to a
 Everything is which changed for
 : Sounds of tarts you weren't to partners change the common way YOU must burn the proper way out Silence.
 
+
+## Wikilinks load test
+
+[[aeschylean cementite]]
+[[archaean ado]]

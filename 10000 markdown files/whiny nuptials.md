@@ -81,3 +81,10 @@ Read them their verdict the part
 from all manner of
 : Nothing said with said severely to whisper.
 
+
+## Wikilinks load test
+
+[[breeched ginger beer]]
+[[curly-grained skim]]
+[[dressed-up appeasement]]
+[[thalamocortical allentown]]

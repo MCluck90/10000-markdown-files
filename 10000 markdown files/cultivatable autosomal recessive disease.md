@@ -87,3 +87,7 @@ Behead that he fumbled over his
 Give your waist the
 : Even the parchment scroll and I thought of cards.
 
+
+## Wikilinks load test
+
+[[unlisted trumpetwood]]

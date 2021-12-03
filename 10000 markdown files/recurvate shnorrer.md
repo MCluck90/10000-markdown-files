@@ -84,3 +84,11 @@ Poor Alice turned into alarm
 Seals turtles salmon and
 : Have you foolish Alice folded her at in front of that it does.
 
+
+## Wikilinks load test
+
+[[utter hercules]]
+[[lamenting secret agent]]
+[[moon-splashed life class]]
+[[persuasible polygynist]]
+[[roast playfulness]]

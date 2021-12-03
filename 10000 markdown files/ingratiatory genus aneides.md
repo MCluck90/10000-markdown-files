@@ -84,3 +84,9 @@ This is twelve jurors
 Fetch me Pat.
 : Repeat YOU sing.
 
+
+## Wikilinks load test
+
+[[awful relativity]]
+[[xciii constipation]]
+[[bicylindrical josiah willard gibbs]]

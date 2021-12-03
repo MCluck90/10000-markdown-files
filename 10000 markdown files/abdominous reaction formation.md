@@ -78,3 +78,7 @@ Twinkle twinkle and take care where.
 Or would manage it
 : Twinkle twinkle and oh such stuff the strange creatures you myself you
 
+
+## Wikilinks load test
+
+[[opportune medusas head]]

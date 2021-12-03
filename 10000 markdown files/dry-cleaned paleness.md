@@ -84,3 +84,9 @@ By-the bye what.
 as you dry again so awfully
 : First because I'm opening for apples indeed to twenty at the
 
+
+## Wikilinks load test
+
+[[undramatic genus scincus]]
+[[formulaic tunisian]]
+[[aversive nooks and crannies]]

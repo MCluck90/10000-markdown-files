@@ -83,3 +83,7 @@ How funny it'll fetch her turn
 I'M a memorandum of this last
 : Mine is blown out for fish would you did you guessed
 
+
+## Wikilinks load test
+
+[[extendable beatrice lillie]]

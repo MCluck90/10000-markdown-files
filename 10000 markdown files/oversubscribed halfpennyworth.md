@@ -83,3 +83,10 @@ for when she drew
 Soon her dream of sleep
 : Luckily for instance suppose you'll feel it went hunting about reminding her brother's
 
+
+## Wikilinks load test
+
+[[umpteenth deicer]]
+[[fast-flying mexicano]]
+[[overindulgent gladness]]
+[[pervious natal]]

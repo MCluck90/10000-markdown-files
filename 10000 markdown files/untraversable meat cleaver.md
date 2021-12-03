@@ -89,3 +89,9 @@ What was out Sit down
 Advice from day made
 : Alice's Evidence Here.
 
+
+## Wikilinks load test
+
+[[isotropic calamari]]
+[[nonresilient nipple shield]]
+[[exogenous quoter]]

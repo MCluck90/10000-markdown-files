@@ -81,3 +81,8 @@ Give your head first
 either you have any
 : Yes that's because the arches.
 
+
+## Wikilinks load test
+
+[[plentiful gluon]]
+[[unbitter arabian nights entertainment]]

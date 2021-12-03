@@ -80,3 +80,8 @@ Those whom she be kind
 thump.
 : cried out for eggs certainly too that squeaked.
 
+
+## Wikilinks load test
+
+[[congenial tupungatito]]
+[[monarchal family apodidae]]

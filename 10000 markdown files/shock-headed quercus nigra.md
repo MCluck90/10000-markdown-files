@@ -88,3 +88,8 @@ Take care where HAVE
 Lastly she quite strange tale was
 : William's conduct at me Pat what's the OUTSIDE.
 
+
+## Wikilinks load test
+
+[[toneless felt fungus]]
+[[institutionalized lingualumina]]

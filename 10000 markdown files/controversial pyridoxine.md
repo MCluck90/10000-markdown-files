@@ -83,3 +83,7 @@ Hush.
 I'LL soon left no business the
 : here.
 
+
+## Wikilinks load test
+
+[[butterfingered ferdinand ii]]

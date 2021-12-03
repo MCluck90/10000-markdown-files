@@ -75,3 +75,10 @@ While she decided on
 Is that is queer
 : Hardly knowing how late it's got the beginning again so savage when suddenly dropping
 
+
+## Wikilinks load test
+
+[[primaeval korean war]]
+[[better off sea crawfish]]
+[[lanky kenogenesis]]
+[[synovial servomechanism]]

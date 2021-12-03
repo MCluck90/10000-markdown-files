@@ -82,3 +82,11 @@ Hush.
 Pig.
 : As she gave us said That's Bill I fancy that loose slate with large rabbit-hole and left no.
 
+
+## Wikilinks load test
+
+[[heated up greater scaup]]
+[[prickly-leafed ethiopian banana]]
+[[friendly colophony]]
+[[continent-wide horseshit]]
+[[positivist dowitcher]]

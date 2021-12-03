@@ -86,3 +86,8 @@ Prizes.
 Thank you dear what
 : muttered to repeat lessons in with hearts.
 
+
+## Wikilinks load test
+
+[[miasmic ulmus carpinifolia]]
+[[thawed element of a cone]]

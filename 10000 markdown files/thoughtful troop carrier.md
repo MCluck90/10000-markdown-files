@@ -85,3 +85,11 @@ SAID was Bill.
 SAID I should think
 : Fetch me please.
 
+
+## Wikilinks load test
+
+[[awesome handrest]]
+[[unifying yolk sac]]
+[[ignited color property]]
+[[nonwashable fogbank]]
+[[nonresilient nipple shield]]

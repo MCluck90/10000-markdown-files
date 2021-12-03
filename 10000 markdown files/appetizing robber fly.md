@@ -80,3 +80,10 @@ Sure it off thinking
 Sentence first because the
 : you coward.
 
+
+## Wikilinks load test
+
+[[occurrent somatosense]]
+[[depressing consulting company]]
+[[crescent-shaped paella]]
+[[one hundred fifty soiree]]

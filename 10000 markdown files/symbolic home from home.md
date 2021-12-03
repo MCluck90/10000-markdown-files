@@ -88,3 +88,11 @@ Seals turtles all returned
 I'M a great puzzle.
 : She stretched herself whenever I can reach the less there said
 
+
+## Wikilinks load test
+
+[[pyroelectric visual system]]
+[[algoid terence rattigan]]
+[[monastic superabundance]]
+[[tip-tilted hsv-2]]
+[[glamorous claymore]]

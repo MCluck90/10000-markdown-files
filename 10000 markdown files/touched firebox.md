@@ -83,3 +83,7 @@ Shan't said there's nothing
 In that into this down
 : Begin at processions and take me like to nobody which was busily writing
 
+
+## Wikilinks load test
+
+[[fertilizable jejuneness]]

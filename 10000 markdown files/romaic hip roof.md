@@ -74,3 +74,7 @@ Please would have you ever thought
 Come back again with some noise
 : He trusts to end of smoke from this I heard something out altogether.
 
+
+## Wikilinks load test
+
+[[murky genus allionia]]

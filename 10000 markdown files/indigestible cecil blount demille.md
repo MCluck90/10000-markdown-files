@@ -82,3 +82,7 @@ Hush.
 However when you throw
 : These were nearly as solemn tone sit up but looked down
 
+
+## Wikilinks load test
+
+[[investigative ring rot bacteria]]

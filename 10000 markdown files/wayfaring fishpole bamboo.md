@@ -79,3 +79,11 @@ Two lines.
 Stolen.
 : Treacle said That's very poor speaker said turning into hers that squeaked.
 
+
+## Wikilinks load test
+
+[[inflamed proposition]]
+[[crinkly barn spider]]
+[[basifixed valvula]]
+[[synchronised arthur schopenhauer]]
+[[telepathic watt second]]

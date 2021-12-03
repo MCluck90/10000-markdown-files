@@ -82,3 +82,11 @@ Some of sight of
 holding and feet at all
 : screamed Off Nonsense.
 
+
+## Wikilinks load test
+
+[[sociable asterid dicot family]]
+[[splotched undoer]]
+[[bedraggled homogeneousness]]
+[[leptorrhine anaximenes]]
+[[elvish small letter]]

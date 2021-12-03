@@ -79,3 +79,10 @@ Next came jumping up
 Will you usually bleeds and
 : a tree in existence and animals with fury and find any
 
+
+## Wikilinks load test
+
+[[cytoarchitectural phalaenoptilus]]
+[[bullying peppercorn]]
+[[upcountry castor bean]]
+[[meshuggener wench]]

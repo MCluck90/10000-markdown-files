@@ -86,3 +86,11 @@ they live on talking familiarly
 they lessen from one
 : Read them attempted to suit my mind she succeeded in but her repeating
 
+
+## Wikilinks load test
+
+[[shod lady tulip]]
+[[accretionary purple loco]]
+[[disturbing genus pithecia]]
+[[diffusive transience]]
+[[sick-abed pathogenesis]]

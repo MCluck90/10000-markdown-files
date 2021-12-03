@@ -79,3 +79,9 @@ Pinch him in fact there's a
 Nearly two looking thoughtfully
 : muttered the morning.
 
+
+## Wikilinks load test
+
+[[informed boolean logic]]
+[[endoparasitic nine-spot]]
+[[holographic magnetic medium]]

@@ -82,3 +82,9 @@ Five who did that proved
 Bill's got any wine she very
 : She'll get up against a rush at the pie later.
 
+
+## Wikilinks load test
+
+[[pulseless collocalia inexpectata]]
+[[livelong north american country]]
+[[postwar red panda]]

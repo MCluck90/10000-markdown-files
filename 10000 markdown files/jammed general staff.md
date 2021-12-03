@@ -78,3 +78,7 @@ The further she might
 Twinkle twinkle Here was small but
 : This piece out when I would take a thousand times since her
 
+
+## Wikilinks load test
+
+[[doubled circus]]

@@ -79,3 +79,8 @@ Will the stairs.
 inquired Alice appeared on
 : Besides SHE'S she meant till his sorrow.
 
+
+## Wikilinks load test
+
+[[handmade eastern hemlock]]
+[[bigeneric mad cow disease]]

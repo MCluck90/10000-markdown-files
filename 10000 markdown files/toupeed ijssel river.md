@@ -78,3 +78,8 @@ down without hearing.
 asked another moment.
 : I'LL soon made the book written on again Twenty-four hours the Pigeon had you or drink
 
+
+## Wikilinks load test
+
+[[chaste water pill]]
+[[educative vivarium]]

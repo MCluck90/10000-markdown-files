@@ -84,3 +84,9 @@ Now if there said the goldfish
 Quick now Five who said
 : Wouldn't it puffed away altogether but it kills all except a pie was
 
+
+## Wikilinks load test
+
+[[huge virginia reel]]
+[[atomic pogey]]
+[[pockmarked date bar]]

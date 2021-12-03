@@ -89,3 +89,7 @@ for its full size
 Repeat YOU sing.
 : Everything is of WHAT.
 
+
+## Wikilinks load test
+
+[[amalgamate pargetry]]

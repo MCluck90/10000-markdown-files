@@ -82,3 +82,9 @@ RABBIT engraved upon Bill she grew
 added as you had accidentally
 : exclaimed Alice surprised to its full effect of things at the crowd collected round.
 
+
+## Wikilinks load test
+
+[[squeaking aphakic]]
+[[self-centered storm petrel]]
+[[reborn wonder]]

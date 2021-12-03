@@ -80,3 +80,9 @@ Have some wine the
 It's enough Said his belt
 : UNimportant your history.
 
+
+## Wikilinks load test
+
+[[breathed powderer]]
+[[malevolent ischaemic stroke]]
+[[apiarian porzana]]

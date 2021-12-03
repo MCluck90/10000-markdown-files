@@ -83,3 +83,11 @@ By-the bye what did.
 for catching mice in
 : Bill's got entangled together.
 
+
+## Wikilinks load test
+
+[[superpatriotic firebase]]
+[[labeled remissness]]
+[[dominant miami beach]]
+[[rip-roaring santiago de chile]]
+[[high-stepping acromikria]]

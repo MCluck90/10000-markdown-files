@@ -83,3 +83,9 @@ Up lazy thing about me to
 Ahem.
 : HEARTHRUG NEAR THE COURT.
 
+
+## Wikilinks load test
+
+[[tutelary chimonanthus praecox]]
+[[overindulgent diagnostic technique]]
+[[frivolous great-nephew]]

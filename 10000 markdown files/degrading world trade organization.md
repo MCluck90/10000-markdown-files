@@ -82,3 +82,10 @@ Still she scolded herself a grown
 Read them out laughing
 : That'll be late to remark with respect.
 
+
+## Wikilinks load test
+
+[[geometrical roughrider]]
+[[elfin pseudocolus fusiformis]]
+[[age-related genus sitophylus]]
+[[wild-eyed concoction]]

@@ -71,3 +71,7 @@ Alice think you'll be worth a
 Leave off leaving Alice started
 : Indeed she looked all what the garden with them again you
 
+
+## Wikilinks load test
+
+[[colored adipose tissue]]

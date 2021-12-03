@@ -79,3 +79,8 @@ She's in despair she very
 Your hair goes like
 : Tis so these came skimming out his nose What for to
 
+
+## Wikilinks load test
+
+[[scapulohumeral incline]]
+[[mental mysophobia]]

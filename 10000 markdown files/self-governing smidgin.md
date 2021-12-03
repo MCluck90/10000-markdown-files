@@ -79,3 +79,8 @@ YOU.
 You might catch a series
 : CHORUS.
 
+
+## Wikilinks load test
+
+[[exact truck traffic]]
+[[blastemic working man]]

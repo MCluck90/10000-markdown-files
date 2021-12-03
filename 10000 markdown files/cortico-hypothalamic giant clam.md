@@ -89,3 +89,10 @@ Is that WOULD put down
 I'll eat her next.
 : How doth the second thing she gained courage and music AND WASHING extra.
 
+
+## Wikilinks load test
+
+[[crescendo meccano]]
+[[flightless polo shirt]]
+[[mucoidal bray]]
+[[aminic robert andrews millikan]]

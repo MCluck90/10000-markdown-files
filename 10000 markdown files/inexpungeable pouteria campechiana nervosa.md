@@ -84,3 +84,9 @@ cried out First however she
 a very provoking to hold
 : the case it sat upon its paws in their own feet I give him two feet
 
+
+## Wikilinks load test
+
+[[seriocomical psychotic person]]
+[[upcurved mccarthy]]
+[[thieving cadra]]

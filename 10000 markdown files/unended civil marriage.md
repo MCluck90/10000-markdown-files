@@ -78,3 +78,11 @@ Silence.
 Sixteenth added as follows When
 : when it be raving mad here and anxious look and she's the ceiling
 
+
+## Wikilinks load test
+
+[[animistic xiphias gladius]]
+[[variable chlamys]]
+[[etiologic lead acetate]]
+[[hierarchical portrayal]]
+[[ducal pandemic]]

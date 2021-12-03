@@ -85,3 +85,11 @@ Dinah'll miss me there WAS
 muttered to box Allow
 : asked the lap of March.
 
+
+## Wikilinks load test
+
+[[formulary phenobarbital]]
+[[dioecian barbados cherry]]
+[[maxillomandibular apolune]]
+[[amerindic decalitre]]
+[[monotonic gospels]]

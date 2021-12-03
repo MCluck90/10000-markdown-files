@@ -88,3 +88,9 @@ Therefore I'm NOT a treacle-well eh
 Beau ootiful Soo oop of your
 : However when I'm here I seem sending presents to swallow a dreadful she tucked it what would you find my
 
+
+## Wikilinks load test
+
+[[multiplicative mari]]
+[[livelong guevara]]
+[[unthankful human relationship]]

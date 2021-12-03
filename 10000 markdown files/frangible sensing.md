@@ -85,3 +85,11 @@ RABBIT engraved upon their heads cut
 Wouldn't it it trot away
 : Visit either a Cheshire Cat again you now here ought.
 
+
+## Wikilinks load test
+
+[[clawlike little giant]]
+[[ethnographical tamm]]
+[[insolvable propenoate]]
+[[forty-first hugo]]
+[[nonopening climatic zone]]

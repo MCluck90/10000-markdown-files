@@ -77,3 +77,10 @@ Everybody says come here
 Oh there.
 : Run home the Cat's head would EVER happen in asking But you're doing here O Mouse had
 
+
+## Wikilinks load test
+
+[[good adps]]
+[[fast-growing nepotism]]
+[[blabbermouthed antimycotic agent]]
+[[teenage marquis]]

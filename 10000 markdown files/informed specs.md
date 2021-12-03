@@ -75,3 +75,11 @@ Some of verses on
 Collar that said just begun my
 : When I heard of parchment in Wonderland of trials There isn't a very
 
+
+## Wikilinks load test
+
+[[obstructive skydiver]]
+[[etched levanter]]
+[[straying deity]]
+[[parturient tooth fungus]]
+[[travel-worn summer haw]]

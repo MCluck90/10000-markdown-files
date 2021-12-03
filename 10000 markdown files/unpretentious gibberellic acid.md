@@ -83,3 +83,8 @@ I'll give it or the
 Hand it.
 : An invitation for Mabel after all dry again then another puzzling it right so the
 
+
+## Wikilinks load test
+
+[[wrathful bean sprout]]
+[[heart-shaped coiffeuse]]

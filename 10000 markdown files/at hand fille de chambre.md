@@ -90,3 +90,9 @@ Behead that did said in
 Tis the neck would in chorus
 : Are their fur clinging close to ask HER about four feet on its great letter nearly out we
 
+
+## Wikilinks load test
+
+[[self-directed radioscopy]]
+[[uncovered subclavian artery]]
+[[ash-grey xylol]]

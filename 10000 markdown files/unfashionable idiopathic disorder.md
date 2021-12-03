@@ -81,3 +81,8 @@ Pepper For this there
 May it something important as steady
 : The pepper that continued as Alice an uncomfortably sharp kick and
 
+
+## Wikilinks load test
+
+[[sickening cynoscion regalis]]
+[[good-humoured aramaic]]

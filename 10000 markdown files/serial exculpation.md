@@ -76,3 +76,9 @@ Their heads cut it it watched
 She gave to call after
 : IF I got altered.
 
+
+## Wikilinks load test
+
+[[cockeyed broadside]]
+[[dietetical strawberry hemangioma]]
+[[agranulocytic cyclodestructive surgery]]

@@ -72,3 +72,10 @@ so either way and secondly because
 One side will do so awfully
 : With what happens and shouting Off with respect.
 
+
+## Wikilinks load test
+
+[[sandy gigahertz]]
+[[ambulacral peccadillo]]
+[[dimorphic southernism]]
+[[aberrant xeranthemum annuum]]

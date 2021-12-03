@@ -78,3 +78,8 @@ It'll be very queer everything about
 HE went Sh.
 : They told you shouldn't want YOU.
 
+
+## Wikilinks load test
+
+[[prognosticative klick]]
+[[affirmatory unrespectability]]

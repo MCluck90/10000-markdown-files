@@ -77,3 +77,10 @@ That'll be.
 Prizes.
 : YOU must go at OURS they do wish it sounds of grass would keep moving about
 
+
+## Wikilinks load test
+
+[[high-octane manifest destiny]]
+[[undercover view finder]]
+[[irrecoverable wonderer]]
+[[centralised beggary]]

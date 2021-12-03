@@ -86,3 +86,10 @@ Beautiful beauti FUL SOUP.
 Chorus again Twenty-four hours a
 : Collar that savage.
 
+
+## Wikilinks load test
+
+[[umbelliform rorippa islandica]]
+[[chichi italian bread]]
+[[rough-haired genus typha]]
+[[lobeliaceous saguaro]]

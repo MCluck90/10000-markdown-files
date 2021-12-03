@@ -74,3 +74,8 @@ See how she passed by way
 On various pretexts they can't
 : Ugh.
 
+
+## Wikilinks load test
+
+[[palmlike bowleg]]
+[[direct equador laurel]]

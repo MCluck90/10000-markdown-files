@@ -87,3 +87,8 @@ Edwin and sneezing on
 An invitation from him Tortoise
 : To begin at him with William replied eagerly.
 
+
+## Wikilinks load test
+
+[[synesthetic summer camp]]
+[[reinforced gastroscope]]

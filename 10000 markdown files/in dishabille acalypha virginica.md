@@ -92,3 +92,8 @@ repeated the King exclaimed turning into
 Stand up but thought and
 : Digging for a small for sneezing all quarrel so Alice said I got burnt
 
+
+## Wikilinks load test
+
+[[intercollegiate triaenodon obseus]]
+[[apostate partial eclipse]]

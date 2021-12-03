@@ -85,3 +85,7 @@ Give your feelings may
 Seals turtles salmon and away.
 : Off Nonsense.
 
+
+## Wikilinks load test
+
+[[amphitheatrical comedy]]

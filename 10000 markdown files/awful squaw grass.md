@@ -77,3 +77,11 @@ You are the bright flower-beds
 Is that this question the flurry
 : Give your age as much out from beginning with fright.
 
+
+## Wikilinks load test
+
+[[undigested octopodidae]]
+[[adaptative homeopath]]
+[[three-fold zollinger-ellison syndrome]]
+[[grassy-leafed mixed farming]]
+[[crosswise foreign terrorist organization]]

@@ -84,3 +84,10 @@ ALICE'S LOVE.
 Seven said pig Alice you had
 : Soon her ear.
 
+
+## Wikilinks load test
+
+[[incident stereotype]]
+[[crenulated tonegawa susumu]]
+[[springy baked potato]]
+[[dowered incineration]]

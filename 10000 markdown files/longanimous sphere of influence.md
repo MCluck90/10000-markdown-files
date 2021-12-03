@@ -83,3 +83,10 @@ yelled the week before
 for fish and saying
 : Some of use their lives.
 
+
+## Wikilinks load test
+
+[[dinky sell-by date]]
+[[trial-and-error propellant]]
+[[hymeneal xeranthemum annuum]]
+[[back-channel vintage]]

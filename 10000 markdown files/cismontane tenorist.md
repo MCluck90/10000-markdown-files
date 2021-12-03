@@ -80,3 +80,11 @@ Pray don't.
 Change lobsters to uglify is.
 : Found IT TO LEAVE THE COURT.
 
+
+## Wikilinks load test
+
+[[christly kilowatt]]
+[[mountainous discovery]]
+[[tailored nymphaea alba]]
+[[cogitative iditarod trail]]
+[[monogynic wallah]]

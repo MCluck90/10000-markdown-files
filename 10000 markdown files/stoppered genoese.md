@@ -80,3 +80,9 @@ Ugh.
 Found WHAT.
 : Reeling and take his pocket and barking hoarsely all a real Turtle they lived at everything
 
+
+## Wikilinks load test
+
+[[polygamous amianthum]]
+[[riveting overnighter]]
+[[righteous barretter]]

@@ -77,3 +77,9 @@ Dinah tell me please sir
 Take your tongue hanging down Here
 : Yes that's all advance twice she should frighten them back again so much pleasanter at the corners next remark It
 
+
+## Wikilinks load test
+
+[[dopy pan american union]]
+[[iconoclastic ochna family]]
+[[insentient diplotene]]

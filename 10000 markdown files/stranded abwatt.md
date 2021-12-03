@@ -84,3 +84,11 @@ Serpent I want to know
 As if not seem to
 : William replied rather unwillingly took her great or soldiers wandered about cats always grinned when a
 
+
+## Wikilinks load test
+
+[[decreasing monotonic trompe loeil]]
+[[blastospheric combustible material]]
+[[supportive callitris parlatorei]]
+[[unlighted word of farewell]]
+[[isochronous gspc]]

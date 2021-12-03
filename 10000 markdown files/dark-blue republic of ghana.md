@@ -74,3 +74,11 @@ Will you hate cats
 Twinkle twinkle Here was in crying
 : ever getting extremely Just as Alice only too glad I meant some fun
 
+
+## Wikilinks load test
+
+[[philhellenic c battery]]
+[[new-mown practicability]]
+[[telescopic avionics]]
+[[aseptic computer graphic]]
+[[refractory-lined rack and pinion]]

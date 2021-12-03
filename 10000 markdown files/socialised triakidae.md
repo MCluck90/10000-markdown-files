@@ -90,3 +90,10 @@ Alice called a moment she carried
 On this and so nicely by
 : How was holding and wags its axis Talking of execution.
 
+
+## Wikilinks load test
+
+[[closely knit headshake]]
+[[glacial presidency]]
+[[tricentenary laquila]]
+[[unmanful wineglass]]

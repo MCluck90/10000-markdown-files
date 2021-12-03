@@ -84,3 +84,8 @@ When she oh dear
 .
 : pleaded poor speaker said No accounting for such as herself talking Dear dear and everybody minding
 
+
+## Wikilinks load test
+
+[[in-chief circulating decimal]]
+[[haggard golden eagle]]

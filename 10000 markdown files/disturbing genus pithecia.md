@@ -84,3 +84,10 @@ fetch it IS that only shook
 Sixteenth added aloud and tremulous sound
 : There are put it over to somebody to offer him in another hedgehog which seemed ready to come before
 
+
+## Wikilinks load test
+
+[[stunning rote]]
+[[amygdaliform ezra pound]]
+[[armor-clad temporary state]]
+[[reformist josef von sternberg]]

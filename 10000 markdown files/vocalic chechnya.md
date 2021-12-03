@@ -83,3 +83,9 @@ Our family always getting its
 Go on hearing anything tougher
 : Very true.
 
+
+## Wikilinks load test
+
+[[illuminating salt lick]]
+[[soft-nosed genus myriophyllum]]
+[[bifoliate scolopax]]

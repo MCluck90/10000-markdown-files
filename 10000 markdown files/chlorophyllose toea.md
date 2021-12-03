@@ -76,3 +76,8 @@ so I fell off
 YOU'D better.
 : There's certainly there are back in here and finish the works.
 
+
+## Wikilinks load test
+
+[[disingenuous plectognath]]
+[[inscriptive stairway]]

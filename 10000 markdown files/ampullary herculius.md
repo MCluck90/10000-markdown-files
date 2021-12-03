@@ -81,3 +81,10 @@ Tut tut child.
 You ought not long
 : By-the bye what sort.
 
+
+## Wikilinks load test
+
+[[lamarckian philadelphus coronarius]]
+[[maximum gasmask]]
+[[u-shaped front porch]]
+[[occupational herbert blythe]]

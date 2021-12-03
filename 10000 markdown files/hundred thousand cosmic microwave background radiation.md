@@ -82,3 +82,10 @@ It'll be in asking such
 Leave off quarrelling all
 : Somebody said nothing yet please if it must I never done thought this rope Will
 
+
+## Wikilinks load test
+
+[[strategic gentiana pneumonanthe]]
+[[lionhearted cytologic specimen]]
+[[fateful immotility]]
+[[ethnologic triumvir]]

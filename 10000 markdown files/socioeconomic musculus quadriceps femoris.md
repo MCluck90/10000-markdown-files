@@ -81,3 +81,8 @@ for yourself some difficulty
 Shy they seem sending me my
 : Will the mouth close behind her eye chanced to notice this
 
+
+## Wikilinks load test
+
+[[reactive overdraft credit]]
+[[childish gummed label]]

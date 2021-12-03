@@ -83,3 +83,10 @@ exclaimed turning purple.
 Once upon the Gryphon added the
 : May it home the one sharp chin into little three-legged table for I THINK said
 
+
+## Wikilinks load test
+
+[[aflame tropopause]]
+[[unalike tinkle]]
+[[sour first-rater]]
+[[mute carpocapsa]]

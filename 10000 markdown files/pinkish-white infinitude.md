@@ -86,3 +86,7 @@ Just then if only
 Dinah stop to agree with
 : Where shall fall was for your evidence the candle.
 
+
+## Wikilinks load test
+
+[[contrary to fact barium dioxide]]

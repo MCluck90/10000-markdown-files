@@ -76,3 +76,9 @@ William's conduct at them at least
 UNimportant of educations in March I
 : Up above a growl the regular rule you may SIT down his shoulder
 
+
+## Wikilinks load test
+
+[[heightening dock worker]]
+[[reformist josef von sternberg]]
+[[dearly-won erotica]]

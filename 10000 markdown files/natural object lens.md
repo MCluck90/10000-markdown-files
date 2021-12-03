@@ -74,3 +74,8 @@ that said pig Alice began.
 his remark.
 : ALICE'S LOVE.
 
+
+## Wikilinks load test
+
+[[argillaceous genus templetonia]]
+[[daedal icteria virens]]

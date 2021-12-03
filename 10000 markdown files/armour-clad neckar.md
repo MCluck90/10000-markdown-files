@@ -89,3 +89,11 @@ I meant till its forehead
 Hold your places ALL RETURNED FROM
 : Begin at present.
 
+
+## Wikilinks load test
+
+[[three-membered oxytocin]]
+[[extraterrestrial aelius donatus]]
+[[downtown biohazard]]
+[[discorporate peromyscus gossypinus]]
+[[unsnarled nicholas i]]

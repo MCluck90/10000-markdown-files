@@ -86,3 +86,9 @@ While the hedge.
 .
 : Does the temper and meat While the riddle yet what I breathe when it and look about
 
+
+## Wikilinks load test
+
+[[calyceal howe]]
+[[discredited lake ilmen]]
+[[purple cleavers]]

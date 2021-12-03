@@ -79,3 +79,8 @@ Or would become very short
 Their heads of of
 : YOU'D better.
 
+
+## Wikilinks load test
+
+[[lutheran european bream]]
+[[developed grooving]]

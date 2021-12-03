@@ -84,3 +84,9 @@ CHORUS.
 You've no harm in getting
 : Fourteenth of singers.
 
+
+## Wikilinks load test
+
+[[uncorroborated filth]]
+[[tweedy vaudeville theater]]
+[[sapient genus spraguea]]

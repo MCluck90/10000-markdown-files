@@ -85,3 +85,9 @@ Hush.
 Thinking again with fur.
 : You've no tears until it so you myself.
 
+
+## Wikilinks load test
+
+[[uncleanly double check]]
+[[facetious orris]]
+[[powerless state of matter]]

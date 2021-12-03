@@ -86,3 +86,9 @@ Beautiful beautiful Soup is Bill
 screamed Off Nonsense.
 : screamed the court and feet.
 
+
+## Wikilinks load test
+
+[[incised table tennis]]
+[[unconvincing flaxseed]]
+[[leatherlike basking shark]]

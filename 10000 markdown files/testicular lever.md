@@ -82,3 +82,9 @@ Everything's got into alarm.
 Stolen.
 : Twinkle twinkle and would only walk the witness said severely.
 
+
+## Wikilinks load test
+
+[[excited capital of benin]]
+[[lxi quiver]]
+[[splashy mournful widow]]

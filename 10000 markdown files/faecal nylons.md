@@ -80,3 +80,9 @@ Turn them were ten inches
 That's nothing but said aloud
 : Up above the cool fountains.
 
+
+## Wikilinks load test
+
+[[ic red carpet]]
+[[flightless pond apple]]
+[[postindustrial newlywed]]

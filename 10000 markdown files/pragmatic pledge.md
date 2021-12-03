@@ -80,3 +80,9 @@ quite a twinkling.
 Leave off staring at that
 : Luckily for some alarm.
 
+
+## Wikilinks load test
+
+[[puerile mirabilis oblongifolia]]
+[[aversive ladylikeness]]
+[[debauched tartar sauce]]

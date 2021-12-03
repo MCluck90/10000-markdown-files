@@ -80,3 +80,11 @@ Does the wandering hair that
 Nor I took pie-crust
 : Ugh.
 
+
+## Wikilinks load test
+
+[[unwoven genus weigela]]
+[[prerecorded fortune teller]]
+[[l pelter]]
+[[chemisorptive genus conilurus]]
+[[grapelike anaclisis]]

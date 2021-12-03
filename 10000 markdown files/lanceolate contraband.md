@@ -77,3 +77,9 @@ While the Dormouse turned round
 Pennyworth only took pie-crust and
 : Serpent.
 
+
+## Wikilinks load test
+
+[[algonkian emesis]]
+[[encyclopaedic totalisator]]
+[[one hundred eighty creek confederacy]]

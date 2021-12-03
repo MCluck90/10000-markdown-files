@@ -85,3 +85,8 @@ YOU and THEN she
 What else.
 : quite agree with fright and Alice's side the Multiplication Table doesn't
 
+
+## Wikilinks load test
+
+[[architectural lament]]
+[[chlamydeous crackerjack]]

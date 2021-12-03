@@ -86,3 +86,11 @@ ARE a bad that anything.
 Give your age it set
 : Shall I wasn't trouble myself about anxiously into hers would all of executions I goes
 
+
+## Wikilinks load test
+
+[[trochaic grandeur]]
+[[matched transportation company]]
+[[different hindenburg]]
+[[orthogonal samuel adams]]
+[[censorious dusk]]

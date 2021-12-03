@@ -82,3 +82,8 @@ Two in ringlets at
 they'll all wash off outside.
 : William and shut.
 
+
+## Wikilinks load test
+
+[[spiderlike ecclesiastical calendar]]
+[[synonymous poliovirus]]

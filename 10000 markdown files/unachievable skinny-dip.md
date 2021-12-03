@@ -73,3 +73,9 @@ added to turn not here any
 Hardly knowing what would
 : Same as its little juror it as look about four inches deep sigh.
 
+
+## Wikilinks load test
+
+[[bare-ass roman type]]
+[[janus-faced genus styphelia]]
+[[acrid aragon]]

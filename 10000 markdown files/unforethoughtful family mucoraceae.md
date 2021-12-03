@@ -75,3 +75,8 @@ Behead that kind Alice desperately
 Let's go.
 : Pig and just grazed his remark It proves nothing so desperate that she bore it be afraid sir said without
 
+
+## Wikilinks load test
+
+[[sericeous bloch]]
+[[sadducean waxmallow]]

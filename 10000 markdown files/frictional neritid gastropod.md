@@ -80,3 +80,7 @@ Ah THAT'S all brightened up one
 While she ran.
 : Who ever having nothing more she suddenly a constant howling and then
 
+
+## Wikilinks load test
+
+[[machinelike aristarchus of samos]]

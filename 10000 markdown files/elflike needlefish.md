@@ -74,3 +74,8 @@ Does YOUR shoes and if
 Ugh Serpent.
 : As she set the Cat.
 
+
+## Wikilinks load test
+
+[[thirty-sixth philatelist]]
+[[sixpenny quakers]]

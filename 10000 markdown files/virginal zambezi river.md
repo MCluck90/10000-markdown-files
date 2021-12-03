@@ -83,3 +83,8 @@ Reeling and tremulous sound of
 Presently the frontispiece if
 : Sixteenth added turning purple.
 
+
+## Wikilinks load test
+
+[[rhizomatous order decapoda]]
+[[shouldered circumflex iliac artery]]

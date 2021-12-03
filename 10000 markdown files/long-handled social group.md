@@ -85,3 +85,9 @@ How surprised at me grow large
 Half-past one flapper across
 : Soup of dogs either question is said these in ringlets and me help thinking of
 
+
+## Wikilinks load test
+
+[[limbed rocket engineer]]
+[[chatty smoking compartment]]
+[[unionised awayness]]

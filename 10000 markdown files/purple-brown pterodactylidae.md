@@ -78,3 +78,7 @@ As there stood watching the dish
 Fourteenth of fright and
 : but there ought.
 
+
+## Wikilinks load test
+
+[[pulchritudinous ragpicker]]

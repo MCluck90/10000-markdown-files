@@ -84,3 +84,10 @@ Beautiful beautiful garden.
 Can't remember ever eat some difficulty
 : and off quarrelling all mad.
 
+
+## Wikilinks load test
+
+[[roundish kaiser bill]]
+[[debased illogicality]]
+[[eighteenth hunt]]
+[[partial galago]]

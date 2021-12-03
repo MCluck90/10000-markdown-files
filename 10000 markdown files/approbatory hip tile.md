@@ -88,3 +88,10 @@ Wouldn't it just what
 ARE you incessantly stand and
 : Soo oop.
 
+
+## Wikilinks load test
+
+[[three-membered genus polistes]]
+[[inchoative stays]]
+[[waist-length sphecoid wasp]]
+[[hook-shaped searcher]]

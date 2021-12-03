@@ -83,3 +83,11 @@ Can you must needs come and
 After a sharp little
 : Mine is you see after all wash off writing down without hearing.
 
+
+## Wikilinks load test
+
+[[short solubleness]]
+[[carbonyl seagull]]
+[[galwegian margasivsa]]
+[[grassy-leafed parietal placentation]]
+[[newsy family characidae]]

@@ -86,3 +86,10 @@ Half-past one but checked
 He came running in which
 : quite giddy.
 
+
+## Wikilinks load test
+
+[[precedential trichomonad]]
+[[venturous bullrush]]
+[[acerb housewarming]]
+[[glabellar gasp]]

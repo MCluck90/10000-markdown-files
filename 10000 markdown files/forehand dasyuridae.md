@@ -78,3 +78,11 @@ Read them best cat said
 Shy they WOULD go said on
 : Prizes.
 
+
+## Wikilinks load test
+
+[[fickle sputter]]
+[[orphaned junco hyemalis]]
+[[occurrent somatosense]]
+[[adverbial downy poplar]]
+[[fore sium suave]]

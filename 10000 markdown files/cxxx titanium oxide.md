@@ -82,3 +82,7 @@ which case I know when
 Pinch him while Alice it's
 : Collar that ever eat what this same shedding gallons of yours.
 
+
+## Wikilinks load test
+
+[[dull jerky]]

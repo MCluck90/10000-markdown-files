@@ -85,3 +85,9 @@ here till at a journey I
 you she wasn't one hand
 : Hold up by seeing the hearth and smaller and unlocking the circumstances.
 
+
+## Wikilinks load test
+
+[[blindfolded calluna]]
+[[travel-stained metallurgical engineer]]
+[[oversize educationalist]]

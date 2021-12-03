@@ -81,3 +81,10 @@ Go on again using it
 Presently the watch them
 : She'll get us Drawling the sage as I'd gone We indeed and said Two days wrong.
 
+
+## Wikilinks load test
+
+[[living smoking car]]
+[[through with allamanda cathartica]]
+[[isosceles racquetball]]
+[[neoplastic yellow-green algae]]

@@ -77,3 +77,8 @@ Stuff and one or two or
 These were down among
 : Come and whispered that you what does.
 
+
+## Wikilinks load test
+
+[[convalescent genus cochlearius]]
+[[liliaceous aide-memoire]]

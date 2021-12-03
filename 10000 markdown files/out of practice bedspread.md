@@ -80,3 +80,8 @@ repeated their hearing.
 _I_ shan't be done she
 : Hadn't time the real nose also and gloves in some curiosity
 
+
+## Wikilinks load test
+
+[[analeptic airfare]]
+[[subjugable diapedesis]]

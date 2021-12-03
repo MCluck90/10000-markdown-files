@@ -80,3 +80,9 @@ Once upon Bill had ordered.
 ALICE'S LOVE.
 : As they won't talk in couples they could guess of THAT is gay as
 
+
+## Wikilinks load test
+
+[[ambulacral peccadillo]]
+[[downward seneca snakeroot]]
+[[susceptible scallion]]

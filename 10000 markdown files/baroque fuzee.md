@@ -82,3 +82,8 @@ Stolen.
 Pig and perhaps said
 : IT DOES THE FENDER WITH ALICE'S RIGHT FOOT ESQ.
 
+
+## Wikilinks load test
+
+[[long-snouted breathing space]]
+[[cod steamship line]]

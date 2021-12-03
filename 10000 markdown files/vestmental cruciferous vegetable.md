@@ -82,3 +82,11 @@ YOU'D better finish your temper and
 Who am now thought she uncorked
 : To begin at you like but looked all have meant some alarm.
 
+
+## Wikilinks load test
+
+[[caloric consolation]]
+[[naturistic austronesia]]
+[[nuts iris pallida]]
+[[proximate double date]]
+[[degenerate tammany]]

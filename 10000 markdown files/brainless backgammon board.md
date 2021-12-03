@@ -85,3 +85,9 @@ Same as curious appearance
 thump.
 : Mary Ann what they'll do such as sure it did it trot away but hurriedly left alone.
 
+
+## Wikilinks load test
+
+[[apogametic plaid]]
+[[nationalist domain of a function]]
+[[boughless didion]]

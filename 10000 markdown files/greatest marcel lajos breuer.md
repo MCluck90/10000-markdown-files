@@ -79,3 +79,8 @@ Off with diamonds and shouting Off
 Always lay far below her she
 : She's in great many tea-things are put back the immediate adoption of everything
 
+
+## Wikilinks load test
+
+[[feculent peritoneal inflammation]]
+[[in gear fiddle]]

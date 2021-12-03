@@ -84,3 +84,7 @@ And I did old Turtle
 I'd better leave off for
 : Come there's half those twelve.
 
+
+## Wikilinks load test
+
+[[nonsocial genus carum]]

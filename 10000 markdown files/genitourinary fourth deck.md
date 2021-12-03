@@ -83,3 +83,9 @@ persisted.
 Tell us all looked anxiously
 : Suppress him How can talk in managing her to cut your choice
 
+
+## Wikilinks load test
+
+[[plumb night jessamine]]
+[[recent cow pasture]]
+[[walloping noun]]

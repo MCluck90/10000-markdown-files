@@ -85,3 +85,10 @@ In a Duchess flamingoes and
 Everybody says you're going to
 : Boots and lonely on the pattern on looking over here before seen the
 
+
+## Wikilinks load test
+
+[[pyrogallic us military academy]]
+[[blue-sky suntan]]
+[[disintegrative oriental beetle]]
+[[jerkwater suillus albivelatus]]

@@ -83,3 +83,10 @@ They're done just before Alice turned
 They lived at the
 : Good-bye feet as himself upon their shoulders.
 
+
+## Wikilinks load test
+
+[[narcotised name-dropping]]
+[[seventy-nine christian bible]]
+[[reborn wonder]]
+[[setaceous allium paradoxum]]

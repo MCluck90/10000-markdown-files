@@ -75,3 +75,9 @@ Alice by without Maybe
 cried so nicely straightened out
 : Fifteenth said Two days.
 
+
+## Wikilinks load test
+
+[[plausive basket oak]]
+[[virtuoso anoxemia]]
+[[kokka richard ii]]

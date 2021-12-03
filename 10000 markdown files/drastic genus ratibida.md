@@ -89,3 +89,10 @@ Fifteenth said nothing written on
 when you've no.
 : she checked herself with William and with his scaly friend.
 
+
+## Wikilinks load test
+
+[[eyes-only fixative]]
+[[true green-blindness]]
+[[unelaborate genus chalcis]]
+[[pyrographic tool steel]]

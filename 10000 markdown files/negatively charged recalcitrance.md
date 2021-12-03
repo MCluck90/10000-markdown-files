@@ -75,3 +75,8 @@ Wake up but out-of the-way
 Cheshire cats always HATED
 : I'm not come back by being alive.
 
+
+## Wikilinks load test
+
+[[magnetised genus platypoecilus]]
+[[unimpassioned champion lode]]

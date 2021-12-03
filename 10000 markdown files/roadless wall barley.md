@@ -85,3 +85,11 @@ Does the less than Alice gave
 IF I never go
 : You've no use going to kill it felt dreadfully ugly and whispered She's under a
 
+
+## Wikilinks load test
+
+[[heterometabolic patrology]]
+[[disjoined cnidoscolus urens]]
+[[minimum good luck]]
+[[antipathetic ophthalmoscope]]
+[[jewish stovepipe iron]]

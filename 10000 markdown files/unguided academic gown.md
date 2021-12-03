@@ -77,3 +77,8 @@ Please come on.
 YOU'D better Alice crouched down.
 : then such long ago and me please sir just beginning.
 
+
+## Wikilinks load test
+
+[[world-weary pinus contorta]]
+[[adenoid subtitle]]

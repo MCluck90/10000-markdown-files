@@ -79,3 +79,9 @@ Prizes.
 Imagine her going into
 : Leave off quarrelling with diamonds and dishes.
 
+
+## Wikilinks load test
+
+[[unhurried greenskeeper]]
+[[tempestuous cow lily]]
+[[roasted gab]]

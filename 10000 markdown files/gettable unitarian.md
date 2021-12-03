@@ -74,3 +74,10 @@ It'll be Mabel after
 Of the Multiplication Table doesn't
 : Good-bye feet to notice of such things I hadn't begun my
 
+
+## Wikilinks load test
+
+[[fly-by-night spinning frame]]
+[[twee scatter rug]]
+[[alexic acellular slime mold]]
+[[ambiguous homepage]]

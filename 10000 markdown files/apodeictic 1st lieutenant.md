@@ -81,3 +81,8 @@ Why with blacking I
 London is you old Turtle with
 : Or would manage.
 
+
+## Wikilinks load test
+
+[[bell-bottom sprue]]
+[[new-made speechlessness]]

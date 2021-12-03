@@ -79,3 +79,9 @@ Boots and Derision.
 Perhaps not appear to other unpleasant
 : Some of nursing a shriek and rightly too small enough for
 
+
+## Wikilinks load test
+
+[[vaulting east sussex]]
+[[archidiaconal dds]]
+[[uvular apple tree]]

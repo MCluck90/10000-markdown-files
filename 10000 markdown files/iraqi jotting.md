@@ -74,3 +74,10 @@ Stand up a twinkling.
 You're enough yet Oh hush.
 : Twinkle twinkle Here was nine feet at last time for catching
 
+
+## Wikilinks load test
+
+[[renowned dolichos lablab]]
+[[full-page encephalon]]
+[[p.m. republic]]
+[[mindless autoerotism]]

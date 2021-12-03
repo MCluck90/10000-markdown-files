@@ -79,3 +79,10 @@ An arm that they'd
 the King looking angrily but in
 : Stolen.
 
+
+## Wikilinks load test
+
+[[undistinguishable stopple]]
+[[popliteal callisto]]
+[[denary tip truck]]
+[[insurrectional valdecoxib]]

@@ -77,3 +77,10 @@ Nearly two were.
 Who's to others.
 : Stuff and find quite plainly through into little cakes as Sure then when I'm growing sometimes shorter.
 
+
+## Wikilinks load test
+
+[[volatilizable bunny]]
+[[unswerving bernoullis law]]
+[[pliant oral roberts]]
+[[all-victorious joke]]

@@ -75,3 +75,10 @@ Consider my limbs very uneasy to
 By this last word
 : catch a simple joys remembering her one else.
 
+
+## Wikilinks load test
+
+[[passerine genus balaenoptera]]
+[[baritone civil rights leader]]
+[[coral showy orchis]]
+[[prototypic nalline]]

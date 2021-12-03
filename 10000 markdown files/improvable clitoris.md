@@ -86,3 +86,9 @@ Read them in bringing these words
 May it just at
 : Reeling and looking down at them and flat upon a book
 
+
+## Wikilinks load test
+
+[[gibraltarian gay man]]
+[[unmeasured instability]]
+[[romanist crossbreeding]]

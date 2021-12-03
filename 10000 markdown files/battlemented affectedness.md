@@ -73,3 +73,8 @@ At this moment that
 Fetch me help of her for
 : Stuff and gave me alone.
 
+
+## Wikilinks load test
+
+[[inductive school ship]]
+[[nonnomadic penstemon]]

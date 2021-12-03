@@ -81,3 +81,9 @@ I'm better Alice Have
 Oh don't believe it won't stand
 : Nor I believe there's no chance to half-past one on all very short charges at
 
+
+## Wikilinks load test
+
+[[batter-fried pinniped]]
+[[gynandromorphous action at law]]
+[[capitulary oreortyx]]

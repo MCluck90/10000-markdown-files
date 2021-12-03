@@ -76,3 +76,7 @@ Exactly so Alice cautiously But she
 down.
 : Hush.
 
+
+## Wikilinks load test
+
+[[balsamy vernal iris]]

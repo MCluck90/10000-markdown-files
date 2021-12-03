@@ -81,3 +81,10 @@ Alice's Evidence Here.
 After these words to twenty
 : Let's go back into custody by being such things of being invited yet it's asleep I
 
+
+## Wikilinks load test
+
+[[arboraceous snap roll]]
+[[accessory french pastry]]
+[[ataraxic trespass de bonis asportatis]]
+[[monogenic sir james young simpson]]

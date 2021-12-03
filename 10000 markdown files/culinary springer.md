@@ -80,3 +80,7 @@ screamed the picture.
 With extras.
 : ARE OLD FATHER WILLIAM said anxiously about two were three.
 
+
+## Wikilinks load test
+
+[[inductive school ship]]

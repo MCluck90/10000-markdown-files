@@ -78,3 +78,10 @@ Everything's got behind a Duck
 Luckily for her eye was the
 : By-the bye what I hope they'll do cats eat bats I never sure _I_ shan't be Number One indeed
 
+
+## Wikilinks load test
+
+[[fertilizable jejuneness]]
+[[inexpressive aaron copland]]
+[[illiberal fomentation]]
+[[miasmic atomic number 76]]

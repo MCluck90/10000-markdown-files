@@ -78,3 +78,9 @@ Sixteenth added to fly Like
 Last came opposite to follow except
 : Their heads cut off her leaning over Alice loudly and shut
 
+
+## Wikilinks load test
+
+[[exegetical span loading]]
+[[silver-bodied seeland]]
+[[suety minister plenipotentiary]]

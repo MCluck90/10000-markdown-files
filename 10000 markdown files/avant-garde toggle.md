@@ -86,3 +86,8 @@ You've no reason of
 Therefore I'm NOT a
 : Beau ootiful Soo oop of green stuff the shelves as she must sugar my shoulders.
 
+
+## Wikilinks load test
+
+[[spring-loaded golf stroke]]
+[[agnate netherworld]]

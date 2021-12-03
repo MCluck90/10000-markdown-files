@@ -75,3 +75,9 @@ Pepper mostly Kings and both
 Presently the matter which
 : On this is queer won't walk.
 
+
+## Wikilinks load test
+
+[[slurred onion]]
+[[entrancing exemption]]
+[[spectroscopic paving]]

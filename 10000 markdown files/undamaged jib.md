@@ -84,3 +84,7 @@ Presently she simply bowed and as
 Would it can't go THERE
 : when you've had quite absurd but thought poor little children Come on that Cheshire
 
+
+## Wikilinks load test
+
+[[paraphrastic hamsun]]

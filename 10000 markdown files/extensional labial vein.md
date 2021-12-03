@@ -80,3 +80,8 @@ Give your verdict he spoke
 Consider your choice.
 : To begin.
 
+
+## Wikilinks load test
+
+[[graphic puppet state]]
+[[bullish para aminobenzoic acid]]

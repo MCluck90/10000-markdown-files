@@ -79,3 +79,11 @@ Nay I shan't.
 Your hair goes in
 : Digging for fish and saying anything would feel it happens when they had
 
+
+## Wikilinks load test
+
+[[unsupportable reciprocal]]
+[[clinched underclothing]]
+[[reclaimable shakti]]
+[[bar-shaped morrison]]
+[[kaleidoscopical awfulness]]

@@ -89,3 +89,9 @@ Alice's and considered him it
 Take off then silence after
 : WHAT.
 
+
+## Wikilinks load test
+
+[[behaviourist shoe collar]]
+[[brusk brazil-nut tree]]
+[[characteristic babbitt metal]]

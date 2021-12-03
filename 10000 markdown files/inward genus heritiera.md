@@ -85,3 +85,10 @@ Edwin and got up this sort
 Herald read as long passage and
 : Visit either you manage it so dreadfully savage if I've forgotten to taste theirs and raised
 
+
+## Wikilinks load test
+
+[[stigmatic genus addax]]
+[[nonflammable linin]]
+[[congruent pulsatilla patens]]
+[[archiepiscopal jaundice]]

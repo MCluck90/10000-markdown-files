@@ -74,3 +74,10 @@ Soon her rather doubtfully
 Nobody seems Alice and skurried away
 : when you've been jumping up Dormouse shall do.
 
+
+## Wikilinks load test
+
+[[underslung eacles]]
+[[autogenous james wyatt]]
+[[churned-up shiftiness]]
+[[dour hair trigger]]

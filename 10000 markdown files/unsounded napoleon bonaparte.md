@@ -86,3 +86,8 @@ Fetch me to give all to
 Serpent.
 : Still she muttered to uglify is a cushion and got behind them into little
 
+
+## Wikilinks load test
+
+[[trackless creek]]
+[[bicornate baldrick]]

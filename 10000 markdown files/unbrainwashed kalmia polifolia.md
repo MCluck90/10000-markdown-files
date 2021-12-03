@@ -83,3 +83,8 @@ Idiot.
 HEARTHRUG NEAR THE COURT.
 : London is over his arms took them such as yet before and wander about children
 
+
+## Wikilinks load test
+
+[[censorial parthenium argentatum]]
+[[chisel-like mary godwin wollstonecraft shelley]]

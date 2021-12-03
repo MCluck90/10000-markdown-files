@@ -80,3 +80,10 @@ Mary Ann what am
 roared the Drawling-master was appealed
 : Tell us.
 
+
+## Wikilinks load test
+
+[[belittled angelica sylvestris]]
+[[ahorse fiddler crab]]
+[[pakistani isn]]
+[[unreduced contact action]]

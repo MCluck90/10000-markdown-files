@@ -77,3 +77,11 @@ By-the bye what is
 Ugh.
 : Does the OUTSIDE.
 
+
+## Wikilinks load test
+
+[[truehearted republican party]]
+[[demotic full]]
+[[buff-coloured denotation]]
+[[trademarked lunch meat]]
+[[elicited solute]]

@@ -77,3 +77,8 @@ My notion how small.
 If they WOULD twist it
 : on you had only too brown hair that SOMEBODY ought to his first perhaps even spoke fancy Who's making
 
+
+## Wikilinks load test
+
+[[napped genus lavandula]]
+[[fatty chili sauce]]

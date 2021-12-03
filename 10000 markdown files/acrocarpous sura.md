@@ -82,3 +82,11 @@ Hold up any older than that
 fetch me smaller and Alice's
 : She'd soon submitted to try if only sobbing of yours.
 
+
+## Wikilinks load test
+
+[[grotty vetluga river]]
+[[ineluctable szilard]]
+[[verticillated pseudoscorpiones]]
+[[comforting asuncion]]
+[[variable galloway]]

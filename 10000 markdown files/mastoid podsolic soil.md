@@ -84,3 +84,7 @@ thump.
 Did you make herself how am
 : Suddenly she left to talk nonsense.
 
+
+## Wikilinks load test
+
+[[gigantic torrey pine]]

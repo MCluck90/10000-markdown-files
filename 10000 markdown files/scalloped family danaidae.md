@@ -80,3 +80,7 @@ Then the leaves I haven't
 Anything you have come
 : Fifteenth said than you cut off from here he stole those twelve
 
+
+## Wikilinks load test
+
+[[referential mayan]]

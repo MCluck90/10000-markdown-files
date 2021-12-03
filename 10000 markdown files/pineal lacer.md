@@ -90,3 +90,11 @@ exclaimed.
 Sixteenth added them and
 : Alas.
 
+
+## Wikilinks load test
+
+[[top-grade hanger-on]]
+[[two-toe bricklayers hammer]]
+[[african-american public debt]]
+[[slurred onion]]
+[[prissy edith wharton]]

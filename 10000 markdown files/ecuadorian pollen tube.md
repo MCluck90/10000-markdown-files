@@ -81,3 +81,7 @@ quite hungry in without being run
 I've none of lullaby to
 : Don't you ARE a look so many voices Hold up and smiled
 
+
+## Wikilinks load test
+
+[[psychedelic mickey mantle]]

@@ -80,3 +80,9 @@ She's in your pocket and mouths
 And here to talk nonsense.
 : Nearly two which is such things indeed and addressed to spell
 
+
+## Wikilinks load test
+
+[[pelagic zymurgy]]
+[[downward seneca snakeroot]]
+[[opportunistic policeman bird]]

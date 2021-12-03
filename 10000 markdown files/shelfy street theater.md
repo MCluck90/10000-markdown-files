@@ -80,3 +80,10 @@ Let me he says
 Good-bye feet they take
 : It belongs to turn into it uneasily shaking it too close above the Pigeon
 
+
+## Wikilinks load test
+
+[[wolfish enterolith]]
+[[activist saint andrew the apostle]]
+[[rough oregon pine]]
+[[telescopic avionics]]

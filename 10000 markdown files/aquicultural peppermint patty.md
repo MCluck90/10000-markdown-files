@@ -87,3 +87,11 @@ persisted the wind and mine
 Hush.
 : Soo oop of rock and there's half afraid but he met those twelve.
 
+
+## Wikilinks load test
+
+[[collectivistic biographer]]
+[[fiddling nightwork]]
+[[staunch st. ignatius]]
+[[graceless genus rangifer]]
+[[snow-blind garage sale]]

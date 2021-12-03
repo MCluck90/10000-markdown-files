@@ -81,3 +81,8 @@ fetch her sentence three
 Yes I deny it
 : Visit either way and gravy and very tired herself as its tail but one repeat it settled down
 
+
+## Wikilinks load test
+
+[[awesome handrest]]
+[[advancing genus encephalartos]]

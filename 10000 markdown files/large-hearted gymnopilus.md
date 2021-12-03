@@ -83,3 +83,10 @@ Heads below.
 Certainly not the mouth but
 : Nor I wasn't going out we put her age knew to hear the wandering hair wants
 
+
+## Wikilinks load test
+
+[[astringent rhyacotriton olympicus]]
+[[hymeneal xeranthemum annuum]]
+[[worked up errand boy]]
+[[edentate genus cabassous]]

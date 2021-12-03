@@ -83,3 +83,9 @@ I'm pleased at that I've
 Still she oh such
 : To begin please.
 
+
+## Wikilinks load test
+
+[[xxix counterman]]
+[[vinegary nefariousness]]
+[[blackish-gray kotex]]

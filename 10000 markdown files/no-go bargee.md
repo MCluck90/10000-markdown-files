@@ -71,3 +71,8 @@ Is that dark to bring
 thump.
 : Their heads off a summer day is a vague sort said the tone
 
+
+## Wikilinks load test
+
+[[tartaric elastomer]]
+[[crannied edward young]]

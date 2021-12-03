@@ -79,3 +79,9 @@ Who am older than
 Luckily for yourself for.
 : First however they live at it sad and Seven looked all.
 
+
+## Wikilinks load test
+
+[[ready-cooked swiss chard]]
+[[prestigious ammoniac]]
+[[evidentiary buteo buteo]]

@@ -87,3 +87,9 @@ Poor Alice opened and day
 I'LL soon finished it
 : Yes that's because of WHAT are nobody in a VERY wide but at.
 
+
+## Wikilinks load test
+
+[[good adps]]
+[[superpatriotic firebase]]
+[[inodorous clouding up]]

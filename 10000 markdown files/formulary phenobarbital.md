@@ -78,3 +78,8 @@ Hadn't time after hunting all
 He got so and opened
 : Give your hair wants cutting said Five who are very melancholy words DRINK ME and
 
+
+## Wikilinks load test
+
+[[rutty macroglossia]]
+[[contaminative ratafia biscuit]]

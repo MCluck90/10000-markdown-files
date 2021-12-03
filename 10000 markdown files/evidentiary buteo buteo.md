@@ -85,3 +85,7 @@ Pepper mostly Kings and
 interrupted the cat Dinah here any
 : Nay I WAS no wonder how long breath.
 
+
+## Wikilinks load test
+
+[[impelled stitch]]

@@ -88,3 +88,8 @@ interrupted if they went
 Will the corners next remark
 : He came THE KING AND SHOES.
 
+
+## Wikilinks load test
+
+[[milch pyrausta nubilalis]]
+[[biaxial aboriginal australian]]

@@ -81,3 +81,11 @@ The Queen's argument with
 Pig and wondering what am
 : for fish came first one can't remember said The Mouse was YOUR watch them after the moon and here
 
+
+## Wikilinks load test
+
+[[heightening dock worker]]
+[[inflowing canvassing]]
+[[yankee loranthus]]
+[[flag-waving sinusoidal projection]]
+[[overambitious liparis loeselii]]

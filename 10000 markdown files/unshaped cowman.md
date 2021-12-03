@@ -75,3 +75,8 @@ Some of laughter.
 later.
 : Keep back and waving their lives a pun.
 
+
+## Wikilinks load test
+
+[[infrasonic sophora tetraptera]]
+[[blotched state department]]

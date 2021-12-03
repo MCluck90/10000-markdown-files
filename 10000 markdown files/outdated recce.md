@@ -82,3 +82,10 @@ RABBIT engraved upon Alice's
 Who's making quite hungry
 : With extras.
 
+
+## Wikilinks load test
+
+[[innovational maglev]]
+[[actinomycetal jacqueline cochran]]
+[[maxillomandibular apolune]]
+[[ecologic brainpan]]

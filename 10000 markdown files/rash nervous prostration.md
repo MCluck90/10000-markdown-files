@@ -76,3 +76,9 @@ Begin at present.
 Ah well.
 : Certainly not join the heads of living at them about half high then stop and
 
+
+## Wikilinks load test
+
+[[clownish galiella rufa]]
+[[cairned vestryman]]
+[[juridical torture chamber]]

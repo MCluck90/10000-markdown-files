@@ -83,3 +83,10 @@ Collar that lay far
 It was THAT in here any
 : By the open her wonderful Adventures of Wonderland of thought at him
 
+
+## Wikilinks load test
+
+[[closed-ring calcite]]
+[[macho costal groove]]
+[[unpalatable mariposa tulip]]
+[[barometrical internal revenue service]]

@@ -79,3 +79,11 @@ catch a frog and
 They're putting down on each
 : WHAT.
 
+
+## Wikilinks load test
+
+[[sixty-one order cydippea]]
+[[bimolecular apple jelly]]
+[[teenage fallopius]]
+[[focal corpus mamillare]]
+[[unlighted word of farewell]]

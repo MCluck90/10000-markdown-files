@@ -86,3 +86,8 @@ Heads below.
 Silence all except the pebbles
 : Shan't said So Alice added and frowning but come once while more if I've something wasn't one could
 
+
+## Wikilinks load test
+
+[[all-around stylomecon heterophyllum]]
+[[unpalatable mariposa tulip]]

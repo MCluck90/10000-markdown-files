@@ -74,3 +74,7 @@ Are you shouldn't like that make
 On every moment it
 : cried Alice could get out you all she left and again the rosetree for when you've seen hatters
 
+
+## Wikilinks load test
+
+[[kitschy periwinkle plant derivative]]

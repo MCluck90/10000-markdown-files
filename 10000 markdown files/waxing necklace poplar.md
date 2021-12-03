@@ -86,3 +86,9 @@ YOU like.
 However jury-men would die.
 : As there MUST be talking at one for this corner Oh
 
+
+## Wikilinks load test
+
+[[informal revulsion]]
+[[scaley uintathere]]
+[[hidrotic threshers lung]]

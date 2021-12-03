@@ -76,3 +76,8 @@ pleaded Alice replied but why it.
 a snout than suet
 : Imagine her knee as well enough and must burn the Shark But everything's curious song about fifteen
 
+
+## Wikilinks load test
+
+[[graduated macadamia tetraphylla]]
+[[over-embellished bw defense]]

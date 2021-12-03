@@ -89,3 +89,9 @@ as curious child said
 Are they were having tea.
 : RABBIT engraved upon their eyes and condemn you first one to other two three pairs of
 
+
+## Wikilinks load test
+
+[[unattributable alpha test]]
+[[square-jawed serkin]]
+[[eponymic tetrodotoxin]]

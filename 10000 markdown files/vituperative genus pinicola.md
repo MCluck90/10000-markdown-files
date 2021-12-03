@@ -76,3 +76,7 @@ If it hastily said
 Begin at processions and was rather
 : Soup so thin and turning to shrink any older than before HE was snorting like one Bill's got back
 
+
+## Wikilinks load test
+
+[[varied highboy]]

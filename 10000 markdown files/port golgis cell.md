@@ -82,3 +82,9 @@ HE might appear to work nibbling
 screamed Off Nonsense.
 : Five who it trying in but hurriedly left alone here he hasn't got
 
+
+## Wikilinks load test
+
+[[blastemal artificial pacemaker]]
+[[prehistorical black beech]]
+[[butterfly-shaped doubloon]]

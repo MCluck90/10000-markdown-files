@@ -70,3 +70,11 @@ Then the face only shook both
 Still she noticed had hurt the
 : Beau ootiful Soo oop.
 
+
+## Wikilinks load test
+
+[[deafened embiodea]]
+[[scoundrelly breton]]
+[[worn-out songhai]]
+[[lv tube-nosed fruit bat]]
+[[approving rock n roll musician]]

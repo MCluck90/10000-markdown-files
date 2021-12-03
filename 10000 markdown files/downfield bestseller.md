@@ -79,3 +79,8 @@ Exactly so suddenly you can't
 Hush.
 : Take off.
 
+
+## Wikilinks load test
+
+[[intense genus solandra]]
+[[agreed keratonosus]]

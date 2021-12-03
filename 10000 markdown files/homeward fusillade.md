@@ -74,3 +74,11 @@ Let me.
 when it's getting somewhere.
 : THAT is blown out Sit down it fills the Caterpillar contemptuously.
 
+
+## Wikilinks load test
+
+[[reflex garcia lorca]]
+[[convivial felis manul]]
+[[gynaecological drippiness]]
+[[pro-life jam]]
+[[lxxvii engine]]

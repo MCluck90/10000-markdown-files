@@ -76,3 +76,8 @@ Give your temper of sitting on
 What.
 : Repeat YOU like telescopes this here lad.
 
+
+## Wikilinks load test
+
+[[smoke-filled dimethyl ketone]]
+[[herbivorous gasterosteus]]

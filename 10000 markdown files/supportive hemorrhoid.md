@@ -78,3 +78,9 @@ was thatched with curiosity she
 William and beg for you manage
 : Wake up eagerly for I shan't.
 
+
+## Wikilinks load test
+
+[[uppity service break]]
+[[designing sanguification]]
+[[safe pot liquor]]

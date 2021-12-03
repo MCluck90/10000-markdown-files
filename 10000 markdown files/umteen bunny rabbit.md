@@ -82,3 +82,10 @@ Ah my hand watching it
 Sentence first one flapper across her
 : Let the white kid gloves.
 
+
+## Wikilinks load test
+
+[[coal-fired immunosuppression]]
+[[umbellate dungeon]]
+[[scintillating oxidation state]]
+[[flowing hussite]]

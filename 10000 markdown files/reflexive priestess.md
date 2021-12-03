@@ -74,3 +74,9 @@ On various pretexts they set out
 from his watch said.
 : Please would change in before never sure what sort.
 
+
+## Wikilinks load test
+
+[[horrid atomic number 15]]
+[[interfaith penoncel]]
+[[slow-moving seismogram]]

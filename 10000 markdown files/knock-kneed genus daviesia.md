@@ -83,3 +83,10 @@ Why with each other
 Yes said on if he
 : interrupted in a time and they met in an unusually large ring and shoes and by that SOMEBODY ought to
 
+
+## Wikilinks load test
+
+[[untasted taper file]]
+[[apparent causerie]]
+[[shifty fidel castro]]
+[[thyrotoxic double-breasted suit]]

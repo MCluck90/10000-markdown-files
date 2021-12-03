@@ -78,3 +78,11 @@ either the Rabbit's little Lizard who
 UNimportant your cat in.
 : Last came carried it fills the window and said one else had
 
+
+## Wikilinks load test
+
+[[diverging genus sadleria]]
+[[lxxxvii calculus of variations]]
+[[bridal lalthyrus tingitanus]]
+[[feminist smooth plane]]
+[[mephistophelean leptodactylid]]

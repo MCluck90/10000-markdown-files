@@ -85,3 +85,8 @@ London is.
 That's none Why should learn lessons
 : wow.
 
+
+## Wikilinks load test
+
+[[box-shaped sciurus carolinensis]]
+[[unappealable nitrogen oxide]]

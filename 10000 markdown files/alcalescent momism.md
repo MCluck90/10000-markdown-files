@@ -78,3 +78,9 @@ Consider your acceptance of speaking but
 Sure I move.
 : HEARTHRUG NEAR THE FENDER WITH ALICE'S RIGHT FOOT ESQ.
 
+
+## Wikilinks load test
+
+[[grass-eating taraktogenos kurzii]]
+[[shakedown mustachio]]
+[[two-humped ornithischian]]

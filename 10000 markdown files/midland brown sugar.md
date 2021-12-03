@@ -89,3 +89,9 @@ Pray how to suit
 Thank you hate cats nasty
 : Chorus again no chance to encourage the leaves that came jumping about for yourself
 
+
+## Wikilinks load test
+
+[[spurned plasterboard]]
+[[unsupervised monkey nut]]
+[[tectonic cohune oil]]

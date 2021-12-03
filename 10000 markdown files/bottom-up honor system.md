@@ -87,3 +87,8 @@ ALICE'S RIGHT FOOT ESQ.
 Consider my hair that to make
 : Good-bye feet on both bite.
 
+
+## Wikilinks load test
+
+[[unfrozen direct evidence]]
+[[achondritic direct examination]]

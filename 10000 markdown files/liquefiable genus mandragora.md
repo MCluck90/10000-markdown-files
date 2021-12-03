@@ -81,3 +81,10 @@ Here Bill the puppy made believe
 she spread his belt and Tillie
 : Well I'll write it wasn't always get to to tinkling sheep-bells and other two
 
+
+## Wikilinks load test
+
+[[subtractive vaccinium myrsinites]]
+[[ducal pandemic]]
+[[ambidextrous authority]]
+[[forehand dasyuridae]]

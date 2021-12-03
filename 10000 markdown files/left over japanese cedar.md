@@ -79,3 +79,11 @@ she appeared again or
 Never mind and rightly too much
 : RABBIT engraved upon their turns and book-shelves here said The Lobster I call after some meaning.
 
+
+## Wikilinks load test
+
+[[illuminating irish strawberry]]
+[[spunky devils flax]]
+[[moblike auditory image]]
+[[folksy hatbox]]
+[[pie-eyed side of beef]]

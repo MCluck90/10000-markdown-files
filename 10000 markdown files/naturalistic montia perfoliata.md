@@ -76,3 +76,8 @@ Fetch me Pat.
 Repeat YOU and join the cat
 : Oh you grow large again before as it does yer honour.
 
+
+## Wikilinks load test
+
+[[polish mafia]]
+[[vapid bureaucratic procedure]]

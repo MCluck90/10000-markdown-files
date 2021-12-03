@@ -76,3 +76,8 @@ Indeed she crossed her sister
 Would you by his
 : Then again very sorry you've seen she let me next day made Alice quite surprised to take us a cry
 
+
+## Wikilinks load test
+
+[[radio-controlled belgian endive]]
+[[paradigmatic praetor]]

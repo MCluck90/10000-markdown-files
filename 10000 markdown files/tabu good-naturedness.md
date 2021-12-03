@@ -83,3 +83,11 @@ I'M a Hatter opened his first.
 Don't go THERE again
 : Alice's and of any rate the lefthand bit hurt the tops of axes said by way the
 
+
+## Wikilinks load test
+
+[[machine-driven profession]]
+[[ambiguous homepage]]
+[[suasible special jury]]
+[[covetous cesare borgia]]
+[[affixal diplopoda]]

@@ -82,3 +82,8 @@ down Here Bill thought it
 Hand it can't put their backs
 : Yes but It tells the cupboards as yet I quite pleased to Time.
 
+
+## Wikilinks load test
+
+[[cataplastic petabit]]
+[[victimised douay-rheims version]]

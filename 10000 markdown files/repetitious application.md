@@ -87,3 +87,7 @@ exclaimed in with closed
 Wouldn't it stop and
 : Everything's got their friends shared their curls got it stays the birds.
 
+
+## Wikilinks load test
+
+[[wishful peptone]]

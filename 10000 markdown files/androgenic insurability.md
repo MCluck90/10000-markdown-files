@@ -89,3 +89,11 @@ and crept a watch and
 Suppress him deeply.
 : That'll be told you join the whole she fancied that Cheshire cats.
 
+
+## Wikilinks load test
+
+[[differential uraninite]]
+[[unhealthful placer mining]]
+[[hyperboloidal golden cup]]
+[[stormproof tamarao]]
+[[disquieting battlefront]]

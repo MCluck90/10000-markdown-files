@@ -88,3 +88,9 @@ You may be managed
 There was even with
 : here lad.
 
+
+## Wikilinks load test
+
+[[conflicting alaska cod]]
+[[superpatriotic firebase]]
+[[pushy practical politics]]

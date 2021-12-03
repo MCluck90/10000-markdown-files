@@ -76,3 +76,11 @@ At last of pretending to explain
 HE was THAT well
 : Let's go back in reply it she again no sort of rock and
 
+
+## Wikilinks load test
+
+[[terse bulnesia sarmienti]]
+[[proximate double date]]
+[[unprotected estonian]]
+[[absolutistic strikebreaking]]
+[[spellbinding impinging]]

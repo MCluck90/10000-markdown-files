@@ -80,3 +80,7 @@ on a languid sleepy and
 She's under sentence three
 : Up lazy thing.
 
+
+## Wikilinks load test
+
+[[regressive huisache]]

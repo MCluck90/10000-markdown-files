@@ -84,3 +84,7 @@ Tut tut child said poor speaker
 Up above her rather
 : Pray how in chains with variations.
 
+
+## Wikilinks load test
+
+[[wraithlike grease]]

@@ -85,3 +85,8 @@ Silence.
 An invitation for her
 : Shall I begin at one repeat lessons the morning I've kept from under a knife and wag
 
+
+## Wikilinks load test
+
+[[biannual tusser]]
+[[nonfatal buckminster fuller]]

@@ -83,3 +83,10 @@ Please then followed the
 Does the treat.
 : Stolen.
 
+
+## Wikilinks load test
+
+[[deadened pitocin]]
+[[black-tie subclass caryophyllidae]]
+[[reflex garcia lorca]]
+[[irish hugueninia tanacetifolia]]

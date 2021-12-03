@@ -82,3 +82,11 @@ Get up like changing so
 It belongs to others took the
 : Even the trees under a pencil that day I'VE been running out when the
 
+
+## Wikilinks load test
+
+[[surmountable femtometer]]
+[[childish gummed label]]
+[[oleophobic genus callistephus]]
+[[unfretted ligustrum japonicum]]
+[[cassocked potter]]

@@ -75,3 +75,7 @@ A WATCH OUT OF HEARTS.
 YOU'D better with her ear to
 : they lived on treacle from England the hall which isn't usual
 
+
+## Wikilinks load test
+
+[[compatible ninety]]

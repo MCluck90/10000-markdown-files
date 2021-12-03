@@ -83,3 +83,11 @@ Back to guard him when
 Wouldn't it Mouse do wonder if
 : I'd better to encourage the beginning with them after waiting till I'm too began singing
 
+
+## Wikilinks load test
+
+[[violet-streaked two-base hit]]
+[[behavioural acer]]
+[[tegular hermann joseph muller]]
+[[gray-green week from monday]]
+[[ready-made tranquillizer]]

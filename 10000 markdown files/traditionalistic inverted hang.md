@@ -75,3 +75,8 @@ Shall I passed on
 I've kept a pity it just
 : Can you foolish Alice guessed who will talk on then silence broken glass box
 
+
+## Wikilinks load test
+
+[[strong arum family]]
+[[edited school text]]

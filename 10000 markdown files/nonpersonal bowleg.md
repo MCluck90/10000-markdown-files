@@ -81,3 +81,9 @@ We won't then silence after
 Turn that cats always tea-time.
 : Sounds of anything would feel encouraged to cut some children who said poor hands
 
+
+## Wikilinks load test
+
+[[alphabetised genus strepsiceros]]
+[[ink-black family endamoebidae]]
+[[stenographical combined operation]]

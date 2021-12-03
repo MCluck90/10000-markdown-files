@@ -79,3 +79,9 @@ It's really I'm better.
 _I_ shan't go by seeing the
 : Pinch him.
 
+
+## Wikilinks load test
+
+[[determined dalea]]
+[[off her guard interbrain]]
+[[basket-shaped schoolmistress]]

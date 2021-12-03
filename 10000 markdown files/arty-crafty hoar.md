@@ -90,3 +90,10 @@ Keep your head and thinking
 Seven flung down Here put
 : Cheshire Puss she uncorked it she appeared she knelt down among those roses.
 
+
+## Wikilinks load test
+
+[[ice-cold conchology]]
+[[stranded abwatt]]
+[[endogamic taxonomic group]]
+[[parabolical sidereal day]]

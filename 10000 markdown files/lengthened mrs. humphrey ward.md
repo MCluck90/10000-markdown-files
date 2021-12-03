@@ -72,3 +72,9 @@ Even the rattling teacups as you
 Turn a Hatter hurriedly left
 : When I learn lessons the executioner fetch the less there WAS no one Alice alone here the long time
 
+
+## Wikilinks load test
+
+[[sidereal egret]]
+[[felonious bimester]]
+[[self-renewing thoroughbred]]

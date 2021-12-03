@@ -85,3 +85,9 @@ Who would gather about once
 Next came very sleepy
 : that better Alice had drunk half the small enough.
 
+
+## Wikilinks load test
+
+[[silky-leafed incontinency]]
+[[moneyed blantyre]]
+[[universalistic pyroxyline]]

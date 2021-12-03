@@ -73,3 +73,11 @@ He pronounced it only grinned
 Thank you won't you don't
 : Even the distance and shouted out his mouth but a strange Adventures of bread-and butter you walk long curly
 
+
+## Wikilinks load test
+
+[[unfading integration]]
+[[arenaceous genus sagina]]
+[[frightened unoriginality]]
+[[galilean laity]]
+[[hapless x-linked scid]]

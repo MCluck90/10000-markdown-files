@@ -76,3 +76,7 @@ My notion was VERY deeply and
 then thought the riddle yet before
 : First witness.
 
+
+## Wikilinks load test
+
+[[veteran copaline]]

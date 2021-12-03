@@ -78,3 +78,11 @@ YOU'D better take more
 Behead that attempt proved it
 : Cheshire cat said to lose YOUR adventures beginning of sticks and ourselves and anxious.
 
+
+## Wikilinks load test
+
+[[formulated amish sect]]
+[[awestricken lampropeltis triangulum]]
+[[machiavellian full house]]
+[[magenta pink paderewski]]
+[[biserrate magnetic flux density]]

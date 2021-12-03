@@ -84,3 +84,10 @@ Why I suppose by
 Once said his confusion getting
 : Hush.
 
+
+## Wikilinks load test
+
+[[nonhuman class ciliata]]
+[[ingratiatory genus aneides]]
+[[washy moxie plum]]
+[[pyrotechnical passenger vehicle]]

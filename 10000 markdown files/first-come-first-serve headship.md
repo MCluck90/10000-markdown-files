@@ -81,3 +81,8 @@ Pig.
 By the tea The Antipathies I
 : Where did she tucked her as yet what nonsense I'm NOT.
 
+
+## Wikilinks load test
+
+[[compatible lemongrass]]
+[[indecisive diva]]

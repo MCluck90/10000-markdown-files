@@ -81,3 +81,9 @@ Prizes.
 thump.
 : you mean said and ran to doubt for eggs quite relieved to me my way through all
 
+
+## Wikilinks load test
+
+[[sleepy-eyed ashur]]
+[[opportunistic policeman bird]]
+[[tearing gps]]

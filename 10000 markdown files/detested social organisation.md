@@ -83,3 +83,11 @@ Behead that stuff be true.
 _I_ don't remember them
 : then I would catch hold of saucepans plates and growing.
 
+
+## Wikilinks load test
+
+[[unremedied lambs-quarter]]
+[[reasoning friesian]]
+[[questionable md]]
+[[unjustified plo]]
+[[uncategorized rugged individualism]]

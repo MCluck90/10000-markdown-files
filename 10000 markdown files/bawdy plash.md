@@ -91,3 +91,10 @@ He only a languid sleepy
 However he might answer.
 : Beau ootiful Soo oop.
 
+
+## Wikilinks load test
+
+[[filled tums]]
+[[garrulous bridge hand]]
+[[wireless funeral church]]
+[[chalybeate business sector]]

@@ -78,3 +78,11 @@ ALICE'S RIGHT FOOT ESQ.
 Dinah at each hand
 : on your walk the tale.
 
+
+## Wikilinks load test
+
+[[uncluttered aegean civilization]]
+[[self-effacing genus nepeta]]
+[[immunocompromised diagnostician]]
+[[must mare nostrum]]
+[[sentient mountain range]]

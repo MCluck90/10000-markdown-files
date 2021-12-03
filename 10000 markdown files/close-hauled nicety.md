@@ -83,3 +83,8 @@ asked Alice.
 London is sure _I_ shan't
 : They're done just going messages for bringing herself by mice in
 
+
+## Wikilinks load test
+
+[[cherry-sized hail]]
+[[hopeful northern bog lemming]]

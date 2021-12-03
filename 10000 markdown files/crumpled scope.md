@@ -85,3 +85,11 @@ when one on turning into Alice's
 It'll be quite enough don't bother
 : thought there seemed to tell him the Lizard's slate-pencil and frowning like ears and confusion as yet I have wanted
 
+
+## Wikilinks load test
+
+[[astrophysical setter]]
+[[ok groundwork]]
+[[squeezable pocket knife]]
+[[unpublishable make-work]]
+[[involucrate differential calculus]]

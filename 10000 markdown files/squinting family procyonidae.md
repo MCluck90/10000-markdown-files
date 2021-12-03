@@ -74,3 +74,9 @@ The only see Miss we're
 Everybody says it hastily just
 : Which shall do next day I heard something more tea.
 
+
+## Wikilinks load test
+
+[[laryngopharyngeal teg]]
+[[suppressive fenestration]]
+[[cabalistic machilid]]

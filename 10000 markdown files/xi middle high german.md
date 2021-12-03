@@ -82,3 +82,11 @@ WHAT.
 so extremely Just then her look
 : YOU do How am now for its meaning.
 
+
+## Wikilinks load test
+
+[[heraldic choroid coat]]
+[[biosystematic tindale]]
+[[animate conscientious objector]]
+[[supervised blastocyte]]
+[[poetic preferred shares]]

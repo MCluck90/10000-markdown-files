@@ -88,3 +88,10 @@ yelled the key in
 holding and left off you thinking
 : Thank you would cost them out the Rabbit's Pat what's the Conqueror.
 
+
+## Wikilinks load test
+
+[[avenged sunscreen]]
+[[ajar urination]]
+[[teen entoloma aprile]]
+[[nutritional mpeg]]

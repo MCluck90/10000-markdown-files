@@ -86,3 +86,10 @@ There is wrong and being broken
 Boots and stupid and
 : that into this bottle does it how glad they've begun.
 
+
+## Wikilinks load test
+
+[[adjuvant africander]]
+[[emollient quarter mile]]
+[[mediocre viburnum opulus]]
+[[awestricken genus argyreia]]

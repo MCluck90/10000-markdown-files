@@ -73,3 +73,10 @@ London is narrow escape
 Hold up again and uncomfortable.
 : Wake up very little faster.
 
+
+## Wikilinks load test
+
+[[provable auditory area]]
+[[trinucleated family mycetophylidae]]
+[[unrepaired babar]]
+[[blebbed mysore]]

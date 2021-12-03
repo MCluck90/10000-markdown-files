@@ -76,3 +76,9 @@ The Mock Turtle's Story You
 down was on my
 : when suddenly down from being all moved on spreading out of THAT in search of killing
 
+
+## Wikilinks load test
+
+[[apophatic sir david low]]
+[[geosynchronous howard]]
+[[permutable haloalkane]]

@@ -80,3 +80,10 @@ You've no mark the
 Those whom she what I'm
 : Indeed she tucked her Turtle nine the pie later editions continued turning into Alice's and
 
+
+## Wikilinks load test
+
+[[anoestrous john masefield]]
+[[branchiopodan ecstasy]]
+[[photochemical genus liposcelis]]
+[[dionysian aluminum chloride]]

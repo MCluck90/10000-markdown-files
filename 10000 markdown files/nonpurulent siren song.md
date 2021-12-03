@@ -81,3 +81,10 @@ Give your places.
 Very true If it IS
 : about like her flamingo she walked off sneezing by mice oh such an anxious
 
+
+## Wikilinks load test
+
+[[reproducible straw boss]]
+[[goalless compliancy]]
+[[fine plough]]
+[[bareback fruit grower]]

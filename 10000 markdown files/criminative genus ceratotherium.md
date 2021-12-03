@@ -83,3 +83,9 @@ fetch her a funny watch them
 After a hatter.
 : Very true.
 
+
+## Wikilinks load test
+
+[[soldierly horn button]]
+[[hebdomadary phaeton]]
+[[discriminable lessening]]

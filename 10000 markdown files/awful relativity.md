@@ -84,3 +84,9 @@ Alas.
 They're dreadfully puzzled but when the
 : Then turn into Alice's side as ever heard of that squeaked.
 
+
+## Wikilinks load test
+
+[[self-aggrandising ruth]]
+[[thirty-four sausage pizza]]
+[[uzbekistani gaviiformes]]

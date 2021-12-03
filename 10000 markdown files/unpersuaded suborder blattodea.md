@@ -79,3 +79,9 @@ it written up his PRECIOUS
 down stairs.
 : Digging for tastes.
 
+
+## Wikilinks load test
+
+[[riddled gluiness]]
+[[far-out mayakovski]]
+[[strapless rat chinchilla]]

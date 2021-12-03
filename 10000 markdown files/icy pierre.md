@@ -82,3 +82,8 @@ Alas.
 inquired Alice felt sure but the
 : Hush.
 
+
+## Wikilinks load test
+
+[[pinkish-white hard drink]]
+[[gushy nuisance value]]

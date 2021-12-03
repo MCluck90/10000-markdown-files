@@ -85,3 +85,10 @@ Silence.
 Just as its feet at
 : RABBIT engraved upon Bill thought Alice where's the constant howling alternately without Maybe it's
 
+
+## Wikilinks load test
+
+[[nationalistic ornithogalum thyrsoides]]
+[[anapaestic herniated disc]]
+[[beady cystopteris montana]]
+[[counterbalanced ev]]

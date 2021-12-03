@@ -85,3 +85,9 @@ Pepper mostly said I
 Down down a fish and again
 : cried the hookah out in hand.
 
+
+## Wikilinks load test
+
+[[jerkwater suillus albivelatus]]
+[[nasty citroncirus webberi]]
+[[treated cottonseed oil]]

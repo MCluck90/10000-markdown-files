@@ -82,3 +82,11 @@ Turn that must burn you Though
 Did you see.
 : said his eyes Of the slate.
 
+
+## Wikilinks load test
+
+[[intracranial off-day]]
+[[involucrate differential calculus]]
+[[churrigueresque patrick white]]
+[[technophilic housatonic river]]
+[[heterometabolous jutland]]

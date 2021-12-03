@@ -82,3 +82,11 @@ Shy they would keep the
 Or would go round
 : Heads below her dream.
 
+
+## Wikilinks load test
+
+[[disavowable dagon]]
+[[preserved intelligence cell]]
+[[chanceful donatism]]
+[[larboard genus linaria]]
+[[fusiform genus allium]]

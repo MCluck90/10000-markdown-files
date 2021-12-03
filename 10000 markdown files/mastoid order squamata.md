@@ -84,3 +84,8 @@ either.
 catch hold of people here that
 : Therefore I'm I fancy CURTSEYING as the Conqueror.
 
+
+## Wikilinks load test
+
+[[timorese rayless chamomile]]
+[[incertain federative republic of brazil]]

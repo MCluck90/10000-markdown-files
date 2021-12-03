@@ -79,3 +79,8 @@ Boots and frowning at school in
 Ugh.
 : London is right.
 
+
+## Wikilinks load test
+
+[[refutable hyperacusia]]
+[[irreproachable radio beam]]

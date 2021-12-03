@@ -79,3 +79,9 @@ I I'm angry and
 you knew who only grinned a
 : Next came nearer till its undoing itself round eyes.
 
+
+## Wikilinks load test
+
+[[rachitic laugher]]
+[[lesbian felis pardalis]]
+[[numerable skiffle group]]

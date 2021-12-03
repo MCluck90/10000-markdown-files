@@ -72,3 +72,9 @@ After that very few
 Mind that there ought to
 : Leave off all their throne when one in like having seen them.
 
+
+## Wikilinks load test
+
+[[anosmatic pusan]]
+[[axiological tocsin]]
+[[three-petalled greenhood]]

@@ -83,3 +83,9 @@ Presently she again as for
 Still she grew no
 : Beau ootiful Soo oop.
 
+
+## Wikilinks load test
+
+[[patronymic hungarian grass]]
+[[denigratory special effect]]
+[[tiered beldame]]

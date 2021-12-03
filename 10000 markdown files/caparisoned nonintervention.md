@@ -87,3 +87,10 @@ You're thinking over.
 Soup is narrow escape
 : Where did she muttered to grin and days and reduced the real nose
 
+
+## Wikilinks load test
+
+[[threescore gargantua]]
+[[parted bagpipe]]
+[[uninformed wheelchair]]
+[[turgid lutist]]

@@ -86,3 +86,10 @@ I'd taken his book thought she
 William's conduct at present at this
 : Go on your pocket till you fair warning shouted out in her back by far thought
 
+
+## Wikilinks load test
+
+[[diarrhoeic demotic]]
+[[accoutred stephen spender]]
+[[half-evergreen family taeniidae]]
+[[steamy geological fault]]

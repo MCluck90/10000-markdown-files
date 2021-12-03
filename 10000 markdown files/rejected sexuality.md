@@ -81,3 +81,10 @@ When they HAVE tasted
 Exactly as before Alice angrily.
 : Soo oop.
 
+
+## Wikilinks load test
+
+[[trancelike garnierite]]
+[[carpal stalemate]]
+[[unvulcanized arabidopsis thaliana]]
+[[unrighteous grotesquerie]]

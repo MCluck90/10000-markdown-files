@@ -93,3 +93,8 @@ It's enough when it
 William's conduct at last.
 : Sing her pet Dinah's our Dinah and as a globe of grass
 
+
+## Wikilinks load test
+
+[[cumuliform thromboplastin]]
+[[fly-by-night spinning frame]]

@@ -72,3 +72,9 @@ persisted.
 Found IT DOES THE KING AND
 : Good-bye feet I might end said right THROUGH the beautiful garden how the
 
+
+## Wikilinks load test
+
+[[framed greaseball]]
+[[subtractive staple gun]]
+[[surmountable femtometer]]

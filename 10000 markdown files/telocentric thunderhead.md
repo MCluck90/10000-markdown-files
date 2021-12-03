@@ -80,3 +80,8 @@ ever she began talking to
 Pat.
 : yelled the hedge.
 
+
+## Wikilinks load test
+
+[[infelicitous pulley-block]]
+[[curtal fore-topsail]]

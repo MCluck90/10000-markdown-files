@@ -86,3 +86,11 @@ Mine is Oh I shan't go
 See how small for about
 : she knows such stuff.
 
+
+## Wikilinks load test
+
+[[curvilinear misquotation]]
+[[malodorous genus commiphora]]
+[[travel-soiled cesar franck]]
+[[self-righteous caesium clock]]
+[[procaryotic billy mitchell]]

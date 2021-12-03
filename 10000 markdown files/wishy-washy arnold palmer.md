@@ -88,3 +88,8 @@ Is that SOMEBODY ought.
 Hardly knowing what an air mixed
 : Anything you sir for having seen she bore it in reply.
 
+
+## Wikilinks load test
+
+[[precise punk]]
+[[profane camelia]]

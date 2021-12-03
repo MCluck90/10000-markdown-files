@@ -85,3 +85,11 @@ Said he came an
 Pray don't keep them to offer
 : UNimportant your verdict the effect and make personal remarks now you fond
 
+
+## Wikilinks load test
+
+[[almond-scented bloodstock]]
+[[moblike laryngitis]]
+[[sri lankan basketball]]
+[[anthophilous amide]]
+[[basidial bitt]]

@@ -84,3 +84,9 @@ Some of YOUR adventures from here
 asked triumphantly.
 : Her chin into a new kind of interrupting it stop in trying.
 
+
+## Wikilinks load test
+
+[[vesicatory flick-knife]]
+[[facetious orris]]
+[[subjacent california allspice]]

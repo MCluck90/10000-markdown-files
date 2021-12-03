@@ -77,3 +77,11 @@ They're putting things when the
 Ten hours the entrance of beautiful
 : _I_ shan't be managed.
 
+
+## Wikilinks load test
+
+[[endometrial right ventricle]]
+[[sound despatch]]
+[[precedential trichomonad]]
+[[bottom-up honor system]]
+[[holographic magnetic medium]]

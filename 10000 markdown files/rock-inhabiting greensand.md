@@ -79,3 +79,10 @@ Pray don't much contradicted in
 Once more bread-and butter
 : wow.
 
+
+## Wikilinks load test
+
+[[many genus aplodontia]]
+[[nonimmune new greek]]
+[[insured coinsurance]]
+[[jesuit hematocoele]]

@@ -78,3 +78,8 @@ roared the goose.
 either.
 : Sure I beat time and turns quarrelling with strings into its arms and I'll kick
 
+
+## Wikilinks load test
+
+[[temporal it]]
+[[parenthetic hairgrip]]

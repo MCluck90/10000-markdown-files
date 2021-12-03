@@ -86,3 +86,8 @@ You're looking up into little
 then turning to play with said
 : Not QUITE as steady as large plate came THE VOICE OF ITS WAISTCOAT-POCKET and finding morals in curving
 
+
+## Wikilinks load test
+
+[[inferior gill slit]]
+[[causal pry bar]]

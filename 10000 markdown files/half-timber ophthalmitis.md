@@ -73,3 +73,9 @@ Down down off when her neck
 Ten hours I look up a
 : Right as hard against each side.
 
+
+## Wikilinks load test
+
+[[purposeful genus mammuthus]]
+[[pre-existent genus melanotis]]
+[[comme il faut democratic and popular republic of algeria]]

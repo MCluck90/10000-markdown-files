@@ -86,3 +86,8 @@ This piece of speaking and green
 Hand it unfolded the flowers and
 : Shy they cried.
 
+
+## Wikilinks load test
+
+[[defenseless crocodile river]]
+[[duplicitous stare]]

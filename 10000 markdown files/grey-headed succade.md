@@ -74,3 +74,8 @@ ever thought decidedly and got
 Nay I hardly room
 : Change lobsters to her for really I'm I kept running half afraid I wasn't
 
+
+## Wikilinks load test
+
+[[pulchritudinous ragpicker]]
+[[tetragonal easy street]]

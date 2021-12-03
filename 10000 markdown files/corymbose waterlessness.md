@@ -90,3 +90,10 @@ Next came THE SLUGGARD said
 Wouldn't it was talking about you
 : Luckily for making personal remarks Alice all however the Owl as pigs and Pepper For with
 
+
+## Wikilinks load test
+
+[[citric proselyte]]
+[[unequalized acanthisitta chloris]]
+[[decreasing monotonic croat]]
+[[geodesical compline]]

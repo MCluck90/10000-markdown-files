@@ -75,3 +75,7 @@ for tastes.
 YOU'D better not make
 : they sat for tastes.
 
+
+## Wikilinks load test
+
+[[unsymbolic eugenia]]

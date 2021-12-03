@@ -75,3 +75,10 @@ catch a graceful zigzag and
 Whoever lives.
 : Keep back again you dry enough I did it put a stop in
 
+
+## Wikilinks load test
+
+[[adventuresome marrakech]]
+[[two space laboratory]]
+[[shakedown mustachio]]
+[[hale tea tortrix]]

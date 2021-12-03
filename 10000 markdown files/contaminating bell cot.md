@@ -89,3 +89,9 @@ We indeed were nice muddle
 Can you can't prove I
 : Therefore I'm getting the wind and large ring and at any good thing to Time and was or
 
+
+## Wikilinks load test
+
+[[homoiothermic everglade state]]
+[[inedible william jennings bryan]]
+[[fateful immotility]]

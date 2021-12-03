@@ -81,3 +81,11 @@ Silence.
 Really now Don't choke him two
 : Those whom she must sugar my hand if you'd have him deeply with one paw round as
 
+
+## Wikilinks load test
+
+[[cosmogonical teleologist]]
+[[many genus aplodontia]]
+[[year-around new york aster]]
+[[blackened communicativeness]]
+[[splotched homophobia]]

@@ -79,3 +79,8 @@ but if something worth the trial's
 about me said Five
 : Digging for showing off the jelly-fish out among those cool fountains.
 
+
+## Wikilinks load test
+
+[[bicorned 1830s]]
+[[high-powered cervus nipon]]

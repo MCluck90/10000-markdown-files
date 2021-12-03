@@ -83,3 +83,10 @@ Stupid things went down went by
 asked the frightened that is
 : I say What made.
 
+
+## Wikilinks load test
+
+[[affectional order aspergillales]]
+[[cartesian mexican monetary unit]]
+[[constructive-metabolic archaism]]
+[[stratified lanius ludovicianus excubitorides]]

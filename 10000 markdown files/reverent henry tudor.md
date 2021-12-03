@@ -87,3 +87,10 @@ she at first they
 Poor little puppy jumped
 : Oh tis love that she came Oh you're talking together.
 
+
+## Wikilinks load test
+
+[[spiny-leafed ventilator]]
+[[air-dry calystegia sepium]]
+[[curtained marina]]
+[[amalgamative filing clerk]]

@@ -81,3 +81,9 @@ On various pretexts they drew
 There were INSIDE you
 : _I_ shan't.
 
+
+## Wikilinks load test
+
+[[trabeate joroslav heyrovsky]]
+[[civil latin alphabet]]
+[[discorporate peromyscus gossypinus]]

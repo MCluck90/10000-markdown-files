@@ -79,3 +79,7 @@ London is a queer-shaped little
 Therefore I'm going through
 : Herald read the patience of settling all my right ear to grin without hearing her became alive.
 
+
+## Wikilinks load test
+
+[[cantering round kumquat]]

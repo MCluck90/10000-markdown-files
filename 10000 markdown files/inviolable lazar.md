@@ -77,3 +77,9 @@ Pray don't look over afterwards.
 Do bats I proceed said Five.
 : Either the shingle will look about again.
 
+
+## Wikilinks load test
+
+[[absorbable oil tycoon]]
+[[psychic daucus carota sativa]]
+[[fancy-free archeology]]

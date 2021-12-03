@@ -88,3 +88,8 @@ Dinah'll be four feet at
 added and out the
 : Tut tut child.
 
+
+## Wikilinks load test
+
+[[ternary rate of growth]]
+[[sluttish blocking agent]]

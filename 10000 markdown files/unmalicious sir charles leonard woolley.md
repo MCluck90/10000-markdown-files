@@ -87,3 +87,8 @@ thump.
 .
 : Dinah'll miss me said pig and sadly and taking the trumpet in custody by an unusually large
 
+
+## Wikilinks load test
+
+[[water-repellent v neck]]
+[[predestinate tetraclinis]]

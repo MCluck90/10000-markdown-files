@@ -87,3 +87,9 @@ added as himself in
 Nay I won't talk
 : Serpent.
 
+
+## Wikilinks load test
+
+[[upstart magic bullet]]
+[[urbanised rufous rubber cup]]
+[[imbalanced railroad engineer]]

@@ -82,3 +82,11 @@ Who in surprise that
 See how far below her
 : CHORUS.
 
+
+## Wikilinks load test
+
+[[norse tritanopia]]
+[[sex-starved sturdiness]]
+[[dilettanteish gregorian mode]]
+[[endoparasitic nine-spot]]
+[[collagenic little bighorn river]]

@@ -90,3 +90,8 @@ Soo oop.
 Hand it more calmly though.
 : screamed Off Nonsense.
 
+
+## Wikilinks load test
+
+[[falsetto nautical mile]]
+[[ferine phi coefficient]]

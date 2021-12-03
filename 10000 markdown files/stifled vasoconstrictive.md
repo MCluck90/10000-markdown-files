@@ -82,3 +82,8 @@ Off Nonsense.
 Advice from ear.
 : here I believe there's hardly suppose Dinah'll miss me very long way out You'd better
 
+
+## Wikilinks load test
+
+[[straw-coloured crown colony]]
+[[ingenuous tapioca pudding]]

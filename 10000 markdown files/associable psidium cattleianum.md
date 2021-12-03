@@ -80,3 +80,9 @@ so full of him
 Fetch me said I'm
 : With extras.
 
+
+## Wikilinks load test
+
+[[angled intimate]]
+[[grey accent mark]]
+[[other plant department]]

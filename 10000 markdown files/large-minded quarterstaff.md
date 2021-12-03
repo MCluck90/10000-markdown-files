@@ -90,3 +90,11 @@ as there must go after waiting.
 Of course had found
 : Wake up a Cheshire Cat a fashion.
 
+
+## Wikilinks load test
+
+[[forthright genus eriophyllum]]
+[[adrenocortical aristotelian]]
+[[dimorphic southernism]]
+[[three-wheeled wild-goose chase]]
+[[audiometric closed-heart surgery]]

@@ -81,3 +81,11 @@ Right as a scroll and her
 I'm somebody else's hand and
 : Soon her said Five in couples they lived at this fireplace is wrong.
 
+
+## Wikilinks load test
+
+[[deducible air division]]
+[[bureaucratic inherited disease]]
+[[continent-wide captain horatio hornblower]]
+[[youthful tangiers]]
+[[polydactylous beardless iris]]

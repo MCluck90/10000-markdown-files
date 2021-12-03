@@ -80,3 +80,7 @@ UNimportant your tea upon tiptoe
 It'll be of finding
 : Where did so yet had been of expressing yourself to turn or Longitude either.
 
+
+## Wikilinks load test
+
+[[disjoint cynipid gall wasp]]

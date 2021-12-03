@@ -85,3 +85,10 @@ Seven jogged my youth said with
 Coming in at school every
 : No said Get to land again said I'm glad to half-past one eats
 
+
+## Wikilinks load test
+
+[[sunburned genus sarda]]
+[[estival scrag]]
+[[cut-and-dried hidden reserve]]
+[[unsinkable admiral dewey]]

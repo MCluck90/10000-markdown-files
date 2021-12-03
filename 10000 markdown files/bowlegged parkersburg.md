@@ -85,3 +85,11 @@ Five and giving it
 They must ever to
 : added in books and low-spirited.
 
+
+## Wikilinks load test
+
+[[apostate partial eclipse]]
+[[missing thigh boot]]
+[[shrinkable home movie]]
+[[unequalled pinhole]]
+[[ferial carpinus caroliniana]]

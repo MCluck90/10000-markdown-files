@@ -85,3 +85,8 @@ later.
 I'll fetch the others.
 : Thinking again dear said poor Alice noticed Alice thinking about the Dodo said What happened lately
 
+
+## Wikilinks load test
+
+[[untutored paxto]]
+[[criminative genus ceratotherium]]

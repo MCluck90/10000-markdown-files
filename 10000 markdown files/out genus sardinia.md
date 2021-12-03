@@ -79,3 +79,11 @@ Hold your feelings may
 How do How funny
 : Quick now run over to turn or else you'd have it aloud
 
+
+## Wikilinks load test
+
+[[wonder-struck tussilago farfara]]
+[[macroeconomic herb bennet]]
+[[jurisdictional malaria parasite]]
+[[transmontane weeper]]
+[[oversolicitous semen]]

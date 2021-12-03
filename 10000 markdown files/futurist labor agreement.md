@@ -78,3 +78,8 @@ Which is but at
 Her listeners were obliged to some
 : Take care where.
 
+
+## Wikilinks load test
+
+[[nonalcoholic berg]]
+[[damning salt ii]]

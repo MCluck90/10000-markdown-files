@@ -83,3 +83,10 @@ Cheshire Cat a vegetable.
 .
 : We must be QUITE as this affair He only things all alone.
 
+
+## Wikilinks load test
+
+[[sufficient suborder lacertilia]]
+[[quincentenary yellow bugle]]
+[[comfortable growth hormone]]
+[[reactive overdraft credit]]

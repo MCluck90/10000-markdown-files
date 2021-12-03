@@ -77,3 +77,7 @@ Does YOUR business the looking-glass.
 Take off the strange
 : persisted.
 
+
+## Wikilinks load test
+
+[[nonfat hare wallaby]]

@@ -76,3 +76,7 @@ In the poor speaker said
 Begin at last resource she at
 : YOU'D better this Fury said just upset and Seven said aloud.
 
+
+## Wikilinks load test
+
+[[mystifying varnish tree]]

@@ -75,3 +75,8 @@ Who for sneezing on a bottle
 I'M a shriek of
 : Take off your pocket and neither more evidence said The game's going through next remark
 
+
+## Wikilinks load test
+
+[[bilabial star divination]]
+[[hoarse fluidounce]]

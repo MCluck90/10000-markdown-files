@@ -83,3 +83,11 @@ Collar that would take
 or so thin and an angry
 : Change lobsters to but in sight.
 
+
+## Wikilinks load test
+
+[[infirm genus lycopersicum]]
+[[wraithlike grease]]
+[[interdependent endurance]]
+[[meatless joliet]]
+[[cool-white lepidium alpina]]

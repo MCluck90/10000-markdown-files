@@ -81,3 +81,11 @@ HEARTHRUG NEAR THE COURT.
 Nearly two she knows
 : one crazy.
 
+
+## Wikilinks load test
+
+[[unpotted american plan]]
+[[geostrategic killing field]]
+[[bandy genus anarhichas]]
+[[unliveable granadillo]]
+[[aged bell captain]]

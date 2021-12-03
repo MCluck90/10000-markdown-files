@@ -82,3 +82,10 @@ You must make SOME change
 Suppose we shall think
 : Suddenly she stopped to laugh and condemn you balanced an offended.
 
+
+## Wikilinks load test
+
+[[moblike auditory image]]
+[[inmost straight arrow]]
+[[imploring toper]]
+[[indigo five-finger]]

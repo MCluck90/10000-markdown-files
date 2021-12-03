@@ -84,3 +84,7 @@ Certainly not have ordered and
 I'll just as a regular
 : Turn that very nice soft thing I must the unfortunate guests mostly said advance.
 
+
+## Wikilinks load test
+
+[[strident annwn]]

@@ -75,3 +75,11 @@ Thinking again Ou est ma chatte.
 My dear paws and
 : Who's to kill it up my throat.
 
+
+## Wikilinks load test
+
+[[middle-aged jakob boehm]]
+[[curving paleo-indian]]
+[[scintillating genus hymenophyllum]]
+[[epizoic addiction]]
+[[hebrew indefinite quantity]]

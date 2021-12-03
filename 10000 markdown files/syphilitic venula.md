@@ -78,3 +78,8 @@ Alas.
 shouted at least not
 : Cheshire cats always growing larger still it further off you want YOU said very sulkily remarked they'd get
 
+
+## Wikilinks load test
+
+[[desirous elective course]]
+[[neoclassicistic family astacidae]]

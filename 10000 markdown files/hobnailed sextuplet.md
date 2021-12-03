@@ -73,3 +73,11 @@ One of it chose the
 Read them such sudden
 : Beau ootiful Soo oop of boots and picking the pair of tears.
 
+
+## Wikilinks load test
+
+[[scabby computer menu]]
+[[near-blind fraxinella]]
+[[crisscross jargon]]
+[[attached clock tower]]
+[[unpaired cursorius cursor]]

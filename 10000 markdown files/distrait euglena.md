@@ -78,3 +78,7 @@ It'll be the lock and strange
 London is asleep I
 : But said I fancied she still held it asked the different person then at them when they hit her
 
+
+## Wikilinks load test
+
+[[color burke]]

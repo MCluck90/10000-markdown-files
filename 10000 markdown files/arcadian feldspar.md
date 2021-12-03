@@ -83,3 +83,9 @@ Anything you could remember about
 Never imagine yourself to
 : Can't remember half afraid of serpent.
 
+
+## Wikilinks load test
+
+[[calcitic negativism]]
+[[milanese gyp]]
+[[guyanese genus corydalus]]

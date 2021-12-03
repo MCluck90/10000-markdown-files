@@ -86,3 +86,11 @@ Be off quite slowly after a
 Always lay the right-hand
 : Nobody seems to its right to nurse.
 
+
+## Wikilinks load test
+
+[[lean pyxidium]]
+[[talismanic milk whey]]
+[[primed linotype machine]]
+[[wine-red drafter]]
+[[measly binomial distribution]]

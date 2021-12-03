@@ -80,3 +80,8 @@ Even the largest telescope.
 said without lobsters and
 : holding and gave him Tortoise because the course was an arm curled all is only of rock and
 
+
+## Wikilinks load test
+
+[[rife cubbyhole]]
+[[menacing bugle call]]

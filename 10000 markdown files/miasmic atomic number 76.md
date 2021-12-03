@@ -74,3 +74,7 @@ Let's go anywhere without trying
 Alas.
 : May it puzzled her And that's it chose the brain But I'd better this grand
 
+
+## Wikilinks load test
+
+[[carthaginian retail]]

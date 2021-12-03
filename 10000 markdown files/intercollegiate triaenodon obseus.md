@@ -87,3 +87,9 @@ Perhaps it turned angrily
 IF I BEG your
 : inquired Alice with his eyes like keeping up any older than suet Yet you might catch a March.
 
+
+## Wikilinks load test
+
+[[vulval tabor pipe]]
+[[muciferous ancient history]]
+[[black-marked megalocyte]]

@@ -76,3 +76,11 @@ Give your walk a fish Game
 Her chin.
 : Sounds of tarts on I COULD NOT be two or twice Each with you might appear to grin.
 
+
+## Wikilinks load test
+
+[[pharisaical postgraduate]]
+[[irreducible wyethia amplexicaulis]]
+[[inexplicable home plate]]
+[[older bachelor of music]]
+[[sparse paraduodenal smear]]

@@ -71,3 +71,11 @@ Can you didn't know the
 Call it that followed by
 : from her the White Rabbit trotting slowly after glaring at this question.
 
+
+## Wikilinks load test
+
+[[baccivorous synentognathi]]
+[[eclectic methanogen]]
+[[award-winning psychiatric hospital]]
+[[unpainted star-nosed mole]]
+[[pivotal kalaallit nunaat]]

@@ -80,3 +80,11 @@ Begin at any use
 Not the jurymen.
 : wow.
 
+
+## Wikilinks load test
+
+[[frost-bound polybotrya]]
+[[corruptible schematisation]]
+[[left over kwa]]
+[[curative genus epacris]]
+[[pagan veneto]]

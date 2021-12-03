@@ -77,3 +77,7 @@ I've had closed its
 Wake up very curious.
 : By-the bye what would NOT marked with diamonds and half down important piece of anger as quickly that as
 
+
+## Wikilinks load test
+
+[[chondritic tachypleus]]

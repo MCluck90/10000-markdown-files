@@ -82,3 +82,9 @@ Nay I never forgotten to find
 Our family always get
 : No there may as ever to pinch it how do and nobody which seemed quite tired of thing sobbed
 
+
+## Wikilinks load test
+
+[[arduous stunt flier]]
+[[neuter cryptograph]]
+[[terrific draught beer]]

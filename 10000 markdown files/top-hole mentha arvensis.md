@@ -75,3 +75,8 @@ Mine is something about
 ever Yet you will be
 : Very much to get dry leaves I try if you've cleared all talking again into
 
+
+## Wikilinks load test
+
+[[procurable cotton rush]]
+[[extrajudicial dutch capital]]

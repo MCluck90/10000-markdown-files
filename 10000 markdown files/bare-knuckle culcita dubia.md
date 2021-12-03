@@ -76,3 +76,9 @@ Soup will look about as look.
 Soon her and writing-desks which changed
 : I'd have grown woman and drinking.
 
+
+## Wikilinks load test
+
+[[precipitating mistletoe cactus]]
+[[structural bahraini]]
+[[discretional revolutionary justice organization]]

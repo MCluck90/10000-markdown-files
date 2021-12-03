@@ -89,3 +89,10 @@ Who's to fancy CURTSEYING
 Nothing whatever happens when a solemn
 : Is that.
 
+
+## Wikilinks load test
+
+[[wholemeal ulvaceae]]
+[[amenorrhoeal fucoid]]
+[[self-directed radioscopy]]
+[[fire-resisting deep middle cerebral vein]]

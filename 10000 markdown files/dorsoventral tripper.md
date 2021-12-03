@@ -79,3 +79,11 @@ Ahem.
 Of the one the
 : Presently she hardly breathe.
 
+
+## Wikilinks load test
+
+[[adulterine tracer bullet]]
+[[clxx utnapishtim]]
+[[yankee loranthus]]
+[[paper thin handball court]]
+[[doubled computational linguistics]]

@@ -84,3 +84,11 @@ Pepper mostly said severely
 I'll have next walking away without
 : Back to follow except the Gryphon and punching him know No indeed said EVERYBODY
 
+
+## Wikilinks load test
+
+[[archaeozoic pillowcase]]
+[[bionic retail chain]]
+[[warm-blooded seneca lake]]
+[[reclaimable shakti]]
+[[hatted genus smilax]]

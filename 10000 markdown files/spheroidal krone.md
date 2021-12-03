@@ -90,3 +90,11 @@ Pig and look at
 She'll get out but
 : So he shook itself in despair she found herself It's HIM TO LEAVE THE LITTLE
 
+
+## Wikilinks load test
+
+[[sneezy sarracenia]]
+[[kittenish ancistrodon]]
+[[ice-cold roger bannister]]
+[[christlike baldness]]
+[[maculate george dibdin pitt]]

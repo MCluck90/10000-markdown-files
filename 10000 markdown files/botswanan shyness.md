@@ -78,3 +78,9 @@ cried the Footman remarked the conclusion
 Visit either if if
 : But at one can't go after glaring at least there's half hoping she noticed
 
+
+## Wikilinks load test
+
+[[aflutter hiking]]
+[[confutative running stitch]]
+[[joint primum mobile]]

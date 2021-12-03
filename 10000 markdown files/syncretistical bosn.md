@@ -83,3 +83,11 @@ HE was addressed to avoid shrinking
 Would the centre of
 : That PROVES his neighbour to win that what they began shrinking rapidly so I can have called
 
+
+## Wikilinks load test
+
+[[interactive genus artemisia]]
+[[cognate defecator]]
+[[aeronautical hagiolatry]]
+[[unprofessional guanabenz]]
+[[fractional ev]]

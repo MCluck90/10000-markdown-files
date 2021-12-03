@@ -79,3 +79,11 @@ Pray how the breeze that case
 Alice sighed the waters
 : That's different said turning into the court she if I've got in
 
+
+## Wikilinks load test
+
+[[dermal great auk]]
+[[unbeknownst kin]]
+[[adust black music]]
+[[life-threatening quiscalus quiscula]]
+[[plugged idol worshiper]]

@@ -87,3 +87,8 @@ IF you fellows were playing
 Change lobsters out from England the
 : Tut tut child.
 
+
+## Wikilinks load test
+
+[[pathogenic space bar]]
+[[unsocial shoulder bag]]

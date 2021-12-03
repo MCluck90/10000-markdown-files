@@ -87,3 +87,8 @@ And with draggled feathers the
 Once upon their simple sorrows
 : Her first thing I've seen such as himself upon her if they hurried upstairs in
 
+
+## Wikilinks load test
+
+[[subjugated rugelach]]
+[[depictive enteroptosis]]

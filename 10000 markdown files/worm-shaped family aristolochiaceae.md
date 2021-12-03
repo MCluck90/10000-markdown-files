@@ -78,3 +78,7 @@ Let's go no label with
 Suddenly she turned sulky and uncomfortable
 : I'll manage.
 
+
+## Wikilinks load test
+
+[[rupicolous potamophis]]

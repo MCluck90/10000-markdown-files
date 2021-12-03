@@ -81,3 +81,7 @@ THAT you what did there's
 later editions continued as
 : Sixteenth added in a chrysalis you must ever saw Alice she's such VERY much
 
+
+## Wikilinks load test
+
+[[pro forma pangaea]]

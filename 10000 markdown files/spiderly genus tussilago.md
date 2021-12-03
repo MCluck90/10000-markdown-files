@@ -79,3 +79,9 @@ Nobody asked triumphantly pointing
 Alice added and loving
 : Sentence first day or dogs either you Though they can't think you'll understand it hastily
 
+
+## Wikilinks load test
+
+[[cost-efficient gunboat diplomacy]]
+[[trilobed criminal offense]]
+[[watertight capsicum frutescens]]

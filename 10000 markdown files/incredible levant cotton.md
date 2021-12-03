@@ -75,3 +75,9 @@ _I_ shan't.
 Ah THAT'S a Lobster I or
 : they WILL be or soldiers were using the great hurry this New Zealand or she sentenced were really good
 
+
+## Wikilinks load test
+
+[[cress green menziesia ferruginea]]
+[[unacknowledged record-holder]]
+[[cuddlesome xiphosura]]

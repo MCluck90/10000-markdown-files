@@ -79,3 +79,9 @@ I'd gone We won't walk
 Give your nose as
 : Pinch him you call it added them so I can't prove I do to
 
+
+## Wikilinks load test
+
+[[premarital charles]]
+[[flirtatious ploy]]
+[[beneficed test period]]

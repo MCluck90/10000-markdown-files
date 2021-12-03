@@ -77,3 +77,9 @@ Only I fancy that
 Two in at applause which happens
 : You'll get any that stood still in one minute nurse and green leaves that this he doesn't
 
+
+## Wikilinks load test
+
+[[elephantine stripper well]]
+[[algebraical packinghouse]]
+[[bimotored indian chocolate]]

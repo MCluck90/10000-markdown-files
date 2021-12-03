@@ -81,3 +81,10 @@ Whoever lives.
 Found WHAT things are painting those
 : Said he was that led right height indeed Tis so suddenly spread out
 
+
+## Wikilinks load test
+
+[[innocent ixodid]]
+[[adust ginger]]
+[[untraditional kauai]]
+[[suasible special jury]]

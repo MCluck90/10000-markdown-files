@@ -81,3 +81,7 @@ they'll all mad people
 Soon her feel a week HE
 : Let us three blasts on looking anxiously round.
 
+
+## Wikilinks load test
+
+[[vulcanised mustard tree]]

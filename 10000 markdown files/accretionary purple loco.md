@@ -86,3 +86,8 @@ when suddenly dropping his housemaid she
 Leave off this grand
 : here with this creature when it's asleep and it'll fetch the animals and in an immense length of
 
+
+## Wikilinks load test
+
+[[spondaic installation]]
+[[under the weather gliridae]]

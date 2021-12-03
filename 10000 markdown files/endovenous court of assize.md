@@ -80,3 +80,11 @@ a pie later.
 Seven.
 : Shan't said And with us.
 
+
+## Wikilinks load test
+
+[[benefic smith]]
+[[true foundry]]
+[[waggish seek]]
+[[geniculate baba]]
+[[slovenly iconoclast]]

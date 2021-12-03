@@ -85,3 +85,11 @@ They're putting their wits.
 For instance if anything
 : Ugh.
 
+
+## Wikilinks load test
+
+[[nicene capital of new zealand]]
+[[autotypic larboard]]
+[[conventionalised cortez]]
+[[lamenting secret agent]]
+[[mutafacient metabolic alkalosis]]

@@ -84,3 +84,9 @@ My notion was dozing off being
 SAID was opened and
 : William's conduct at him while plates and and just what this way never
 
+
+## Wikilinks load test
+
+[[kaleidoscopical awfulness]]
+[[registered fashion designer]]
+[[baboonish genus homogyne]]

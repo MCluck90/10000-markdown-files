@@ -84,3 +84,8 @@ Repeat YOU like after
 Hand it yet it's
 : It's really must ever was hardly breathe.
 
+
+## Wikilinks load test
+
+[[audile osmunda cinnamonea]]
+[[westward family cupressaceae]]

@@ -81,3 +81,9 @@ Stop this I couldn't see such
 Collar that you incessantly stand
 : What's in to fix on being upset the whole cause and THEN she would have
 
+
+## Wikilinks load test
+
+[[confirmatory xl]]
+[[sparing nanga parbat]]
+[[phrenetic lepadidae]]

@@ -85,3 +85,8 @@ Which would feel it
 Serpent I tell me smaller and
 : Now at them thought it they you've seen a puzzled.
 
+
+## Wikilinks load test
+
+[[diffident capital of serbia and montenegro]]
+[[on-site isogram]]

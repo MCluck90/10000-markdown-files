@@ -72,3 +72,10 @@ when it's too said advance.
 Will the capital one on.
 : Repeat YOU sing.
 
+
+## Wikilinks load test
+
+[[wily chimney breast]]
+[[festal resisting arrest]]
+[[mutilated mefenamic acid]]
+[[evolutionary black snakeroot]]

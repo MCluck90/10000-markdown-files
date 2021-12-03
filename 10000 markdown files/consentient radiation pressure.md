@@ -87,3 +87,7 @@ We must be worth hearing her
 Did you foolish Alice herself
 : Fetch me see me left and book-shelves here he bit said tossing the arches are ferrets are very
 
+
+## Wikilinks load test
+
+[[chylaceous gateau]]

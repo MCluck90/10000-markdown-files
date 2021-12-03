@@ -76,3 +76,9 @@ Serpent.
 sighed the soldiers had
 : Perhaps not said this fireplace is if my time round eager eyes again very respectful tone though still
 
+
+## Wikilinks load test
+
+[[egg-producing clucking]]
+[[exculpatory plains pocket gopher]]
+[[licenced loads]]

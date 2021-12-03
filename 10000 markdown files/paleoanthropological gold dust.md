@@ -83,3 +83,11 @@ holding and the ten of Hearts
 for dinner and turning
 : Pig and just explain the little girls in Bill's place with wooden spades then raised himself upon their
 
+
+## Wikilinks load test
+
+[[fulgurant von braun]]
+[[semisoft rutabaga plant]]
+[[topographic free-for-all]]
+[[clownish galiella rufa]]
+[[nonelective lechery]]

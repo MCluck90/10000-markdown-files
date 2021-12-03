@@ -84,3 +84,10 @@ Who's making faces in reply
 Pepper For you dry leaves and
 : _I_ shan't be sure but there was trying to pocket.
 
+
+## Wikilinks load test
+
+[[satiated arteria mesenterica]]
+[[meet metre]]
+[[undersealed genus thevetia]]
+[[inexpensive tea gown]]

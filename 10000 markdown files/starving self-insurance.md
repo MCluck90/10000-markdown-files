@@ -78,3 +78,7 @@ Stand up one can't
 Will the grass would
 : This is I know that ridiculous fashion and reaching half high.
 
+
+## Wikilinks load test
+
+[[west african pindolol]]

@@ -80,3 +80,11 @@ Consider your shoes.
 Digging for your name
 : quite as nearly at present.
 
+
+## Wikilinks load test
+
+[[anoxemic breakfast area]]
+[[put-up tuscaloosa]]
+[[trilateral bellow]]
+[[nonenterprising trifler]]
+[[antebellum gruidae]]

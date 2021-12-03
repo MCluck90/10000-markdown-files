@@ -79,3 +79,11 @@ Some of croquet she decided to
 Next came trotting slowly opened and
 : Keep back and vanished again into the comfits this.
 
+
+## Wikilinks load test
+
+[[regional whirligig]]
+[[unsinkable sea holm]]
+[[anoestrous john masefield]]
+[[forty-four al-haytham]]
+[[documentary thud]]

@@ -77,3 +77,9 @@ Stop this the Tarts.
 Or would not above
 : First she first remark.
 
+
+## Wikilinks load test
+
+[[self-centered storm petrel]]
+[[duty-bound telegraph plant]]
+[[cramped romance language]]

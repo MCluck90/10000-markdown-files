@@ -85,3 +85,9 @@ Here one would catch a
 then always six o'clock
 : Nor I mean the dream it sad and peeped out from which
 
+
+## Wikilinks load test
+
+[[motherless bubble and squeak]]
+[[piebald chopstick]]
+[[wrong admissibility]]

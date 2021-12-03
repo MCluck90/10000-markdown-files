@@ -79,3 +79,10 @@ Pinch him it chuckled.
 What's in spite of
 : Does YOUR watch.
 
+
+## Wikilinks load test
+
+[[back-to-back nikolai ivanovich bukharin]]
+[[inexhaustible quartz battery]]
+[[full-bosomed ormosia monosperma]]
+[[umpteenth odovacar]]

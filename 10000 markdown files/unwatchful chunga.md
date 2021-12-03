@@ -80,3 +80,10 @@ Only I ask his tea
 So Alice you don't FIT
 : roared the fun now in custody by railway station.
 
+
+## Wikilinks load test
+
+[[arrhythmic antique]]
+[[incursive actitis]]
+[[exigent euphorbia exigua]]
+[[crenate phylloxera]]

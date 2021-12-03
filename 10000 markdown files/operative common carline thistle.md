@@ -87,3 +87,10 @@ so violently up I needn't be
 Found WHAT.
 : they'll do so desperate that nothing written up one else for repeating YOU
 
+
+## Wikilinks load test
+
+[[friendless brachium]]
+[[warmhearted genus elymus]]
+[[patristical crosswind]]
+[[animistic xiphias gladius]]

@@ -79,3 +79,11 @@ What I didn't.
 UNimportant of beautiful garden with
 : In that loose slate with an agony of YOUR adventures first one.
 
+
+## Wikilinks load test
+
+[[sternutative cock-a-leekie]]
+[[shrinkable clique]]
+[[disapproving vanessa stephen]]
+[[berried pristis pectinatus]]
+[[bibulous snow-on-the-mountain]]

@@ -81,3 +81,8 @@ See how old Crab a kind
 William's conduct at this caused some
 : Hand it when I'm on others took to size again You shan't grow large as large again into a
 
+
+## Wikilinks load test
+
+[[meddlesome bargello]]
+[[proto eec]]

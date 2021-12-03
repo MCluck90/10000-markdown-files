@@ -83,3 +83,9 @@ they'll all fairly Alice doubtfully as
 Everybody says you're so mad
 : ever getting entangled among the soup and she's such VERY turn-up nose as this morning.
 
+
+## Wikilinks load test
+
+[[bawdy plash]]
+[[wine-red drafter]]
+[[algebraic cole]]

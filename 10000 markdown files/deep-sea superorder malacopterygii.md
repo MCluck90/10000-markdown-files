@@ -80,3 +80,9 @@ Exactly as if my
 In that nothing seems
 : Be what was growing larger and there.
 
+
+## Wikilinks load test
+
+[[neural rasta]]
+[[seasick erethizon dorsatum]]
+[[assertive inspectorship]]

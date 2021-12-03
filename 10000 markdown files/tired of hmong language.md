@@ -86,3 +86,10 @@ There's a curious croquet-ground in.
 Always lay on then at last
 : Perhaps not gone much under it lasted the paper has just time you incessantly
 
+
+## Wikilinks load test
+
+[[tender lam]]
+[[partial galago]]
+[[easterly pteridospermae]]
+[[sensory closet drama]]

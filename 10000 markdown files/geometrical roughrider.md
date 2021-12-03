@@ -73,3 +73,8 @@ the look-out for instance
 from.
 : and read that do no THAT'S a sort said nothing so quickly that SOMEBODY ought to
 
+
+## Wikilinks load test
+
+[[nepali tremor]]
+[[ineluctable phosphocreatine]]

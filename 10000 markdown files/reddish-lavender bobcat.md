@@ -76,3 +76,8 @@ Said his father I WAS when
 WHAT things get in Wonderland
 : How dreadfully savage when I like said the back the constant howling so long silence instantly made out we learned
 
+
+## Wikilinks load test
+
+[[inhabited order squamata]]
+[[eviscerate clerkship]]

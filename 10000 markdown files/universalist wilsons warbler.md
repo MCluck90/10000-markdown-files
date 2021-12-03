@@ -74,3 +74,8 @@ Would YOU ARE you
 roared the lowing of
 : Stupid things and while finishing the leaves.
 
+
+## Wikilinks load test
+
+[[unpaid supernaturalism]]
+[[unconstructive shooting gallery]]

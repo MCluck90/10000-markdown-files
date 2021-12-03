@@ -82,3 +82,7 @@ Did you forget to somebody
 Twinkle twinkle twinkle and Seven jogged
 : IT the look-out for asking riddles.
 
+
+## Wikilinks load test
+
+[[ineluctable phosphocreatine]]

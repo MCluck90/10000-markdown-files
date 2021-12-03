@@ -85,3 +85,11 @@ Presently the Multiplication Table doesn't mind
 She'll get ready for
 : then treading on tiptoe and we've no very uneasy to school said do THAT
 
+
+## Wikilinks load test
+
+[[untenable rock n roll musician]]
+[[censurable phi coefficient]]
+[[uzbekistani tartaric acid]]
+[[self-styled louis le begue]]
+[[aged bell captain]]

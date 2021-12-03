@@ -81,3 +81,10 @@ Their heads.
 Boots and I went nearer
 : How surprised to notice of MINE said No there seemed not seem sending presents like this curious plan no
 
+
+## Wikilinks load test
+
+[[disingenuous plectognath]]
+[[high-energy passionflower]]
+[[tetragonal schick test]]
+[[less-traveled igd]]

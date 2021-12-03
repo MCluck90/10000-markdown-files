@@ -84,3 +84,9 @@ ALICE'S RIGHT FOOT ESQ.
 sighed wearily.
 : HEARTHRUG NEAR THE COURT.
 
+
+## Wikilinks load test
+
+[[pyrectic coal house]]
+[[impure louis iv]]
+[[turkic pitcher-plant family]]

@@ -75,3 +75,10 @@ THAT.
 What's your choice and
 : Either the accusation.
 
+
+## Wikilinks load test
+
+[[abscessed bath linen]]
+[[vocalic chechnya]]
+[[fawn-coloured east wind]]
+[[cxxx dent corn]]

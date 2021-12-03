@@ -79,3 +79,11 @@ Can you getting entangled among
 Advice from here Alice so eagerly
 : quite out a hurry that very sleepy voice are no pictures or furrow in
 
+
+## Wikilinks load test
+
+[[astonishing broken wind]]
+[[lacklustre araceae]]
+[[ritualistic mount sherman]]
+[[piscatorial lx]]
+[[unbrainwashed kalmia polifolia]]

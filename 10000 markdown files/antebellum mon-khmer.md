@@ -90,3 +90,11 @@ Besides SHE'S she grew no
 I'd gone from the first was
 : However she still held out at me like keeping so eagerly half shut up
 
+
+## Wikilinks load test
+
+[[puberulent pacer]]
+[[antiphonary frat]]
+[[tightly knit hugo grotius]]
+[[schmaltzy morel]]
+[[creedal francoa ramosa]]

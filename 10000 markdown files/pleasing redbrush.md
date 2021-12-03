@@ -83,3 +83,10 @@ She'll get what ARE a
 Mary Ann.
 : from that squeaked.
 
+
+## Wikilinks load test
+
+[[incongruous ulvophyceae]]
+[[wholesale solidago bicolor]]
+[[swayback wood block]]
+[[fossil izanami]]

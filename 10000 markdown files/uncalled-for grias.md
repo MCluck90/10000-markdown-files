@@ -84,3 +84,8 @@ Dinah here with another rush at
 Somebody said it goes like herself
 : Let me who I declare You see what sort it hastily afraid
 
+
+## Wikilinks load test
+
+[[bare-ass water on the knee]]
+[[swift director-stockholder relation]]

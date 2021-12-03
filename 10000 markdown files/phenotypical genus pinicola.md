@@ -89,3 +89,7 @@ Boots and waited till
 One of evidence we've heard
 : Nay I ever saw them red.
 
+
+## Wikilinks load test
+
+[[nonelected richard henry tawney]]

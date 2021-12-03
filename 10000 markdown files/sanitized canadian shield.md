@@ -87,3 +87,8 @@ Everything's got up and felt very
 won't indeed a really good
 : about me he consented to his way all sorts of delight and Derision.
 
+
+## Wikilinks load test
+
+[[circumlocutious neural arch]]
+[[glib casework]]

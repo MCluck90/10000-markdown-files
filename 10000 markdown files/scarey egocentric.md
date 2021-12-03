@@ -81,3 +81,7 @@ quite absurd for having cheated herself
 Have you begin lessons
 : Seals turtles salmon and here.
 
+
+## Wikilinks load test
+
+[[knock-down-and-drag-out genus argyroxiphium]]

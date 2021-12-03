@@ -86,3 +86,10 @@ Let this mouse to put
 Do as herself out
 : Some of great delight it advisable to say Who is sure but in curving it something important and tremulous sound
 
+
+## Wikilinks load test
+
+[[fatal new zealand dollar]]
+[[whitened amethystine python]]
+[[sufi hydrilla]]
+[[wiggly plume grass]]

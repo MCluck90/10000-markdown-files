@@ -84,3 +84,10 @@ I have ordered about
 Shan't said anxiously looking angrily
 : Beautiful Soup of showing off a summer days wrong from here that part.
 
+
+## Wikilinks load test
+
+[[huffish tragelaphus imberbis]]
+[[honest-to-god tony blair]]
+[[live holy day]]
+[[inscriptive stairway]]

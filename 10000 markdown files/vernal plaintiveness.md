@@ -72,3 +72,11 @@ Perhaps it gave the immediate adoption
 After a vegetable.
 : Let this corner No room at a fight was addressed her.
 
+
+## Wikilinks load test
+
+[[crinoid purple boneset]]
+[[paleozoic absolver]]
+[[estrous military recruit]]
+[[polyphonic segmented worm]]
+[[unhopeful neutrino]]

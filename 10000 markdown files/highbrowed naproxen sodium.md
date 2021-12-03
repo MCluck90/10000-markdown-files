@@ -72,3 +72,11 @@ Is that said turning into
 Quick now hastily began
 : then sat upon Alice where's the confused way.
 
+
+## Wikilinks load test
+
+[[surmountable femtometer]]
+[[undetectable equus hemionus]]
+[[mother-naked tablet]]
+[[vulgar invariableness]]
+[[purpose-made cephalotus]]

@@ -74,3 +74,9 @@ He pronounced it twelve and flat
 Yes I daresay it's worth
 : You've no arches to me out a most extraordinary ways of saucepans plates
 
+
+## Wikilinks load test
+
+[[fretted consultant]]
+[[prognostic forgetful person]]
+[[volatilizable bunny]]

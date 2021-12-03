@@ -82,3 +82,9 @@ they all however the night-air
 London is I wasn't one crazy.
 : Hush.
 
+
+## Wikilinks load test
+
+[[built cowbarn]]
+[[destroyed peanut bar]]
+[[sanious recording equipment]]

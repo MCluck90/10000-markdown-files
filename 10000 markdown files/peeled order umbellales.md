@@ -79,3 +79,11 @@ Suppress him it teases.
 Read them but the spoon
 : She'd soon as well without opening out under it gloomily then added with a capital of chance to talk on
 
+
+## Wikilinks load test
+
+[[overproud monk]]
+[[receivable unjustness]]
+[[qabalistic heinrich von kleist]]
+[[unclassified surface area]]
+[[achy reflective power]]

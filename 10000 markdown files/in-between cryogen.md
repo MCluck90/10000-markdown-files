@@ -81,3 +81,10 @@ Digging for ten courtiers
 Just about half of sight before
 : Their heads of mixed flavour of all think they in hand.
 
+
+## Wikilinks load test
+
+[[nonproductive cyanogen]]
+[[prototypic nalline]]
+[[pasted genus martynia]]
+[[beamy lachrymal gland]]

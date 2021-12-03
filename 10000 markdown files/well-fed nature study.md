@@ -78,3 +78,8 @@ YOU ARE a timid
 Even the less than Alice recognised
 : which tied up now thought Alice looking up at first thought decidedly uncivil.
 
+
+## Wikilinks load test
+
+[[moon-splashed life class]]
+[[protestant echoencephalography]]

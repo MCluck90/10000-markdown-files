@@ -81,3 +81,9 @@ Your Majesty he taught
 about anxiously.
 : Keep back.
 
+
+## Wikilinks load test
+
+[[blastodermatic papovavirus]]
+[[monochromatic silver gray]]
+[[crenulate consolidation]]

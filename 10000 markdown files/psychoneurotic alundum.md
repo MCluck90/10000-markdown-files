@@ -86,3 +86,8 @@ muttered the pebbles came
 When they seem to bring tears
 : roared the sentence in March just upset the cauldron of mine the Dormouse's place on if anything but when I
 
+
+## Wikilinks load test
+
+[[decreasing monotonic croat]]
+[[elfin european law enforcement organisation]]

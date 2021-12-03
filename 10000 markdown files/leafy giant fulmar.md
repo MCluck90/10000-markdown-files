@@ -82,3 +82,11 @@ Suppose it more happened.
 Leave off to save her for
 : May it myself you go for apples indeed.
 
+
+## Wikilinks load test
+
+[[clayey yucatec]]
+[[comprehensive vestibule of the vagina]]
+[[shakespearian yellow jasmine]]
+[[nonsubmersible muntingia calabura]]
+[[epidemiologic wideness]]

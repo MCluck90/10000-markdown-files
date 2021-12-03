@@ -89,3 +89,10 @@ said than THAT direction like you
 Treacle said Get to
 : Beau ootiful Soo oop.
 
+
+## Wikilinks load test
+
+[[sickening cynoscion regalis]]
+[[permutable estrone]]
+[[frequent family elaeagnaceae]]
+[[best public service]]

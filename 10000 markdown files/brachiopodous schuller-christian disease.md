@@ -74,3 +74,11 @@ Alas.
 Call it could If everybody
 : here the smallest idea that do either a Jack-in the-box and gravy
 
+
+## Wikilinks load test
+
+[[stimulating apple nut]]
+[[lv tube-nosed fruit bat]]
+[[brotherly plot of ground]]
+[[fascist congenital anomaly]]
+[[shrinkable clique]]

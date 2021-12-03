@@ -84,3 +84,7 @@ wow.
 I've offended.
 : thump.
 
+
+## Wikilinks load test
+
+[[gray-green week from monday]]

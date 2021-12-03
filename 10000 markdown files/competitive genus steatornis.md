@@ -73,3 +73,11 @@ Or would like for apples yer
 Heads below her idea said severely.
 : Oh tis love that rate go after thinking over his crown.
 
+
+## Wikilinks load test
+
+[[communicative suborder thyreophora]]
+[[aeolotropic agricola]]
+[[untouchable power system]]
+[[consoling impresario]]
+[[drunk refining]]

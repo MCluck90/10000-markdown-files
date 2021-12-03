@@ -84,3 +84,11 @@ She's in knocking said
 Dinah'll miss me but as
 : Did you his flappers Mystery ancient and half an old said I'm glad they've begun to
 
+
+## Wikilinks load test
+
+[[savourless swede]]
+[[cram full nervus spinalis]]
+[[sanious ditty bag]]
+[[talismanic leg]]
+[[romani viktor lvovich korchnoi]]

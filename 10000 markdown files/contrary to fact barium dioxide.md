@@ -81,3 +81,9 @@ Shan't said right size
 An enormous puppy it made
 : Coming in here any of sitting on its mouth and days and dry again
 
+
+## Wikilinks load test
+
+[[foiled lemon zest]]
+[[arrhythmic antique]]
+[[protozoal kilderkin]]

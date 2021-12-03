@@ -82,3 +82,7 @@ Ugh.
 I couldn't guess that she wasn't
 : sighed wearily.
 
+
+## Wikilinks load test
+
+[[brittle kingdom of god]]

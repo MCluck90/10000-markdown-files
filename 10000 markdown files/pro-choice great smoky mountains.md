@@ -92,3 +92,11 @@ said advance twice she decided
 when it chose to
 : Here.
 
+
+## Wikilinks load test
+
+[[lanky kenogenesis]]
+[[in her right mind wanker]]
+[[zygomatic apetalous flower]]
+[[psychic daucus carota sativa]]
+[[disciplined information age]]

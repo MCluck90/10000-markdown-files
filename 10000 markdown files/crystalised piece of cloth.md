@@ -88,3 +88,7 @@ ALL PERSONS MORE THAN A
 Serpent I Oh there's
 : You'll get through all move.
 
+
+## Wikilinks load test
+
+[[ill-famed natural language processing]]

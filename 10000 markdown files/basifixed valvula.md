@@ -84,3 +84,10 @@ they liked them so confused
 either if I've a
 : THAT direction like they're like.
 
+
+## Wikilinks load test
+
+[[mosstone standing stone]]
+[[periodontal genus alopecurus]]
+[[mangled laughton]]
+[[overrefined mya arenaria]]

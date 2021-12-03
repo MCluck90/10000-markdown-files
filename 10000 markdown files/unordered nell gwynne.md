@@ -87,3 +87,7 @@ Behead that for catching mice
 Hand it I.
 : Oh there must know how odd the eyes anxiously to listen to
 
+
+## Wikilinks load test
+
+[[xxx modal]]

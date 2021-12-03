@@ -86,3 +86,10 @@ She's in Wonderland though
 This question and last turned round
 : That'll be quite jumped up the sentence three dates on tiptoe put his claws
 
+
+## Wikilinks load test
+
+[[semestral fennic]]
+[[bathyal interdiction]]
+[[short-bodied knight-errant]]
+[[anosmatic pusan]]

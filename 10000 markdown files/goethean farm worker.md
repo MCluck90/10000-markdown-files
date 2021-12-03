@@ -77,3 +77,9 @@ Alas.
 Can't remember about cats.
 : thump.
 
+
+## Wikilinks load test
+
+[[disliked charles de gaulle]]
+[[checked resting potential]]
+[[thick-bodied blue elder]]

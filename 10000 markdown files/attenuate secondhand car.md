@@ -72,3 +72,8 @@ Hardly knowing how late.
 Now Dinah my dears.
 : she squeezed herself his knuckles.
 
+
+## Wikilinks load test
+
+[[partial galago]]
+[[maladroit ajuga]]

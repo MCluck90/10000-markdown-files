@@ -86,3 +86,11 @@ Down the cake but
 Read them but they
 : Ah my jaw Has lasted.
 
+
+## Wikilinks load test
+
+[[atomistic gravedigger]]
+[[acoustical salk]]
+[[opportunist ski mask]]
+[[anomalous thunbergia alata]]
+[[incertain yoruba]]

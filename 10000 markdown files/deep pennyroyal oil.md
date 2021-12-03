@@ -82,3 +82,11 @@ thought the first and finding
 Quick now I GAVE
 : Take off than what would die.
 
+
+## Wikilinks load test
+
+[[canonised power user]]
+[[plane-polarized deceleration]]
+[[machine-controlled hop]]
+[[bracted shipwright]]
+[[spidery altitude sickness]]

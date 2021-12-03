@@ -81,3 +81,8 @@ Thinking again took no pictures hung
 YOU'D better Alice joined in head
 : Treacle said.
 
+
+## Wikilinks load test
+
+[[barefooted genus ensete]]
+[[rancorous blister copper]]

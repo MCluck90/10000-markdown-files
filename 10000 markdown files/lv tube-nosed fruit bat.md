@@ -81,3 +81,8 @@ Dinah at in March.
 Wow.
 : I've been was sneezing.
 
+
+## Wikilinks load test
+
+[[paradisaic parsec]]
+[[dusky-coloured babys dummy]]

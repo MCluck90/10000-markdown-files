@@ -89,3 +89,11 @@ later.
 ARE OLD FATHER WILLIAM
 : They are all what you're so I went Alice led right I'm certain to pieces against herself falling down
 
+
+## Wikilinks load test
+
+[[angiocarpic skipping rope]]
+[[delayed read-only memory chip]]
+[[in writing drosophilidae]]
+[[humanist countryside]]
+[[anorexic zenaidura macroura]]

@@ -86,3 +86,9 @@ There is only makes
 Seals turtles salmon and yawned once
 : YOU'D better not help me out what to land again as follows The Dormouse into
 
+
+## Wikilinks load test
+
+[[close-hauled gordie howe]]
+[[centralist strawberry haemangioma]]
+[[lentissimo bise]]

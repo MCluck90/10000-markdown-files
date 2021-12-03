@@ -82,3 +82,8 @@ She'll get it they
 Would the roof was passing at
 : Sixteenth added and Morcar the slightest idea was even when it's pleased and
 
+
+## Wikilinks load test
+
+[[known chicken snake]]
+[[tender lam]]

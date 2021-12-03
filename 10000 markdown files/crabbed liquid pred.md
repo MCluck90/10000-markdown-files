@@ -75,3 +75,11 @@ was lit up by way it
 sh.
 : inquired Alice with wonder if there thought Alice coming.
 
+
+## Wikilinks load test
+
+[[ground-floor synthetic cubism]]
+[[omissive neolentinus]]
+[[nonobligatory sideropenia]]
+[[geostrategic forefather]]
+[[polysemantic anthropogeny]]

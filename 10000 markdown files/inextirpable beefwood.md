@@ -83,3 +83,10 @@ Your Majesty.
 However he handed back
 : Reeling and his remark.
 
+
+## Wikilinks load test
+
+[[edified sniper]]
+[[unicuspid rockingham podocarp]]
+[[closed-ring calcite]]
+[[ceric childs body]]

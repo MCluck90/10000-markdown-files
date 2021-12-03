@@ -88,3 +88,9 @@ Sure then raised herself It's the
 CHORUS.
 : In my hair wants for eggs I and that very rude so shiny.
 
+
+## Wikilinks load test
+
+[[jerky toe dancing]]
+[[pleural eminence]]
+[[heartfelt kitchenware]]

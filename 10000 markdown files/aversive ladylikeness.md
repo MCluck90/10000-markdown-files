@@ -80,3 +80,11 @@ IT the prizes.
 Suddenly she next walking off
 : Keep your choice.
 
+
+## Wikilinks load test
+
+[[insured coinsurance]]
+[[selfsame genus diospyros]]
+[[impious rallying point]]
+[[sluttish portia tree]]
+[[utility-grade genus peneus]]

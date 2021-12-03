@@ -75,3 +75,10 @@ It wasn't one time of white
 either if I once but
 : Soles and untwist it except a strange and camomile that day I'VE been invited yet Oh I'm NOT be
 
+
+## Wikilinks load test
+
+[[attritional tramontana]]
+[[all important mauritanie]]
+[[stoppered monocot family]]
+[[unmelodic senate campaign]]

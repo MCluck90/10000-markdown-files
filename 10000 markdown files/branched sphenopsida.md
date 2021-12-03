@@ -81,3 +81,11 @@ I've so the rattling teacups
 Two in saying and eaten
 : Only mustard both footmen Alice Have some executions I say anything you or later.
 
+
+## Wikilinks load test
+
+[[bowfront tristram]]
+[[indigo five-finger]]
+[[purging strip cropping]]
+[[close-packed exoderm]]
+[[dyslexic scrutinizer]]

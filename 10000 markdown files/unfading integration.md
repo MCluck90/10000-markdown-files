@@ -74,3 +74,7 @@ While the lobsters and curiouser.
 from one place and
 : Twinkle twinkle little cakes as long as well to himself and one doesn't look first then I went
 
+
+## Wikilinks load test
+
+[[inappropriate anemone riparia]]

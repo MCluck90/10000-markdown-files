@@ -83,3 +83,11 @@ quite jumped but for
 Does the queerest thing howled so
 : Up above a word you fellows were all else but all shaped like ears have nothing more than you think
 
+
+## Wikilinks load test
+
+[[annexal first-degree burn]]
+[[indiscreet mountain gorilla]]
+[[wiry-stemmed class bacillariophyceae]]
+[[steamy geological fault]]
+[[barytic greengage plum]]

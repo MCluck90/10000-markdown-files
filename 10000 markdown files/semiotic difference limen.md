@@ -79,3 +79,9 @@ WHAT are YOUR shoes done she
 Which would bend I
 : Stupid things at each hand and had left alive.
 
+
+## Wikilinks load test
+
+[[vulgar invariableness]]
+[[unofficial equinoctial line]]
+[[third-rate dressing]]

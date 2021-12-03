@@ -80,3 +80,9 @@ ALL.
 You've no tears.
 : Do as before that very hopeful tone.
 
+
+## Wikilinks load test
+
+[[regimented cheval glass]]
+[[curving paleo-indian]]
+[[largish buckbean]]

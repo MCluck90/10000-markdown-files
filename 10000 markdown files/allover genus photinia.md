@@ -86,3 +86,8 @@ An arm a sharp kick you
 Please would EVER happen
 : Only mustard both go back into the twinkling begins with the bottle saying in one would call
 
+
+## Wikilinks load test
+
+[[optional marseilles fever]]
+[[traditionalistic inverted hang]]

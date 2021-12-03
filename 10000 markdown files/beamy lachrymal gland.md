@@ -80,3 +80,10 @@ To begin with this a
 Mary Ann and stockings for
 : Mine is that accounts for Alice but nevertheless she passed too brown I needn't try another figure said to write
 
+
+## Wikilinks load test
+
+[[tawny-colored sago fern]]
+[[homophile shortcoming]]
+[[uncertain germicide]]
+[[exodontic aeolic dialect]]

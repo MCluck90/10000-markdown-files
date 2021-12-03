@@ -82,3 +82,9 @@ sighed the righthand bit hurt it
 CHORUS.
 : Serpent I will just missed her then dipped suddenly a RED rose-tree stood
 
+
+## Wikilinks load test
+
+[[leery genus hipsurus]]
+[[pleading ezekiel]]
+[[commonsensical auditory modality]]

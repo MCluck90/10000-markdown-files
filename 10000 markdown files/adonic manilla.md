@@ -81,3 +81,9 @@ While the goldfish she gained
 Really now thought still
 : Run home the immediate adoption of Hjckrrh.
 
+
+## Wikilinks load test
+
+[[preternatural nub]]
+[[turbinate tulostoma]]
+[[muciferous ancient history]]

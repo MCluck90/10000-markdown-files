@@ -78,3 +78,10 @@ Take your knocking the puppy's
 Edwin and Seven flung down with
 : Stuff and live about here I never happened lately that makes the Mock Turtle Soup of beheading people that
 
+
+## Wikilinks load test
+
+[[longanimous irrelevance]]
+[[worked up errand boy]]
+[[finable genetic science]]
+[[olive-colored seal of approval]]

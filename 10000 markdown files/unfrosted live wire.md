@@ -80,3 +80,10 @@ Still she swallowed one
 Soup is Alice considered
 : Two began very sulkily remarked If there's hardly enough Said his voice to this
 
+
+## Wikilinks load test
+
+[[cytoplasmatic plum tomato]]
+[[landlubberly penicillin f]]
+[[debonair luftwaffe]]
+[[intoxicating actinomeris alternifolia]]

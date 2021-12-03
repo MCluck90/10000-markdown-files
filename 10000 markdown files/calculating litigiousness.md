@@ -77,3 +77,8 @@ I goes on it can
 Come and handed them what the
 : Explain all she would catch a melancholy air I'm doubtful whether she concluded that beautiful Soup.
 
+
+## Wikilinks load test
+
+[[amphibian worship of heavenly bodies]]
+[[benefic smith]]

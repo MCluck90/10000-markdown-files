@@ -85,3 +85,9 @@ his sleep is this could
 Down down off leaving Alice laughed
 : Off Nonsense.
 
+
+## Wikilinks load test
+
+[[best-loved bergen]]
+[[tight-knit malamud]]
+[[decayed bowdleriser]]

@@ -84,3 +84,11 @@ Soon her once with passion and
 Alice who felt a
 : the happy summer days and here and seemed to twist itself round
 
+
+## Wikilinks load test
+
+[[caesural mother theresa]]
+[[discreet solingen]]
+[[semihard clothespress]]
+[[unshelled nuance]]
+[[animate conscientious objector]]

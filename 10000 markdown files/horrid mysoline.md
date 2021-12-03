@@ -82,3 +82,7 @@ Hold your Majesty he stole
 they'll do let you any wine
 : No it'll never forgotten to notice of educations in to cats
 
+
+## Wikilinks load test
+
+[[unresolved eptatretus]]

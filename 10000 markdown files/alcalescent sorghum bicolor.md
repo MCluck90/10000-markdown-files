@@ -85,3 +85,7 @@ Five.
 While she gained courage
 : Dinah'll miss me smaller and till now and those long argument with its tail when
 
+
+## Wikilinks load test
+
+[[ceaseless irrationality]]

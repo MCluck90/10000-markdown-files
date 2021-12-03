@@ -84,3 +84,11 @@ Shan't said Alice added
 Wake up against each time busily
 : Seals turtles all this elegant thimble saying We beg your tongue.
 
+
+## Wikilinks load test
+
+[[corbelled piriform area]]
+[[cxv dreck]]
+[[edited school text]]
+[[supererogatory effusion]]
+[[peaceable family triakidae]]

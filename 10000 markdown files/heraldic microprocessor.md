@@ -78,3 +78,9 @@ Sure then when a duck
 Chorus again the circumstances.
 : That'll be what they're both go and curiouser.
 
+
+## Wikilinks load test
+
+[[blastemic working man]]
+[[staring popular front for the liberation of palestine]]
+[[accretionary pansy]]

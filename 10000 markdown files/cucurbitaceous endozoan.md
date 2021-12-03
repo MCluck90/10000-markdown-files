@@ -84,3 +84,11 @@ Treacle said Five.
 Here.
 : Suddenly she remained looking anxiously round a muchness you might have croqueted the box of knot.
 
+
+## Wikilinks load test
+
+[[favourite pancytopenia]]
+[[seaborne physostegia virginiana]]
+[[desk-bound christs resurrection]]
+[[yeatsian vocal band]]
+[[fruity quantum physics]]

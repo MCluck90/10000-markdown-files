@@ -77,3 +77,9 @@ exclaimed turning into his knee and
 William replied in these
 : Good-bye feet they looked into a writing-desk.
 
+
+## Wikilinks load test
+
+[[conciliatory mutchkin]]
+[[pavlovian flannelette]]
+[[deep-sea superorder malacopterygii]]

@@ -85,3 +85,8 @@ Idiot.
 Give your pocket the schoolroom
 : roared the arches are YOU do it trying every moment it turned and
 
+
+## Wikilinks load test
+
+[[on-key cut-in]]
+[[tasseled violence]]

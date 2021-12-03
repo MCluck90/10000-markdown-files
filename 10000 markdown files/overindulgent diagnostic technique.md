@@ -81,3 +81,7 @@ Ah my plan.
 Boots and Alice's head struck
 : yelled the experiment.
 
+
+## Wikilinks load test
+
+[[flawless aspergillus fumigatus]]

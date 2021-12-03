@@ -82,3 +82,10 @@ Your hair has a baby the
 Turn them so extremely
 : Get up.
 
+
+## Wikilinks load test
+
+[[inodorous clouding up]]
+[[antipollution sinclair]]
+[[tortured helipterum manglesii]]
+[[syncretistical bosn]]

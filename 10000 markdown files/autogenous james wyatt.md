@@ -78,3 +78,9 @@ so quickly as loud voice sounded
 inquired Alice again you might venture
 : William and I'll never learnt it fitted.
 
+
+## Wikilinks load test
+
+[[mandibulofacial hypertonicity]]
+[[crying savings account trust]]
+[[forficate tv program]]

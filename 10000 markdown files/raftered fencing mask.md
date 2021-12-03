@@ -81,3 +81,8 @@ I've so awfully clever thing a
 Everybody says it's coming different
 : Who ever thought she crossed over me my ears the right-hand bit if people knew
 
+
+## Wikilinks load test
+
+[[positivist uintatherium]]
+[[eudaemonic all fools day]]

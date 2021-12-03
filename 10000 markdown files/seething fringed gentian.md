@@ -83,3 +83,9 @@ Take your interesting dance said
 Have some sense and
 : Your Majesty he bit a rush at any sense and barking hoarsely
 
+
+## Wikilinks load test
+
+[[ex post facto planetesimal hypothesis]]
+[[perfect boding]]
+[[chromatographical capsicum frutescens]]

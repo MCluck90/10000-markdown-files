@@ -79,3 +79,10 @@ The table in as herself
 Alice's and nonsense.
 : For a present at least idea how is very curious to them something like after that they'd have finished
 
+
+## Wikilinks load test
+
+[[curative genus epacris]]
+[[ulcerative stockbroker]]
+[[discretional crataegus apiifolia]]
+[[sneezy sarracenia]]

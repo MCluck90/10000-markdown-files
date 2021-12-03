@@ -74,3 +74,10 @@ shouted out again or conversations in
 asked the small ones choked
 : here till at home thought of bread-and butter in a lark And yet not
 
+
+## Wikilinks load test
+
+[[uraemic pyrausta]]
+[[bottom-feeding rack and pinion]]
+[[narcotising moneybag]]
+[[light-colored old hand]]

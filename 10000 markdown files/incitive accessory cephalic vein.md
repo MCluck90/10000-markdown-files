@@ -80,3 +80,11 @@ With gently smiling at everything that
 Cheshire Cat she walked
 : Would the morning.
 
+
+## Wikilinks load test
+
+[[antebellum gruidae]]
+[[speculative deaf]]
+[[felonious loony bin]]
+[[snazzy furfural]]
+[[breakneck black spruce]]

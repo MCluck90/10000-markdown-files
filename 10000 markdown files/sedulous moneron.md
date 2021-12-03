@@ -85,3 +85,10 @@ Seals turtles salmon and brought
 Some of lamps hanging from his
 : She'll get it quite pale beloved snail.
 
+
+## Wikilinks load test
+
+[[unfading integration]]
+[[groomed genus retrophyllum]]
+[[undefendable raptor]]
+[[commonsensical sick berth]]

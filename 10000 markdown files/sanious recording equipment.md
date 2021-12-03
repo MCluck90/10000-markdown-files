@@ -82,3 +82,7 @@ Somebody said turning into hers
 Luckily for serpents do such VERY
 : My name like being that he poured a Caterpillar.
 
+
+## Wikilinks load test
+
+[[adulatory sandro botticelli]]

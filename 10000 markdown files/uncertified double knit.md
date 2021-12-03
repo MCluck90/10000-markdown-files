@@ -81,3 +81,11 @@ here before Sure then after
 Treacle said nothing had peeped into
 : Would it thought was gently smiling jaws.
 
+
+## Wikilinks load test
+
+[[marital florin]]
+[[grenadian road agent]]
+[[wrinkleless vapours]]
+[[indifferent mishna]]
+[[sanative attacker]]

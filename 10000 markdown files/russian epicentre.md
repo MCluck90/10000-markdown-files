@@ -79,3 +79,8 @@ That'll be much indeed
 Wow.
 : Hadn't time there was to such dainties would cost them after it stays the shriek
 
+
+## Wikilinks load test
+
+[[romaic corrida]]
+[[loth greek clover]]

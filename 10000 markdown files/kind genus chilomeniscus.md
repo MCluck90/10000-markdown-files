@@ -82,3 +82,7 @@ Same as a dish
 Not QUITE as long ringlets and
 : Stand up to write out like mad as I get dry enough to
 
+
+## Wikilinks load test
+
+[[laid-off weather strip]]

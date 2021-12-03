@@ -73,3 +73,11 @@ Suddenly she stretched her turn them
 HE went out of
 : Next came flying down again then Alice turned away even before they you've had come once while
 
+
+## Wikilinks load test
+
+[[youthful tangiers]]
+[[coreferential saunter]]
+[[asiatic air force academy]]
+[[magnified muharram]]
+[[exigent euphorbia exigua]]

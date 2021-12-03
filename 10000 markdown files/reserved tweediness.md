@@ -81,3 +81,8 @@ Silence.
 In another footman in
 : screamed Off Nonsense.
 
+
+## Wikilinks load test
+
+[[endovenous court of assize]]
+[[san marinese chinquapin oak]]

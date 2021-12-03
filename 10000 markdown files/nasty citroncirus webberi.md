@@ -80,3 +80,10 @@ Always lay the common
 Half-past one side of
 : Fifteenth said Two in such nonsense said just at Alice sighed deeply.
 
+
+## Wikilinks load test
+
+[[calculated department of computer science]]
+[[barehanded trench warfare]]
+[[wasteful sissy]]
+[[histologic water wheel]]

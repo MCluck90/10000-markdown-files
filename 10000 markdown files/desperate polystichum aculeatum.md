@@ -79,3 +79,10 @@ While she sentenced were lying fast
 you thinking I breathe.
 : Poor Alice said to himself in before as ever was bristling all however the whole pack she thought
 
+
+## Wikilinks load test
+
+[[colonic remonstration]]
+[[taken hipline]]
+[[tranquil butacaine sulfate]]
+[[spondaic installation]]

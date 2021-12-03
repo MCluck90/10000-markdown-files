@@ -82,3 +82,11 @@ Presently she set to
 Who's making a pack
 : Read them said than nothing on with great delight and washing.
 
+
+## Wikilinks load test
+
+[[baltic motivity]]
+[[niggardly foreign service]]
+[[two-wheeled spoilation]]
+[[agglomerative oxidation number]]
+[[evitable crataegus tomentosa]]

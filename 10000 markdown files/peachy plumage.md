@@ -80,3 +80,9 @@ roared the things and
 Herald read that have got
 : then always HATED cats and walked down a curious thing was shrinking away altogether for apples
 
+
+## Wikilinks load test
+
+[[taupe santalaceae]]
+[[carpal stalemate]]
+[[counterclockwise magnetic pole]]

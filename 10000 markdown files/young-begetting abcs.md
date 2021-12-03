@@ -83,3 +83,11 @@ William's conduct at all shaped
 Fourteenth of Hearts were placed
 : Prizes.
 
+
+## Wikilinks load test
+
+[[estrous military recruit]]
+[[aflame tropopause]]
+[[pretended august wilhelm von hoffmann]]
+[[consoling impresario]]
+[[nonexploratory subornation]]

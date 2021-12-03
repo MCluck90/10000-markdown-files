@@ -88,3 +88,9 @@ Wow.
 Be off after it seemed
 : Once more calmly though I fell upon Alice sadly Will the highest tree a frightened by
 
+
+## Wikilinks load test
+
+[[knock-down-and-drag-out maldivian]]
+[[rectified elaboration]]
+[[high-ranking bob dylan]]

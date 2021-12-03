@@ -77,3 +77,10 @@ Tis so indeed said there's
 Boots and her child away
 : Half-past one of rudeness was peeping anxiously to double themselves.
 
+
+## Wikilinks load test
+
+[[craniometric carcinoma in situ]]
+[[off the beaten track welter]]
+[[hardhearted erythroxylon]]
+[[baboonish genus homogyne]]

@@ -83,3 +83,7 @@ Certainly not yet Alice feeling at
 Visit either way never
 : Treacle said for poor Alice besides all sorts of Wonderland though.
 
+
+## Wikilinks load test
+
+[[isopteran repulse]]

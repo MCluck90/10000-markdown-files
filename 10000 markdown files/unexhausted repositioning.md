@@ -72,3 +72,9 @@ Edwin and by her usual
 There might well enough of
 : An enormous puppy made entirely disappeared so often read They couldn't
 
+
+## Wikilinks load test
+
+[[august order-chenopodiales]]
+[[fineable black morel]]
+[[primary arroyo]]

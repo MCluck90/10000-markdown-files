@@ -76,3 +76,7 @@ Heads below and soon
 Wake up but none Why you
 : Either the earls of herself down stairs.
 
+
+## Wikilinks load test
+
+[[cometary chasm]]

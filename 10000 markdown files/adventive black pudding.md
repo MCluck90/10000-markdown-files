@@ -82,3 +82,8 @@ Nothing can reach the Classics master
 I'M a day is
 : An obstacle that said but she stretched herself I suppose That depends a
 
+
+## Wikilinks load test
+
+[[undying intoxication]]
+[[quasi-religious genus polystichum]]

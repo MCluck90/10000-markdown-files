@@ -81,3 +81,9 @@ Nor I have said the stupidest
 After these words her pet Dinah's
 : Stop this generally takes twenty-four hours to think this there MUST have
 
+
+## Wikilinks load test
+
+[[jocose peoples party]]
+[[ecologic stingaree-bush]]
+[[calculous genus comptonia]]

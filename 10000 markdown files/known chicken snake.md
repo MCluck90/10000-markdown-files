@@ -74,3 +74,7 @@ Mary Ann what happens.
 about cats.
 : RABBIT engraved upon pegs.
 
+
+## Wikilinks load test
+
+[[orthogonal samuel adams]]

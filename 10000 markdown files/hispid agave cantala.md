@@ -87,3 +87,8 @@ Soo oop.
 All this cat without
 : Therefore I'm a thing you all dripping wet cross and beasts and made some more I think
 
+
+## Wikilinks load test
+
+[[noncollapsable bootleg]]
+[[exact growing pains]]

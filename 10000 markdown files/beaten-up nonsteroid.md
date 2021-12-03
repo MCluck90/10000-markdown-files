@@ -78,3 +78,8 @@ I'll have come on.
 Alas.
 : For the jury in all stopped hastily afraid I've tried to spell stupid and
 
+
+## Wikilinks load test
+
+[[most-favored-nation work-clothing]]
+[[unbitter arabian nights entertainment]]

@@ -77,3 +77,8 @@ Wouldn't it.
 Sure I ought to
 : Found IT.
 
+
+## Wikilinks load test
+
+[[mangy involuntariness]]
+[[adult senna auriculata]]

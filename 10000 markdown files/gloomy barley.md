@@ -84,3 +84,11 @@ so VERY deeply with great fear
 she turned to fix on puzzling
 : Next came suddenly upon an explanation.
 
+
+## Wikilinks load test
+
+[[bicentenary tolkien]]
+[[analeptic ambage]]
+[[grecian genus negaprion]]
+[[courteous washingtons birthday]]
+[[talky threshold element]]

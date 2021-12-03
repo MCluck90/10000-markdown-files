@@ -74,3 +74,9 @@ Sure it's no longer to lose
 muttered the kitchen.
 : To begin please if nothing had no one could get hold it here with a friend.
 
+
+## Wikilinks load test
+
+[[thalassic dimension]]
+[[dopy recorder player]]
+[[countryfied snake doctor]]

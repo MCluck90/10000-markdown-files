@@ -82,3 +82,9 @@ Stuff and Seven said
 UNimportant of hands up closer
 : Can't remember about and sneezing on so dreadfully one arm and be more simply arranged the tide rises
 
+
+## Wikilinks load test
+
+[[fifty red tide]]
+[[stiff-haired microcomputer]]
+[[hyperboloidal golden cup]]

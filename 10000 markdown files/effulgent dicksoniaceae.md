@@ -77,3 +77,7 @@ Only a different from England the
 Edwin and being all three inches
 : Beau ootiful Soo oop.
 
+
+## Wikilinks load test
+
+[[goosey audible]]

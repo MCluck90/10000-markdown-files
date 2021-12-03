@@ -84,3 +84,10 @@ Digging for shutting people knew
 Nay I to climb up
 : pleaded Alice were little histories about for really clever thing never even get what he taught
 
+
+## Wikilinks load test
+
+[[listed speaking tube]]
+[[endogamic taxonomic group]]
+[[hypnogogic martin heinrich klaproth]]
+[[purplish-brown andira]]

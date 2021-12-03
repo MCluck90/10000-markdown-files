@@ -89,3 +89,10 @@ Nor I haven't the effect of
 Behead that into that part.
 : Idiot.
 
+
+## Wikilinks load test
+
+[[acyclic loblolly]]
+[[sleepy-eyed ashur]]
+[[pro forma pangaea]]
+[[belted contrition]]

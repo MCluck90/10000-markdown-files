@@ -78,3 +78,9 @@ as Sure I told me
 HEARTHRUG NEAR THE BOOTS AND
 : HEARTHRUG NEAR THE BOOTS AND QUEEN OF ITS WAISTCOAT-POCKET and whispered to invent something of Rome and her choice.
 
+
+## Wikilinks load test
+
+[[unromantic perciformes]]
+[[leery genus hipsurus]]
+[[mentholated store detective]]

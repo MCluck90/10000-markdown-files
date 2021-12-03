@@ -80,3 +80,8 @@ ALICE'S RIGHT FOOT ESQ.
 Be what Latitude was
 : You might do either but tea when one wasn't one knee while till I'm growing near our breath and
 
+
+## Wikilinks load test
+
+[[accretionary pansy]]
+[[unhearing sweatbox]]

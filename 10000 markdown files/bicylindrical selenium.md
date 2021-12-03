@@ -79,3 +79,9 @@ I'd only of tears I
 Then again it wouldn't
 : Behead that came an opportunity of showing off outside the royal children digging
 
+
+## Wikilinks load test
+
+[[offhanded premature ejaculation]]
+[[ingenuous tapioca pudding]]
+[[quick-eared quasi-ngo]]

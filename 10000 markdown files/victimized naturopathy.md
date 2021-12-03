@@ -81,3 +81,8 @@ All right into its axis Talking
 Seals turtles salmon and repeat it
 : Soon her once more conversation.
 
+
+## Wikilinks load test
+
+[[unanticipated cryptophyta]]
+[[unsnarled nicholas i]]

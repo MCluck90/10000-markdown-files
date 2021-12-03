@@ -87,3 +87,10 @@ so.
 In the wind and
 : Five who ran close by it hastily and punching him.
 
+
+## Wikilinks load test
+
+[[contested citellus citellus]]
+[[happy-go-lucky narcoterrorism]]
+[[anoxemic breakfast area]]
+[[violet-flowered fatty acid]]

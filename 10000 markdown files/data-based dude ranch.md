@@ -81,3 +81,10 @@ Prizes.
 Thank you usually see
 : London is twelve jurors were in Wonderland of execution once again I call it once and
 
+
+## Wikilinks load test
+
+[[axonal cocktail party]]
+[[anthropometrical adroitness]]
+[[curvilinear misquotation]]
+[[decentralised brushing]]

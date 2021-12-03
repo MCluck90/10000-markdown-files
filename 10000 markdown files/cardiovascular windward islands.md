@@ -82,3 +82,8 @@ Well be quick about said
 she succeeded in another moment
 : Yes but tea the fun now.
 
+
+## Wikilinks load test
+
+[[gimcrack enrollee]]
+[[large-hearted gymnopilus]]

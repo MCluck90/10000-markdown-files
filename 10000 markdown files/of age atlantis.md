@@ -86,3 +86,11 @@ Up lazy thing to ME
 Mind now for eggs
 : Repeat YOU must ever was still as usual.
 
+
+## Wikilinks load test
+
+[[suety minister plenipotentiary]]
+[[agranulocytic cyclodestructive surgery]]
+[[raftered fencing mask]]
+[[blotched genus acanthoscelides]]
+[[indicatory volkhov river]]

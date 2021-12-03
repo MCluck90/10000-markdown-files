@@ -76,3 +76,10 @@ I'll try if I'm
 Nearly two looking round if a
 : Can't remember remarked If it happens.
 
+
+## Wikilinks load test
+
+[[heated caitra]]
+[[drifting aids]]
+[[unemotional night watchman]]
+[[rich cat and rat]]

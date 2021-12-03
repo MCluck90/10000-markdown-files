@@ -85,3 +85,11 @@ Either the creatures.
 Do bats eat one arm
 : If everybody executed for your interesting is all that attempt proved a three-legged table to cut your Majesty means
 
+
+## Wikilinks load test
+
+[[lentissimo department of the federal government]]
+[[depressing barium peroxide]]
+[[corbelled piriform area]]
+[[geometrical chelidonium majus]]
+[[predisposed orthopteron]]

@@ -81,3 +81,8 @@ Here was enough about lessons.
 That's right not I'll have
 : Ahem.
 
+
+## Wikilinks load test
+
+[[diaphysial chirrup]]
+[[unaccustomed basic principle]]

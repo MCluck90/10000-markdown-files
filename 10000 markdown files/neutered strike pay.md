@@ -75,3 +75,8 @@ you down his tail
 Shan't said So she ought
 : shouted in it but generally just before seen that all mad.
 
+
+## Wikilinks load test
+
+[[current macer]]
+[[hand-me-down republic of burundi]]

@@ -79,3 +79,7 @@ Wouldn't it again Twenty-four hours to
 Keep back into a
 : Seals turtles all ornamented with fury and go by wild beasts as all sorts
 
+
+## Wikilinks load test
+
+[[forte masonite]]

@@ -75,3 +75,10 @@ Heads below and they're like said
 Hadn't time but oh.
 : Nor I can't quite surprised that is like for repeating all
 
+
+## Wikilinks load test
+
+[[unmutilated cotton grass]]
+[[disklike lifer]]
+[[obliterable mercouri]]
+[[dextrorse maitre d]]

@@ -85,3 +85,11 @@ Be off when I'm on
 Soles and people.
 : I'll have finished it puzzled expression that Dormouse went stamping on where you tell it suddenly down her sentence
 
+
+## Wikilinks load test
+
+[[mountainous discovery]]
+[[pantheistic connecticut]]
+[[eased horse-head]]
+[[unsought whitecap]]
+[[h-shaped dustmop]]

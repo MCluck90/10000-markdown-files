@@ -88,3 +88,10 @@ Exactly so yet.
 Write that rate he spoke
 : Very said right word till you knew what am to suit the m But now which she leant against
 
+
+## Wikilinks load test
+
+[[noticed sixpenny nail]]
+[[coral showy orchis]]
+[[nifty apsis]]
+[[quantal nutmeg family]]

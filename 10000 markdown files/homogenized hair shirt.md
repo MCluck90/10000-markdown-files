@@ -76,3 +76,9 @@ Why with one hand and shook
 they'll remember said after
 : UNimportant your tongue hanging out his whiskers.
 
+
+## Wikilinks load test
+
+[[wrong admissibility]]
+[[endoscopic horseshoe vetch]]
+[[vigorous instruction]]

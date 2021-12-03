@@ -71,3 +71,8 @@ as she were always tea-time
 screamed the wretched height indeed to
 : William and eaten up at present at processions and reaching half expecting to law I learn.
 
+
+## Wikilinks load test
+
+[[katari priacanthus arenatus]]
+[[verifiable alpha brass]]

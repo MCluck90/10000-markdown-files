@@ -78,3 +78,11 @@ Soles and expecting every door
 Thinking again to say
 : After that to sink into hers she ran.
 
+
+## Wikilinks load test
+
+[[revivalistic genus phoenix]]
+[[tantrik allioniaceae]]
+[[frolicky photinia arbutifolia]]
+[[blue-purple malayalam]]
+[[attractive pain threshold]]

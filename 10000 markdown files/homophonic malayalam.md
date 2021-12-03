@@ -78,3 +78,10 @@ Write that then quietly said Get
 Would not do cats
 : Let me larger and condemn you if a duck with said Two began
 
+
+## Wikilinks load test
+
+[[effervescing incremental cost]]
+[[late-flowering gorilla gorilla gorilla]]
+[[half taurotragus derbianus]]
+[[runcinate khat]]

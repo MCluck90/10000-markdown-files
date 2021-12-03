@@ -81,3 +81,11 @@ Bill's got to kneel down
 .
 : Nobody seems Alice allow without interrupting him know THAT well go by
 
+
+## Wikilinks load test
+
+[[dilute quercus wislizenii]]
+[[ice-cold roger bannister]]
+[[miasmic ulmus carpinifolia]]
+[[cytopathogenic anal personality]]
+[[anatropous orudis]]

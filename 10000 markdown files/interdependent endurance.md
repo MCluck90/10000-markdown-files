@@ -75,3 +75,7 @@ Consider my poor hands how
 May it say that's about
 : Nay I ask perhaps said gravely.
 
+
+## Wikilinks load test
+
+[[oily phidias]]

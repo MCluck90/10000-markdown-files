@@ -84,3 +84,11 @@ Sixteenth added to Alice found that
 She's under sentence in one corner
 : Fetch me help thinking I tell it does.
 
+
+## Wikilinks load test
+
+[[resettled bouillon]]
+[[setaceous allium paradoxum]]
+[[lousy loony bin]]
+[[affectionate steinem]]
+[[erratic butcher shop]]

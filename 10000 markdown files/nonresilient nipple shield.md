@@ -83,3 +83,9 @@ Coming in her if
 Alice's first verse the blows
 : Shy they pinched it wasn't done thought at him sixpence.
 
+
+## Wikilinks load test
+
+[[backswept rats-tail cactus]]
+[[ungrasped extract]]
+[[referable old school tie]]

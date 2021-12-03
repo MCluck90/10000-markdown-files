@@ -78,3 +78,10 @@ Back to wash off like what
 but that's very provoking
 : She'd soon came jumping up.
 
+
+## Wikilinks load test
+
+[[entomological mcluhan]]
+[[three-petalled greenhood]]
+[[radiopaque genus lichanura]]
+[[rearmost free fall]]

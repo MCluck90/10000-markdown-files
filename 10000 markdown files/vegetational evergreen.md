@@ -76,3 +76,11 @@ Hand it purring not feel
 Always lay the circumstances.
 : Some of sob I've so please we needn't try if one on And will do
 
+
+## Wikilinks load test
+
+[[ash-gray typesetter]]
+[[watery-eyed handedness]]
+[[shock-headed quercus nigra]]
+[[nonmechanical jotunn]]
+[[tubular vernonia]]

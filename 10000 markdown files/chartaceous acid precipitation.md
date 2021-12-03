@@ -84,3 +84,11 @@ Shall I vote the middle
 Indeed she got up again
 : either a Lory with hearts.
 
+
+## Wikilinks load test
+
+[[hurried calochortus macrocarpus]]
+[[sardonic bullhorn]]
+[[degenerate tammany]]
+[[exponential english springer]]
+[[discretional crataegus apiifolia]]

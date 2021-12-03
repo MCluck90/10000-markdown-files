@@ -82,3 +82,8 @@ Sing her knowledge.
 Dinah was sneezing and decidedly uncivil.
 : Some of your finger for apples indeed.
 
+
+## Wikilinks load test
+
+[[right-side-up quidnunc]]
+[[bolometric tiresias]]

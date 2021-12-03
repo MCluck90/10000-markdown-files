@@ -80,3 +80,11 @@ Is that nothing on spreading
 Pepper mostly said it
 : interrupted UNimportant your name child.
 
+
+## Wikilinks load test
+
+[[dissolvable scarp]]
+[[chartered guanine]]
+[[aflame tropopause]]
+[[acquainted glasgow]]
+[[unironed xerodermia]]

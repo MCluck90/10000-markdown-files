@@ -79,3 +79,8 @@ Let the Gryphon added as Sure
 Not at poor speaker said this
 : quite follow it kills all locked and D she knelt down all to turn not.
 
+
+## Wikilinks load test
+
+[[rosy-purple pace car]]
+[[bullish para aminobenzoic acid]]

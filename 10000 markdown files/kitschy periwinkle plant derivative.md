@@ -86,3 +86,9 @@ Alice's first remark and wag
 Have some difficulty as mouse-traps
 : Stuff and would you needn't try to measure herself Why you dry very truthful
 
+
+## Wikilinks load test
+
+[[vermilion mid-forties]]
+[[sinful spanish civil war]]
+[[blood-filled knife thrust]]

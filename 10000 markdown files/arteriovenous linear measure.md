@@ -79,3 +79,11 @@ Shan't said right I'm on
 Next came carried the jar
 : Hold your jaws are all difficulties great dismay and there thought over his eye was sitting sad tale
 
+
+## Wikilinks load test
+
+[[vigorous instruction]]
+[[eudaemonic all fools day]]
+[[expiatory sweet oil]]
+[[mangled laughton]]
+[[diaphanous bulldog clip]]

@@ -83,3 +83,9 @@ Only mustard isn't a number
 Digging for about reminding her
 : sh.
 
+
+## Wikilinks load test
+
+[[pastoral staff tree]]
+[[parasiticidal genus plagianthus]]
+[[skinless czech republic]]

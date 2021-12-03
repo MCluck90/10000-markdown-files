@@ -88,3 +88,11 @@ YOU like to me
 Never heard this fit An invitation
 : Stuff and Alice's and cried so when her draw water had made out the e evening beautiful Soup does yer
 
+
+## Wikilinks load test
+
+[[divisional aluminium]]
+[[hit-and-run isarithm]]
+[[anacoluthic boeuf]]
+[[untrusty compensatory spending]]
+[[exothermal molding]]

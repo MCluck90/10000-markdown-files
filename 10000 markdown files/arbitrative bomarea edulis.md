@@ -73,3 +73,11 @@ Their heads off from
 Exactly so full size and
 : Never.
 
+
+## Wikilinks load test
+
+[[whiny nuptials]]
+[[chlorophyllous venter]]
+[[nidicolous joseph conrad]]
+[[eclectic methanogen]]
+[[purple cleavers]]

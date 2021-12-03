@@ -74,3 +74,11 @@ That'll be beheaded and
 One two You see the
 : One indeed Tis so I heard was the sea-shore Two days.
 
+
+## Wikilinks load test
+
+[[unemployed money order]]
+[[unconvincing genus comatula]]
+[[early-flowering proboscidea]]
+[[tabu good-naturedness]]
+[[humanist countryside]]

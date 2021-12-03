@@ -83,3 +83,10 @@ Good-bye feet they live about
 Soo oop.
 : Leave off quite giddy.
 
+
+## Wikilinks load test
+
+[[oriented supernumerary]]
+[[vertiginous erik alfred leslie satie]]
+[[laughing bilateral contract]]
+[[amphibian worship of heavenly bodies]]

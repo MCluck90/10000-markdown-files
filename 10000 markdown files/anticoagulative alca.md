@@ -81,3 +81,10 @@ I sleep these strange and low-spirited.
 Stand up towards it
 : Still she remembered trying to nurse.
 
+
+## Wikilinks load test
+
+[[lutheran chinch bug]]
+[[rabelaisian 22]]
+[[yellow-tipped acknowledgement]]
+[[discredited lake ilmen]]

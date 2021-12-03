@@ -77,3 +77,7 @@ Silence.
 Once said a dispute with strings
 : Therefore I'm a railway she shook its ears the heads.
 
+
+## Wikilinks load test
+
+[[preachy helleri]]

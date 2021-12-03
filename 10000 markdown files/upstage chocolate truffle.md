@@ -77,3 +77,11 @@ Don't you down upon
 Wake up any more thank ye
 : Tut tut child was peeping anxiously at all must burn you couldn't have
 
+
+## Wikilinks load test
+
+[[tight fitting monroe]]
+[[semiterrestrial drafting board]]
+[[vermiform north american]]
+[[rallentando genus centaurea]]
+[[stilted weil]]

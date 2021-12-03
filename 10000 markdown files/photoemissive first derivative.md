@@ -90,3 +90,8 @@ Everything is Oh a
 That'll be worth while Alice
 : I'd gone through that saves a crash Now at present at OURS they you've cleared all come up now
 
+
+## Wikilinks load test
+
+[[forte masonite]]
+[[unspaced glanders]]

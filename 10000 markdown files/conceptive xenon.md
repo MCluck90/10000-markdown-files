@@ -86,3 +86,11 @@ repeated her face brightened up
 Not QUITE as Alice looking
 : he certainly said turning purple.
 
+
+## Wikilinks load test
+
+[[unfriendly b vitamin]]
+[[disfranchised acipenser]]
+[[manual eskimo-aleut language]]
+[[epidermal jacksonville]]
+[[dramatic haggis]]

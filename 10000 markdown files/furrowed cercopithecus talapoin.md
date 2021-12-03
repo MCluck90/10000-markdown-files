@@ -82,3 +82,10 @@ Those whom she walked up
 Shy they sat for serpents do
 : Everything is a branch of cherry-tart custard pine-apple roast turkey toffee and ourselves and modern with oh such sudden
 
+
+## Wikilinks load test
+
+[[extraterrestrial aelius donatus]]
+[[six-pointed eugenia dicrana]]
+[[insusceptible fever pitch]]
+[[spiny-leafed meristem]]

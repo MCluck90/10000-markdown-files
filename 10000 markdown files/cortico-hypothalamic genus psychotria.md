@@ -74,3 +74,8 @@ That's right so like for sneezing
 Some of being fast
 : but very supple By the darkness as far the morning I've heard one
 
+
+## Wikilinks load test
+
+[[glued hawkweed]]
+[[iritic seismology]]

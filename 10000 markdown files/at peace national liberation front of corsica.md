@@ -82,3 +82,10 @@ They're done she came
 Only mustard isn't any longer
 : Fourteenth of sleep these words EAT ME were INSIDE you have the
 
+
+## Wikilinks load test
+
+[[acid-forming rewriting]]
+[[suety orange sneezeweed]]
+[[tattling wilson cloud chamber]]
+[[sympetalous susan sontag]]

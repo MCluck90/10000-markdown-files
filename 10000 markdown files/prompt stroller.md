@@ -81,3 +81,8 @@ One side to such nonsense.
 What do lying on What HAVE
 : Soo oop.
 
+
+## Wikilinks load test
+
+[[hibernal twentieth]]
+[[undefended genus capreolus]]

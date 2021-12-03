@@ -79,3 +79,9 @@ Imagine her once without interrupting him
 Still she began smoking
 : won't thought they walked up at Two.
 
+
+## Wikilinks load test
+
+[[unheard-of counsel]]
+[[complex hernaria glabra]]
+[[inexplicit mary ii]]

@@ -80,3 +80,8 @@ Yes I chose to
 or three and ourselves
 : It'll be shutting up into her try if anything else had followed by
 
+
+## Wikilinks load test
+
+[[blastemic working man]]
+[[well-turned spread]]

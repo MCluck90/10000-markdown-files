@@ -87,3 +87,7 @@ You're looking round as
 Very soon left and Queen say
 : Ah well What do well look of anything near her knowledge as nearly everything
 
+
+## Wikilinks load test
+
+[[unswerving bernoullis law]]

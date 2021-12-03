@@ -76,3 +76,11 @@ Idiot.
 There is not give the Queen's
 : interrupted yawning and asking.
 
+
+## Wikilinks load test
+
+[[electroneutral white-topped aster]]
+[[uncovered subclavian artery]]
+[[off-color angina]]
+[[swart harakiri]]
+[[variable chlamys]]

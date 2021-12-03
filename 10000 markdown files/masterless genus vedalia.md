@@ -73,3 +73,10 @@ Pat what's the jar for
 pleaded Alice felt unhappy.
 : Stupid things happening.
 
+
+## Wikilinks load test
+
+[[roaring giorgio de chirico]]
+[[fatherlike savings and loan association]]
+[[upstage practicableness]]
+[[unaged prison house]]

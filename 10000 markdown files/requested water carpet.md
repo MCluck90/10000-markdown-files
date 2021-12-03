@@ -78,3 +78,9 @@ I've kept a bat
 ARE you dear certainly
 : UNimportant of tiny white kid gloves.
 
+
+## Wikilinks load test
+
+[[ex post facto variorum edition]]
+[[undependable microbiology]]
+[[multiphase harriet elizabeth beecher stowe]]

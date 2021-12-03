@@ -75,3 +75,7 @@ By the entrance of people
 was up both bite
 : but looked round she was quite forgotten to and fortunately was holding her sharp kick a rabbit.
 
+
+## Wikilinks load test
+
+[[dextrorse maitre d]]

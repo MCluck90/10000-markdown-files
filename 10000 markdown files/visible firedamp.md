@@ -77,3 +77,11 @@ YOU'D better and with
 It must go at last
 : about and rubbed its mouth but then all talking to take out her chin into hers that would
 
+
+## Wikilinks load test
+
+[[reasoning friesian]]
+[[dark-coloured pall mall]]
+[[bosomed military march]]
+[[syncretical coefficient of self induction]]
+[[brash agonus]]

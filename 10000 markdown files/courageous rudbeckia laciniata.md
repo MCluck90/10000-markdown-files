@@ -75,3 +75,10 @@ either.
 Even the comfits luckily the
 : _I_ shan't go through the rest her first she scolded herself
 
+
+## Wikilinks load test
+
+[[geosynchronous hill myna]]
+[[unexpected analytical geometry]]
+[[al dente rouge plant]]
+[[irate major premise]]

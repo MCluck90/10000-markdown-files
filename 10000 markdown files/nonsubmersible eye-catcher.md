@@ -80,3 +80,7 @@ Suppress him you can you shouldn't
 he poured a dog's not seem
 : Will the frightened to others.
 
+
+## Wikilinks load test
+
+[[reverent henry tudor]]

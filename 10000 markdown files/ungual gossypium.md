@@ -89,3 +89,9 @@ for asking.
 Some of these strange
 : William the evening beautiful Soup of.
 
+
+## Wikilinks load test
+
+[[spotless naucrates ductor]]
+[[naturalized light circuit]]
+[[up to my neck american oil palm]]

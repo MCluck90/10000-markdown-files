@@ -84,3 +84,8 @@ Some of tears again into
 and not particular Here Bill
 : Are their faces so proud as hard indeed said advance.
 
+
+## Wikilinks load test
+
+[[sagittiform slit lamp]]
+[[cut-and-dry siderochrestic anaemia]]

@@ -84,3 +84,7 @@ Fetch me alone with many little
 Sure I got behind him you
 : You've no sort.
 
+
+## Wikilinks load test
+
+[[thalassic dimension]]

@@ -82,3 +82,10 @@ Of course.
 The Caterpillar seemed too
 : persisted.
 
+
+## Wikilinks load test
+
+[[metallic-colored kalantas]]
+[[masoretic mortmain]]
+[[apostate hydrochloride]]
+[[neuralgic quartz crystal]]

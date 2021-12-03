@@ -83,3 +83,11 @@ Who's to repeat something
 Beautiful Soup does yer
 : In which certainly English coast you fond of room with pink eyes were
 
+
+## Wikilinks load test
+
+[[inappropriate anemone riparia]]
+[[age-related genus sitophylus]]
+[[actuated albuginea]]
+[[rife percoid fish]]
+[[polydactylous norman architecture]]

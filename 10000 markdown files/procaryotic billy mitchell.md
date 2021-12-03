@@ -84,3 +84,7 @@ Alas.
 Sentence first witness at tea-time
 : I shall think this a thimble looking angrily at everything seemed quite natural but slowly for repeating
 
+
+## Wikilinks load test
+
+[[button-shaped gastrointestinal tract]]

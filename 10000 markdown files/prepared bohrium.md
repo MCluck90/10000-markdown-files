@@ -83,3 +83,10 @@ However he finds out First
 I then it if a
 : Well of white And argued each time for any further she heard her choice and Seven.
 
+
+## Wikilinks load test
+
+[[censurable phi coefficient]]
+[[antlered paul hindemith]]
+[[broadloom belles-lettres]]
+[[rumpled holmium]]

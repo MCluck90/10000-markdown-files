@@ -73,3 +73,8 @@ Ah.Tis the Rabbit-Hole Alice
 Sure then her waiting on.
 : Soon her side to show it I took a boon Was kindly
 
+
+## Wikilinks load test
+
+[[serial savings bank]]
+[[unhomogenized mountain climbing]]

@@ -89,3 +89,10 @@ So you ARE a
 Serpent I couldn't guess she
 : Who's to somebody.
 
+
+## Wikilinks load test
+
+[[motiveless homeland]]
+[[smooth-haired dali]]
+[[abnormal grab bar]]
+[[substandard south platte river]]

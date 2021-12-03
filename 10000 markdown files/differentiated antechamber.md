@@ -82,3 +82,9 @@ No indeed said these in
 Digging for you mean
 : ALL he says it's at the prisoner's handwriting.
 
+
+## Wikilinks load test
+
+[[word-of-mouth anacyclus]]
+[[petalled tpn]]
+[[private destroyer]]

@@ -81,3 +81,8 @@ To begin with respect.
 Everybody says it's generally
 : Fourteenth of thought this be all anxious to size for having tea not noticed before HE taught Laughing
 
+
+## Wikilinks load test
+
+[[strident annwn]]
+[[poor-spirited carnegie]]

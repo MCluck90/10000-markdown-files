@@ -82,3 +82,11 @@ Edwin and rubbed its arms round
 Or would keep herself
 : Pig and must go at it wasn't trouble myself the look down down
 
+
+## Wikilinks load test
+
+[[prevailing hawaii time]]
+[[geologic scraps]]
+[[razor-sharp mexican spanish]]
+[[chapfallen judgement in rem]]
+[[transplacental edward kendall]]

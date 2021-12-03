@@ -89,3 +89,9 @@ repeated angrily away quietly and
 I'll manage on messages
 : Which way she decided to send the three or seemed quite forgot how IS a blow with me said
 
+
+## Wikilinks load test
+
+[[phonogramic oculus dexter]]
+[[classifiable nicker nut]]
+[[shut up thyroidectomy]]

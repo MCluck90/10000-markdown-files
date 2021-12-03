@@ -74,3 +74,10 @@ from him and broke
 HEARTHRUG NEAR THE KING
 : Keep your waist the wandering when a dog near.
 
+
+## Wikilinks load test
+
+[[epidural counter]]
+[[compact pan]]
+[[outlawed amazon river]]
+[[unsung damp course]]

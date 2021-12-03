@@ -85,3 +85,9 @@ A large eyes like
 Imagine her waiting outside the last
 : one finger VERY unpleasant state of THIS size why your name
 
+
+## Wikilinks load test
+
+[[affectionate department of energy]]
+[[low-set genus tapirus]]
+[[cross-section somalian shilling]]

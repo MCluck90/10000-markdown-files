@@ -71,3 +71,11 @@ Keep back in dancing round I
 I've fallen by the
 : Alice whose cause was growing near her hedgehog had peeped out First came into Alice's Evidence
 
+
+## Wikilinks load test
+
+[[grecian genus negaprion]]
+[[violet-black raftsman]]
+[[greenish-gray architeuthis]]
+[[unthawed edward jean steichen]]
+[[arch cat box]]

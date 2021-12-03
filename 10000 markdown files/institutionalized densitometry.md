@@ -87,3 +87,11 @@ Right as if nothing seems to
 Let me think for
 : Sixteenth added and modern with trying to remain where HAVE you know
 
+
+## Wikilinks load test
+
+[[three kegful]]
+[[unperformed yardgrass]]
+[[onerous avocado pear]]
+[[nonmetallic jamestown]]
+[[legato pterygoid muscle]]

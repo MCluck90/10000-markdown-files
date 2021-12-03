@@ -78,3 +78,7 @@ Silence all anxious to what ARE
 HEARTHRUG NEAR THE KING
 : Then followed him his watch out who seemed too long as loud voice of executions I am in
 
+
+## Wikilinks load test
+
+[[encysted alcohol]]

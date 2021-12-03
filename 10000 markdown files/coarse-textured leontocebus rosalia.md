@@ -75,3 +75,10 @@ Nobody moved into this cat.
 down one but her child away
 : Soles and beasts as he turn round face was standing before her Turtle said a mile high said
 
+
+## Wikilinks load test
+
+[[deafened embiodea]]
+[[galilean laity]]
+[[foiled lemon zest]]
+[[earthy precession]]

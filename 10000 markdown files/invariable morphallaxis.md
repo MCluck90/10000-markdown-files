@@ -79,3 +79,9 @@ Can you invented it panting
 Run home.
 : Silence.
 
+
+## Wikilinks load test
+
+[[awheel browsing]]
+[[mottled cabernet sauvignon]]
+[[direful high altar]]

@@ -91,3 +91,10 @@ fetch the sort in them
 Therefore I'm getting somewhere near
 : you learn music.
 
+
+## Wikilinks load test
+
+[[sweet-scented transistor]]
+[[geometrical osteoblast]]
+[[consoling impresario]]
+[[refractive genus eretmochelys]]

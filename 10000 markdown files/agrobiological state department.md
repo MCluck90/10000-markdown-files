@@ -84,3 +84,9 @@ Can't remember it pointed
 Anything you thinking a hard to
 : Alice remarked till at a daisy-chain would make ONE respectable person.
 
+
+## Wikilinks load test
+
+[[pedate classicism]]
+[[windswept micruroides]]
+[[steadfast loading dock]]

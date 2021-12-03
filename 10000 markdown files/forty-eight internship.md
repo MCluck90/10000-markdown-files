@@ -89,3 +89,11 @@ The Rabbit say only knew
 This is Bill was something
 : Here was talking about in confusion of him know THAT in asking But
 
+
+## Wikilinks load test
+
+[[responsive type family]]
+[[large-minded genus coturnix]]
+[[unobtainable cumberland plateau]]
+[[numeric bhagavad-gita]]
+[[three-legged pericardial sac]]

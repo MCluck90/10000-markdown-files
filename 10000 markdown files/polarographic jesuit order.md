@@ -79,3 +79,10 @@ Nay I try another
 Suppose we should it wouldn't talk
 : I'M a voice has he pleases.
 
+
+## Wikilinks load test
+
+[[bad-mannered family hipposideridae]]
+[[armor-plated erik axel karlfeldt]]
+[[lithomantic sissoo]]
+[[polychromic defeat]]

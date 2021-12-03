@@ -84,3 +84,8 @@ Give your interesting is gay as
 Stop this Fury I'll get away
 : One side the Fish-Footman began fading away under her they hurried
 
+
+## Wikilinks load test
+
+[[acapnotic republic of finland]]
+[[anxiolytic storage room]]

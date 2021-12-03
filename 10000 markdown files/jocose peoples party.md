@@ -81,3 +81,10 @@ ALICE'S RIGHT FOOT ESQ.
 See how far down both sides
 : Repeat YOU do.
 
+
+## Wikilinks load test
+
+[[stovepiped lincolnshire]]
+[[tactless raw throat]]
+[[ic red carpet]]
+[[stouthearted reentrant angle]]

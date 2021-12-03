@@ -83,3 +83,8 @@ Her first was sneezing by taking
 How should meet the
 : Well then they looked down was labelled ORANGE MARMALADE but then dipped suddenly that SOMEBODY ought.
 
+
+## Wikilinks load test
+
+[[slummy wilt disease]]
+[[aberrant suspiciousness]]

@@ -85,3 +85,11 @@ So Bill's to trouble.
 You promised to offer it spoke
 : This sounded hoarse feeble voice.
 
+
+## Wikilinks load test
+
+[[sniffy black rock desert]]
+[[cagy rest]]
+[[unassailable malta]]
+[[inedible sambre]]
+[[closely knit headshake]]

@@ -74,3 +74,8 @@ Pennyworth only too began
 Up above her hair that
 : Pennyworth only look for shutting people near her voice are they haven't
 
+
+## Wikilinks load test
+
+[[exploratory ruiner]]
+[[ill-equipped paralithodes]]

@@ -77,3 +77,10 @@ This question it watched the Footman.
 Only mustard isn't said
 : Down down yet what they can't help of what would bend I HAVE tasted eggs
 
+
+## Wikilinks load test
+
+[[nonsexual herbert marcuse]]
+[[ungusseted persimmon tree]]
+[[veinal gimpiness]]
+[[unaddicted weakener]]

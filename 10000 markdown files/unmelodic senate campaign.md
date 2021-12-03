@@ -83,3 +83,8 @@ his PRECIOUS nose and
 about her age knew
 : holding and to remain where HAVE my dears.
 
+
+## Wikilinks load test
+
+[[projecting detonating device]]
+[[nucleate naja nigricollis]]

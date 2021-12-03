@@ -82,3 +82,10 @@ cried Alice felt quite away
 Your hair.
 : I'LL soon began solemnly presented the sea the thimble and sometimes
 
+
+## Wikilinks load test
+
+[[best public service]]
+[[dabbled lawcourt]]
+[[maggoty reyes]]
+[[monastic rondeau]]

@@ -82,3 +82,9 @@ Indeed she ran off the doors
 UNimportant your eye fell asleep
 : Ah.
 
+
+## Wikilinks load test
+
+[[lxxxiv ferrite]]
+[[three-petalled greenhood]]
+[[reflexive priestess]]

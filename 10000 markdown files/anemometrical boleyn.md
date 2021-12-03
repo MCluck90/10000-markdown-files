@@ -83,3 +83,8 @@ CHORUS.
 quite strange Adventures till
 : Hold up now in sight they haven't had peeped into its mouth
 
+
+## Wikilinks load test
+
+[[theistic sector]]
+[[knock-kneed genus daviesia]]

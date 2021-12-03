@@ -73,3 +73,10 @@ Run home.
 Pat.
 : Ugh.
 
+
+## Wikilinks load test
+
+[[tight fitting monroe]]
+[[intersectant blechnaceae]]
+[[superior hydrodiuril]]
+[[icy false pretence]]

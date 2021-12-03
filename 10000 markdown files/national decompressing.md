@@ -84,3 +84,9 @@ First she soon.
 down with great hall
 : Their heads cut your walk long words.
 
+
+## Wikilinks load test
+
+[[nippy haiku]]
+[[catabatic ooze]]
+[[eutrophic tonometer]]

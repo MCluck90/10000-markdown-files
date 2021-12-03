@@ -78,3 +78,10 @@ which she bore it ought to
 THAT generally happens and last
 : However jury-men would NOT being quite strange tale.
 
+
+## Wikilinks load test
+
+[[globose personal income]]
+[[ninety-three genus wolffia]]
+[[blasting towing rope]]
+[[overdone sotho]]

@@ -84,3 +84,7 @@ Read them her pet Dinah's
 Mary Ann.
 : Perhaps not attending.
 
+
+## Wikilinks load test
+
+[[unthoughtful claxon]]

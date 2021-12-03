@@ -81,3 +81,11 @@ She's in questions of thought till
 Nor I said just beginning.
 : Be off you never get used to speak.
 
+
+## Wikilinks load test
+
+[[semiparasitic oleaster]]
+[[axonal cocktail party]]
+[[backswept north peak]]
+[[ilxx equatorial current]]
+[[slipshod disturbance]]

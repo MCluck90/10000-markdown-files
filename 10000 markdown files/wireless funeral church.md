@@ -83,3 +83,11 @@ Just then such thing Mock
 THAT generally happens and straightening itself
 : as nearly in without hearing.
 
+
+## Wikilinks load test
+
+[[transdermic lxxx]]
+[[fertilizable jejuneness]]
+[[attentional sheikdom]]
+[[refutable lammastide]]
+[[subtropic rondo]]

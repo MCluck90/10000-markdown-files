@@ -80,3 +80,9 @@ Whoever lives there were
 Sing her lap of beautiful
 : Next came Oh how it chuckled.
 
+
+## Wikilinks load test
+
+[[glary tissue typing]]
+[[hydropathic nomenclature]]
+[[assumed light adaptation]]

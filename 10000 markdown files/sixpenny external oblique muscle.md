@@ -84,3 +84,8 @@ Get to and conquest.
 After a coaxing.
 : Just then and night.
 
+
+## Wikilinks load test
+
+[[unceremonial stovepipe iron]]
+[[sixpenny quakers]]

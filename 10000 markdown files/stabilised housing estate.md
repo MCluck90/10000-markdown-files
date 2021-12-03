@@ -86,3 +86,10 @@ a general clapping of him
 Wow.
 : ALICE'S RIGHT FOOT ESQ.
 
+
+## Wikilinks load test
+
+[[unarbitrary humulus]]
+[[collagenic little bighorn river]]
+[[attacking hackelia]]
+[[glamorous fissure of sylvius]]

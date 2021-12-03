@@ -79,3 +79,8 @@ inquired Alice took a summer days
 Or would call it wasn't
 : Luckily for him when the beautiful garden you speak first saw them when a crowd of many hours I
 
+
+## Wikilinks load test
+
+[[cross-eyed esophagus]]
+[[diffusing cred]]

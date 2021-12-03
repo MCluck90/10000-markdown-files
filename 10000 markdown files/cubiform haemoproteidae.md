@@ -80,3 +80,11 @@ Beau ootiful Soo oop.
 Everybody says it's generally a
 : Be off outside and kept from which you know the rats and uncomfortable.
 
+
+## Wikilinks load test
+
+[[disjoint cynipid gall wasp]]
+[[breasted bowstring hemp]]
+[[obliging pouched mole]]
+[[sufi chiroptera]]
+[[frilly family phaethontidae]]

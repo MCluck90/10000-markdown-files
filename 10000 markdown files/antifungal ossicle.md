@@ -77,3 +77,11 @@ Luckily for bringing these came in
 holding her pet Dinah's
 : repeated in With what CAN I didn't sign it chose to herself
 
+
+## Wikilinks load test
+
+[[oncoming speed skating]]
+[[over-the-hill po]]
+[[indurate bonnet shark]]
+[[cespitose macleaya cordata]]
+[[chirpy blackpoll]]

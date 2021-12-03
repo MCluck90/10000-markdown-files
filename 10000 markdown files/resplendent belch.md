@@ -80,3 +80,11 @@ one said with draggled feathers
 Down down but out-of the-way down
 : Lastly she next witness said advance.
 
+
+## Wikilinks load test
+
+[[drug-addicted tablecloth]]
+[[sour first-rater]]
+[[decipherable amenhotep iv]]
+[[splotched blood line]]
+[[eviscerate clerkship]]

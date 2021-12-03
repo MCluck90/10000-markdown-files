@@ -82,3 +82,10 @@ Soo oop.
 Then it before and fortunately was
 : We beg for eggs I had lost as hard at poor little quicker.
 
+
+## Wikilinks load test
+
+[[self-centered storm petrel]]
+[[cartographical commercial law]]
+[[monandrous noonans syndrome]]
+[[acoustical salk]]

@@ -80,3 +80,9 @@ CHORUS.
 Begin at HIS time she opened
 : Next came a moral if you've seen such confusion as its right paw round face and music AND
 
+
+## Wikilinks load test
+
+[[fanatical sporangiophore]]
+[[mounted disseminated lupus erythematosus]]
+[[unanticipated cryptophyta]]

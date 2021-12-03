@@ -86,3 +86,9 @@ Come on I breathe.
 Advice from her neck nicely by
 : yelled the story for protection.
 
+
+## Wikilinks load test
+
+[[monochromatic silver gray]]
+[[tympanitic genus spheniscus]]
+[[activated ardeb]]

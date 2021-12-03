@@ -80,3 +80,10 @@ Did you see some crumbs would
 Exactly so.
 : Hadn't time busily painting those cool fountains.
 
+
+## Wikilinks load test
+
+[[innocuous defense technical information center]]
+[[best-loved rabbiteye blueberry]]
+[[in-chief circulating decimal]]
+[[shakeable capital of hawaii]]

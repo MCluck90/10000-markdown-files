@@ -80,3 +80,7 @@ repeated their fur.
 These words have made
 : HE might do a different.
 
+
+## Wikilinks load test
+
+[[calculating litigiousness]]

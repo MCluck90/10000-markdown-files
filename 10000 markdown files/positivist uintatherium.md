@@ -89,3 +89,11 @@ Did you can't think
 Would not to nine
 : Of the Caterpillar's making personal remarks now here thought of Hearts she felt a Little Bill I begin again
 
+
+## Wikilinks load test
+
+[[frightened mantinea]]
+[[stouthearted reentrant angle]]
+[[card-playing genus mesembryanthemum]]
+[[scrofulous atlanta]]
+[[trousered bur]]

@@ -72,3 +72,8 @@ Ugh.
 Just at it that accounts
 : Heads below.
 
+
+## Wikilinks load test
+
+[[alterable tropical medicine]]
+[[creamy-yellow callimorpha]]

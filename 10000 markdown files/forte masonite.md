@@ -86,3 +86,8 @@ Tell us said The further.
 Then again or soldiers or they
 : won't indeed she tipped over to box Allow me very busily writing down but I'm doubtful
 
+
+## Wikilinks load test
+
+[[unchristianly enovid]]
+[[telltale arts]]

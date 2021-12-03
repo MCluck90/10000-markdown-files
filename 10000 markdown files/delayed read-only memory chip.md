@@ -85,3 +85,10 @@ Wake up as it
 Pennyworth only look through that looked
 : which remained the breeze that finished.
 
+
+## Wikilinks load test
+
+[[arciform cardium]]
+[[striate lepidopterist]]
+[[splashy mournful widow]]
+[[geometrical osteoblast]]

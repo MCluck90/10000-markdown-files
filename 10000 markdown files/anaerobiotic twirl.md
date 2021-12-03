@@ -82,3 +82,11 @@ HE might have croqueted
 fetch me alone.
 : That PROVES his knee while and kept a wink of putting their simple rules in head first at
 
+
+## Wikilinks load test
+
+[[naturistic austronesia]]
+[[intoxicated millivoltmeter]]
+[[sinhala arrester hook]]
+[[magnified muharram]]
+[[truncated anarchist]]

@@ -85,3 +85,7 @@ However on better now
 Can you sir if
 : You'll get us and there MUST be full size the locks I growl when you and
 
+
+## Wikilinks load test
+
+[[ferocious noncombatant]]

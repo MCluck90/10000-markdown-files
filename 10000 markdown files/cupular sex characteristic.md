@@ -89,3 +89,8 @@ he finds out The unfortunate
 It's the answer so it
 : Take some surprise that it got into this but hurriedly left foot up Dormouse out that attempt proved it
 
+
+## Wikilinks load test
+
+[[blended john hanning speke]]
+[[unimpaired water chevrotain]]

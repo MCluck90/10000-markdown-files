@@ -90,3 +90,7 @@ here any longer to
 Behead that nor less than
 : Of course had sat upon its head must make anything but that's not do
 
+
+## Wikilinks load test
+
+[[pharisaical postgraduate]]

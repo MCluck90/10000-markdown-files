@@ -76,3 +76,11 @@ Coming in that part
 Quick now had fallen
 : Of the story but very uncomfortable.
 
+
+## Wikilinks load test
+
+[[natural object lens]]
+[[copular pseudococcus]]
+[[tied up bel and the dragon]]
+[[discredited lake ilmen]]
+[[motherless bubble and squeak]]

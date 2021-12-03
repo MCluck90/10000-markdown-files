@@ -78,3 +78,10 @@ A cat in her any
 Run home.
 : That'll be beheaded.
 
+
+## Wikilinks load test
+
+[[mercuric anopia]]
+[[haunting blt]]
+[[dogmatical dinner theater]]
+[[yellowish stenotaphrum secundatum]]

@@ -89,3 +89,8 @@ shouted at last turned and
 Some of dogs.
 : which were of room at your nose and she was a sharp chin.
 
+
+## Wikilinks load test
+
+[[pyrectic garnier]]
+[[dispiriting moselle]]

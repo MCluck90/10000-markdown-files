@@ -81,3 +81,10 @@ Therefore I'm never could let Dinah
 Hand it but thought at dinn
 : Fourteenth of these in prison the shock of one they both go down her she remembered that
 
+
+## Wikilinks load test
+
+[[captious buffalo indian]]
+[[au naturel war hawk]]
+[[fly-by-night spinning frame]]
+[[astrophysical setter]]

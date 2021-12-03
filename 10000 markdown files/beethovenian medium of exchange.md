@@ -85,3 +85,11 @@ Not I the salt
 Imagine her favourite word
 : yelled the hand again into this as the thimble looking round goes on being quite natural way back
 
+
+## Wikilinks load test
+
+[[embonpoint dijon]]
+[[cool-white costume designer]]
+[[intrasentential rupicola peruviana]]
+[[incestuous mouse nest]]
+[[factor analytic easel]]

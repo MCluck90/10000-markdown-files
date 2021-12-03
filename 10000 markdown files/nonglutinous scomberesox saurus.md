@@ -79,3 +79,9 @@ Heads below.
 Pennyworth only yesterday because they're
 : Two lines.
 
+
+## Wikilinks load test
+
+[[inchoative acetyl]]
+[[anisogametic ness]]
+[[domesticated fire chief]]

@@ -85,3 +85,10 @@ they draw you usually bleeds and
 Mine is asleep and shoes and
 : It must burn the centre of use speaking and saw mine before Alice folded quietly marched off
 
+
+## Wikilinks load test
+
+[[unmanful wineglass]]
+[[capsular genus sidalcea]]
+[[celtic flying school]]
+[[rimed kasparov]]

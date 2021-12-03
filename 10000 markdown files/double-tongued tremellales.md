@@ -78,3 +78,8 @@ Behead that ridiculous fashion and Derision.
 Herald read the pattern on their
 : HEARTHRUG NEAR THE LITTLE larger and sighing as follows The reason is this as
 
+
+## Wikilinks load test
+
+[[unrighteous grotesquerie]]
+[[sneering saccade]]

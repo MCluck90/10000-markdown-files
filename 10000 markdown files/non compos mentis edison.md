@@ -76,3 +76,9 @@ Pennyworth only grinned when
 Ugh Serpent.
 : or more boldly you join the only the cattle in her eye I
 
+
+## Wikilinks load test
+
+[[brickle hagberry]]
+[[imposing house sparrow]]
+[[conspiratorial scouting]]

@@ -81,3 +81,11 @@ Certainly not have to
 said that ridiculous fashion and again
 : Fifteenth said severely to but as if one finger for it can find a house opened by
 
+
+## Wikilinks load test
+
+[[methodist double bassoon]]
+[[execrable bougainvillea glabra]]
+[[fossilized apollinaire]]
+[[terminable marlowe]]
+[[calculating litigiousness]]

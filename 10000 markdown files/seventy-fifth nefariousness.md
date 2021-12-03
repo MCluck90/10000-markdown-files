@@ -88,3 +88,9 @@ Nay I wonder.
 Some of course just
 : Their heads downward.
 
+
+## Wikilinks load test
+
+[[abstruse macrocosm]]
+[[exploitative mojarra]]
+[[smooth-spoken git]]

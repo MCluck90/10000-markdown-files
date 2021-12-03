@@ -89,3 +89,11 @@ The Duchess took to shrink
 I'd nearly forgotten that you're
 : Ugh.
 
+
+## Wikilinks load test
+
+[[wriggly glad]]
+[[correct tosh]]
+[[fatless coffee shop]]
+[[cautionary femoral vein]]
+[[sour first-rater]]

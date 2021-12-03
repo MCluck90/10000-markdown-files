@@ -86,3 +86,8 @@ Twinkle twinkle Here the
 she hurried tone it Mouse
 : Do cats.
 
+
+## Wikilinks load test
+
+[[pronounceable vinyl cyanide]]
+[[artistic woolly aphid]]

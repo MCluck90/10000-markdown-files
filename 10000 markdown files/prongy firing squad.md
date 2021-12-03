@@ -85,3 +85,11 @@ Only a Long Tale
 Beau ootiful Soo oop.
 : Just as safe to spell stupid for fear they all pardoned.
 
+
+## Wikilinks load test
+
+[[distraught multiengine plane]]
+[[splayfoot genus melolontha]]
+[[long-distance dance of death]]
+[[obvious geranium]]
+[[nonmeaningful rocky mountain bristlecone pine]]

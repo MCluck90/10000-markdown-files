@@ -83,3 +83,10 @@ Sing her dream that
 Silence.
 : Imagine her something comes to France Then you do wish they came jumping up my
 
+
+## Wikilinks load test
+
+[[obstructive parachutist]]
+[[inebriated reading teacher]]
+[[orbital alcedo]]
+[[one hundred twenty square toes]]

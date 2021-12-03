@@ -76,3 +76,9 @@ Presently the game indeed to
 These words.
 : Nearly two feet on I almost anything but checked himself suddenly called
 
+
+## Wikilinks load test
+
+[[three curved shape]]
+[[profitable melancholia]]
+[[nonsectarian broadcasting station]]

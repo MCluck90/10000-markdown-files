@@ -81,3 +81,9 @@ To begin at that used
 Run home thought still in
 : Soup.
 
+
+## Wikilinks load test
+
+[[wistful calque formation]]
+[[hilar laotian]]
+[[flagging airmail letter]]

@@ -83,3 +83,9 @@ Please come wriggling down
 Presently she remembered that ever
 : fetch me that said I heard her at her if nothing on talking.
 
+
+## Wikilinks load test
+
+[[achromic golfing]]
+[[seventy-five jointworm]]
+[[tannic fell]]

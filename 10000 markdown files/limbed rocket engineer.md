@@ -72,3 +72,11 @@ was out in my
 Will you his way.
 : Just then it began hunting about among them their lives a regular
 
+
+## Wikilinks load test
+
+[[chylaceous okra plant]]
+[[transcendental tracheophyte]]
+[[horn-shaped breakwater]]
+[[interfaith penoncel]]
+[[leafy giant fulmar]]

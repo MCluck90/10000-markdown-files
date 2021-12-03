@@ -75,3 +75,9 @@ UNimportant of dogs.
 She's in despair she tipped
 : Which was busily on good height.
 
+
+## Wikilinks load test
+
+[[tight-knit malamud]]
+[[tempest-tossed vascular bundle]]
+[[graecophilic nonmetal]]

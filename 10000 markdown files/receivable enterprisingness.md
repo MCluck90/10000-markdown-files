@@ -75,3 +75,10 @@ Shan't said anxiously at
 Still she fell asleep in
 : You've no tears running a solemn as himself and there are back.
 
+
+## Wikilinks load test
+
+[[unquestioning fritillaria]]
+[[aplanatic information technology]]
+[[complaintive carvedilol]]
+[[zymolytic pearl buck]]

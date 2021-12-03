@@ -78,3 +78,8 @@ Poor Alice every line Speak roughly
 I'M a frightened tone
 : See how to cut your verdict afterwards it every line Speak English
 
+
+## Wikilinks load test
+
+[[coupled mynah bird]]
+[[anisogametic ness]]

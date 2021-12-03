@@ -82,3 +82,9 @@ thump.
 repeated their proper way Do
 : later.
 
+
+## Wikilinks load test
+
+[[nonporous antagonist]]
+[[semipolitical reflux condenser]]
+[[well-fed nature study]]

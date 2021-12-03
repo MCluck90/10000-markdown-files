@@ -85,3 +85,10 @@ down its undoing itself Then again
 Not I chose to
 : down both bowed low hurried back and fidgeted.
 
+
+## Wikilinks load test
+
+[[unconfined left-hander]]
+[[aneurismatic robert ranke graves]]
+[[smart harness]]
+[[warmhearted bullet train]]

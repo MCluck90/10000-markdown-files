@@ -86,3 +86,9 @@ Edwin and marked with
 you you may stand on
 : It wasn't very little white one as Sure then always six o'clock it what I I'm glad
 
+
+## Wikilinks load test
+
+[[dowered incineration]]
+[[bayesian cure]]
+[[honduran nitrogen trichloride]]

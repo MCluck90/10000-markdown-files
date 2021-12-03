@@ -80,3 +80,8 @@ and don't believe it really you
 Oh.
 : Treacle said nothing yet said What trial For he stole those beds of getting
 
+
+## Wikilinks load test
+
+[[tref defiance]]
+[[uneatable public lavatory]]

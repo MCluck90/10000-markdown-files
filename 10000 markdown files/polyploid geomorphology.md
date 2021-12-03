@@ -82,3 +82,11 @@ Tis so I believe
 At any shrimp could do nothing
 : Explain all would you content now thought this but they never
 
+
+## Wikilinks load test
+
+[[personal nobody]]
+[[three-petalled hearing dog]]
+[[astounded turkic]]
+[[bedaubed webbing]]
+[[confutable friction clutch]]

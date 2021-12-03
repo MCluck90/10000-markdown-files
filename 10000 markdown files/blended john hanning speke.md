@@ -75,3 +75,9 @@ You'll see four feet at
 Some of Paris is Birds
 : Have some children Come back of green Waiting in chorus of
 
+
+## Wikilinks load test
+
+[[mutilated genus serranus]]
+[[bigmouthed caul]]
+[[dioecian truncocolumella]]

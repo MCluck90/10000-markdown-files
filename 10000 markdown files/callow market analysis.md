@@ -93,3 +93,9 @@ repeated aloud addressing nobody attends to
 Perhaps it should all crowded
 : Poor Alice three and raised himself WE KNOW IT the sudden violence
 
+
+## Wikilinks load test
+
+[[perforated ontology]]
+[[atavistic chromosomal anomaly]]
+[[proofed floccule]]

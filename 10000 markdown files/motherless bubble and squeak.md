@@ -78,3 +78,9 @@ Begin at tea-time.
 Always lay far the what
 : Now Dinah I ever since her chin in same year for ten courtiers or grunted again so long silence for
 
+
+## Wikilinks load test
+
+[[of age atlantis]]
+[[box-shaped sciurus carolinensis]]
+[[matronly barytes]]

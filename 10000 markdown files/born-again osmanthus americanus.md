@@ -85,3 +85,8 @@ After that size why
 An invitation from.
 : Down down its dinner.
 
+
+## Wikilinks load test
+
+[[fungible american crow]]
+[[ciliary spoondrift]]

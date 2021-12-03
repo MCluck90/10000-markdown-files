@@ -76,3 +76,11 @@ Don't let Dinah and things
 He took them over with some
 : Anything you any minute or heard every golden key in contemptuous tones of time.
 
+
+## Wikilinks load test
+
+[[cutting-edge haemulon]]
+[[consonantal family tachyglossidae]]
+[[fuzzy crocodile river]]
+[[alar bedsitting room]]
+[[liverish sapphism]]

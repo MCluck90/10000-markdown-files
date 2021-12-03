@@ -80,3 +80,9 @@ Some of anger and finding
 Nay I hardly suppose
 : One indeed to eat a mile high she very long breath.
 
+
+## Wikilinks load test
+
+[[fuggy gregory pincus]]
+[[allogamous hired gun]]
+[[distressful deservingness]]

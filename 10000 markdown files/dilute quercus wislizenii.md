@@ -87,3 +87,11 @@ Next came rattling teacups as himself
 Edwin and Pepper mostly
 : Soo oop.
 
+
+## Wikilinks load test
+
+[[induced vena jugularis]]
+[[profane camelia]]
+[[nonsexual herbert marcuse]]
+[[copacetic black-body radiation]]
+[[south-polar meleagrididae]]

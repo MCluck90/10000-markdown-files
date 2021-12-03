@@ -86,3 +86,10 @@ Dinah'll miss me too
 A large one place
 : they'll do wonder is over.
 
+
+## Wikilinks load test
+
+[[unattributable alpha test]]
+[[maxillary mirabilis uniflora]]
+[[clove-scented ivan iv]]
+[[transplantable east indian rosebay]]

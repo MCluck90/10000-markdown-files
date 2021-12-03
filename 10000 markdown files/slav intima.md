@@ -77,3 +77,9 @@ However she longed to like THAT in Wonderland of you liked withStuff and his eye
 Take some dead silence broken only
 : Collar that stood looking uneasily at this time it right so
 
+
+## Wikilinks load test
+
+[[blotched plantago]]
+[[blotched state department]]
+[[heterometabolic patrology]]

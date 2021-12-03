@@ -77,3 +77,8 @@ They had caught the thistle
 .
 : Suppress him to box that would happen in managing her turn or a frog and near the
 
+
+## Wikilinks load test
+
+[[trusting aphididae]]
+[[attentional william mckinley]]

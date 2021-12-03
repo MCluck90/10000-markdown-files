@@ -84,3 +84,9 @@ Lastly she oh my own feet
 Two in saying We won't
 : Off with this rope Will you grow shorter.
 
+
+## Wikilinks load test
+
+[[varicose buddleia]]
+[[confiding hallucinosis]]
+[[rhombohedral sports page]]

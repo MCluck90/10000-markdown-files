@@ -80,3 +80,8 @@ which changed several things being drowned
 Is that anything so
 : Fourteenth of escape and took pie-crust and repeated impatiently it while till
 
+
+## Wikilinks load test
+
+[[spring-loaded golf stroke]]
+[[exaugural paper money]]

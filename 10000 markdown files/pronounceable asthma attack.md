@@ -83,3 +83,7 @@ Said the moment to them
 Can't remember ever was delighted
 : they'll do.
 
+
+## Wikilinks load test
+
+[[utter weather map]]

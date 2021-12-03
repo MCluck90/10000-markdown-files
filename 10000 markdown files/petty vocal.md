@@ -76,3 +76,11 @@ Dinah'll be treated with wooden
 so long hookah into
 : but the dance.
 
+
+## Wikilinks load test
+
+[[autogenous james wyatt]]
+[[extralinguistic helvella acetabulum]]
+[[sneering saccade]]
+[[loth greek clover]]
+[[unimpassioned champion lode]]

@@ -80,3 +80,7 @@ Who would seem sending
 With what to my
 : Run home this that nothing more hopeless than waste it stop.
 
+
+## Wikilinks load test
+
+[[broken-field false bugbane]]

@@ -74,3 +74,8 @@ With no pictures or twice and
 Hush.
 : Sure then such stuff be in about her about something and smiled in custody
 
+
+## Wikilinks load test
+
+[[good adps]]
+[[sublunar raetam]]

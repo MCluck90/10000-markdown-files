@@ -83,3 +83,9 @@ Last came different branches and
 Seven flung down down
 : Will the story.
 
+
+## Wikilinks load test
+
+[[syncretical coefficient of self induction]]
+[[infamous witch grass]]
+[[magnetic family ploceidae]]

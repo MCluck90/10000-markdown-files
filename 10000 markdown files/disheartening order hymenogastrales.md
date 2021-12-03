@@ -75,3 +75,10 @@ YOU must the creatures you
 Explain yourself.
 : wow.
 
+
+## Wikilinks load test
+
+[[unlittered southern flying squirrel]]
+[[scintillant doe]]
+[[squeezable voltage divider]]
+[[bottom-feeding rack and pinion]]

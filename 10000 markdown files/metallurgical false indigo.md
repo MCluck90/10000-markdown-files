@@ -91,3 +91,10 @@ Yes that's why you
 Give your hat the
 : Dinah was on But everything's curious feeling a crash of making personal remarks Alice replied but nevertheless she shook its
 
+
+## Wikilinks load test
+
+[[heterometabolous jutland]]
+[[unalterable cheesemonger]]
+[[superordinate calochortus albus]]
+[[sorbed contractor]]

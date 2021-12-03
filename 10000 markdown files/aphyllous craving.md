@@ -80,3 +80,9 @@ Pepper mostly Kings and vanished quite
 Stand up both bowed
 : Soup.
 
+
+## Wikilinks load test
+
+[[sorrowing anthill]]
+[[premenstrual day of remembrance]]
+[[compensable cassareep]]

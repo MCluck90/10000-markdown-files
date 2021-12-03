@@ -88,3 +88,11 @@ So you can't possibly
 Half-past one arm round I WAS
 : Begin at that stuff.
 
+
+## Wikilinks load test
+
+[[anomic front projector]]
+[[antebellum gruidae]]
+[[hoggish dry mustard]]
+[[dramatic pilot whale]]
+[[welcome gridiron-tailed lizard]]

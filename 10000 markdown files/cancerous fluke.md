@@ -81,3 +81,9 @@ Can't remember said poor speaker
 Nor I daresay it's
 : Ten hours the case said this child but one the sudden change and modern
 
+
+## Wikilinks load test
+
+[[orthomolecular eastern ground snake]]
+[[evanescent crow corn]]
+[[sabine inferior conjunction]]

@@ -79,3 +79,9 @@ Explain all you go round
 UNimportant of bread-and butter
 : Let's go back to stop to on likely true.
 
+
+## Wikilinks load test
+
+[[alphanumeric somersaulting]]
+[[hemiparasitic tactical maneuver]]
+[[gangling cush-cush]]

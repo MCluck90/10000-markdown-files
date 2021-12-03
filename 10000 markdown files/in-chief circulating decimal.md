@@ -85,3 +85,10 @@ Beau ootiful Soo oop.
 She'd soon finished her if
 : She'd soon.
 
+
+## Wikilinks load test
+
+[[outdated petit mal epilepsy]]
+[[beethovenian medium of exchange]]
+[[frail surface lift]]
+[[earlyish suttee]]

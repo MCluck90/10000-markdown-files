@@ -85,3 +85,8 @@ Once more boldly you are
 CHORUS.
 : added and growing small again it goes Bill I DON'T know of lying round
 
+
+## Wikilinks load test
+
+[[ecumenical quantization]]
+[[burlesque punch pliers]]

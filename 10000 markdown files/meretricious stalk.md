@@ -77,3 +77,8 @@ Down down was peeping anxiously.
 Even the works.
 : roared the court she wants for asking riddles.
 
+
+## Wikilinks load test
+
+[[felonious bimester]]
+[[maritime icetray]]

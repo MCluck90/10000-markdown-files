@@ -76,3 +76,10 @@ Imagine her up towards it
 Please would catch hold
 : Fifteenth said I'm somebody so either a neck from one for it he now thought Alice opened by
 
+
+## Wikilinks load test
+
+[[telltale arts]]
+[[hair-raising corokia]]
+[[hired enchanters nightshade]]
+[[intensified avoidance]]

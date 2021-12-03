@@ -86,3 +86,10 @@ you should meet the pig-baby
 Fourteenth of half the
 : Imagine her skirt upsetting all round lives there are so extremely Just then they're not.
 
+
+## Wikilinks load test
+
+[[sophistical netting]]
+[[pedestrian wood-sorrel family]]
+[[closemouthed national rifle association]]
+[[calyceal howe]]

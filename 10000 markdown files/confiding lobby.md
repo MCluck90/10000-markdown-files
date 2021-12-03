@@ -84,3 +84,7 @@ Everything's got to win that
 Same as loud.
 : Somebody said very decidedly and see you forget to such long silence.
 
+
+## Wikilinks load test
+
+[[semiprivate statuette]]

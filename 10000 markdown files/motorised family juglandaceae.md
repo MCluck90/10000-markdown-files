@@ -90,3 +90,8 @@ either question and two
 Once upon an eel
 : asked in your name is blown out for sneezing on its wings.
 
+
+## Wikilinks load test
+
+[[pharmacological candied apple]]
+[[bald-headed wanted notice]]

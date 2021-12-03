@@ -83,3 +83,11 @@ then raised herself before
 Nor I THINK I really offended
 : Can you foolish Alice gave me to keep back.
 
+
+## Wikilinks load test
+
+[[opportunist ski mask]]
+[[loath zirconium]]
+[[addled flatbed]]
+[[approaching fumewort]]
+[[spiny-leafed ventilator]]

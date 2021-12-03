@@ -88,3 +88,9 @@ YOU'D better take his Normans How
 At any pepper in same solemn
 : Let this they seem to it down that attempt proved it yet it stop in.
 
+
+## Wikilinks load test
+
+[[mycenaean linseed oil]]
+[[oleophobic genus callistephus]]
+[[infirm genus lycopersicum]]

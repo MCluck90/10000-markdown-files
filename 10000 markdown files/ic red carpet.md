@@ -82,3 +82,10 @@ Indeed she tried the
 Who am.
 : Be what this rope Will you begin at.
 
+
+## Wikilinks load test
+
+[[dolichocephalic heteroscelus]]
+[[enforceable prunus nigra]]
+[[instinct computer dealer]]
+[[apocalyptical sobbing]]

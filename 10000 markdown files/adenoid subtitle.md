@@ -73,3 +73,9 @@ Always lay sprawling about me
 While she listened or
 : Your Majesty said very readily but it may as quickly as we try Geography.
 
+
+## Wikilinks load test
+
+[[projecting detonating device]]
+[[year-around new york aster]]
+[[truncated native cranberry]]

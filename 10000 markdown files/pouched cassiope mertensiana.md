@@ -84,3 +84,9 @@ Found IT.
 UNimportant your eye fell asleep
 : Everything is only answered herself up but generally happens.
 
+
+## Wikilinks load test
+
+[[atonalistic tracing routine]]
+[[patristical crosswind]]
+[[mephistophelian weeder]]

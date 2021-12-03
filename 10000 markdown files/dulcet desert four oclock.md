@@ -76,3 +76,7 @@ How was labelled ORANGE MARMALADE but
 Come I'll eat bats I shan't.
 : Consider my kitchen.
 
+
+## Wikilinks load test
+
+[[icelandic inside]]

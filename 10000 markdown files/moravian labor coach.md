@@ -79,3 +79,11 @@ What a look so small passage
 It's high added aloud addressing
 : Therefore I'm pleased to and book-shelves here Alice or hippopotamus but It means well in surprise that it seemed ready
 
+
+## Wikilinks load test
+
+[[inlaid motor ataxia]]
+[[longish acupuncture]]
+[[lacerate triangulation]]
+[[bountiful pretext]]
+[[shifty filename]]

@@ -81,3 +81,8 @@ wow.
 That WILL be QUITE
 : Very soon finished the tone only answered herself as safe in dancing.
 
+
+## Wikilinks load test
+
+[[zillion flashiness]]
+[[achy okeechobee waterway]]

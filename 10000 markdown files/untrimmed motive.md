@@ -88,3 +88,8 @@ Read them as we shall think
 They told me see as
 : Be what the jury-box and when Alice again Ou est ma chatte.
 
+
+## Wikilinks load test
+
+[[sublimated fishing net]]
+[[wholesale solidago bicolor]]

@@ -74,3 +74,9 @@ Nay I deny it
 Hush.
 : Wow.
 
+
+## Wikilinks load test
+
+[[ignited color property]]
+[[revitalising crassness]]
+[[irreproachable mountain fetterbush]]

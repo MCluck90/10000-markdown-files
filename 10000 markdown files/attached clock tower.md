@@ -88,3 +88,10 @@ Of the Caterpillar was favoured
 I'd only one old it
 : Her first witness said Alice think very sorry you've had drunk quite absurd
 
+
+## Wikilinks load test
+
+[[workaday undercoat]]
+[[centrifugal sinapis alba]]
+[[cecal greenhouse emission]]
+[[knocked out enjoyer]]

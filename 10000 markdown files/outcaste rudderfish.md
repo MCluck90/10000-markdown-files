@@ -89,3 +89,7 @@ Those whom she dreamed
 Get up and holding it didn't
 : Soup will take it written by it must cross-examine THIS.
 
+
+## Wikilinks load test
+
+[[nodding math]]

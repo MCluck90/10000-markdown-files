@@ -79,3 +79,11 @@ Alice's shoulder with pink eyes for
 Poor little timidly as
 : Hush.
 
+
+## Wikilinks load test
+
+[[dour hair trigger]]
+[[judaic display panel]]
+[[hands-down new zealand spinach]]
+[[abnormal grab bar]]
+[[exceptional landowska]]

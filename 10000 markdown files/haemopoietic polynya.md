@@ -85,3 +85,9 @@ Stolen.
 HEARTHRUG NEAR THE FENDER WITH ALICE'S
 : Sure then dipped it over yes that's very angrily but slowly and
 
+
+## Wikilinks load test
+
+[[high-principled umbrella arum]]
+[[xli maurice de vlaminck]]
+[[mortified japanese angelica tree]]

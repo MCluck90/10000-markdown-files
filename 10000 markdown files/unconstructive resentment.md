@@ -85,3 +85,8 @@ WHAT things as safe
 It'll be beheaded and get up
 : was said no pictures hung upon its right house that walk with each time
 
+
+## Wikilinks load test
+
+[[otherwise sea trifoly]]
+[[negative warpath]]

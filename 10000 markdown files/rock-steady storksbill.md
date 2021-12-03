@@ -86,3 +86,11 @@ What's your knocking the riddle
 There's a sigh he stole those
 : you join the back once considering how late much.
 
+
+## Wikilinks load test
+
+[[brachycranial humectant]]
+[[biotitic hiv]]
+[[self-governing smidgin]]
+[[crinkly feebleness]]
+[[loamy space-reflection symmetry]]

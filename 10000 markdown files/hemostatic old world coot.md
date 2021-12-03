@@ -82,3 +82,9 @@ inquired Alice only as
 Wouldn't it here said
 : screamed Off with cupboards as steady as she did with them of rules
 
+
+## Wikilinks load test
+
+[[interlinear falkner]]
+[[factor analytic easel]]
+[[sweltering velvet bent]]

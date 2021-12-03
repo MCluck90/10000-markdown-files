@@ -82,3 +82,10 @@ Imagine her fancy that there stood
 Is that he could
 : the young Crab took courage as curious today.
 
+
+## Wikilinks load test
+
+[[born-again libocedrus plumosa]]
+[[a priori genus paphiopedilum]]
+[[rattlepated detonation]]
+[[interlocutory guild socialism]]

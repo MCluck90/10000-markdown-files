@@ -88,3 +88,10 @@ won't have happened and timidly saying
 Idiot.
 : sh.
 
+
+## Wikilinks load test
+
+[[mendicant bladderwrack]]
+[[polygynous fjord]]
+[[swordlike staffordshire bull terrier]]
+[[hapless x-linked scid]]

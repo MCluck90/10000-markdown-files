@@ -79,3 +79,10 @@ Run home.
 Good-bye feet they liked and
 : sighed deeply.
 
+
+## Wikilinks load test
+
+[[aguish trimmer arch]]
+[[olde worlde jewel orchid]]
+[[unhomogenized mountain climbing]]
+[[braggart practician]]

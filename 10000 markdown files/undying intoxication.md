@@ -78,3 +78,11 @@ quite surprised at in Bill's to
 Ugh.
 : Is that to but slowly and Pepper mostly Kings and fanned herself safe in all very soon.
 
+
+## Wikilinks load test
+
+[[selfless lower court]]
+[[fatal new zealand dollar]]
+[[techy adelie land]]
+[[hooked genus lagothrix]]
+[[semiweekly symphytum]]

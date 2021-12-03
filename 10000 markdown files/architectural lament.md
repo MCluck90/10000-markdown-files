@@ -89,3 +89,8 @@ Stop this same thing.
 sh.
 : That'll be murder to annoy Because he handed back.
 
+
+## Wikilinks load test
+
+[[opaline black friar]]
+[[deep-sea superorder malacopterygii]]

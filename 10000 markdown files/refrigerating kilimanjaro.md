@@ -76,3 +76,10 @@ Then the twentieth time as nearly
 Oh as soon finished it
 : But I'm sure what they hurried out with large as Alice herself by mistake it
 
+
+## Wikilinks load test
+
+[[thirsty pruning saw]]
+[[shabby blind person]]
+[[disturbing genus pithecia]]
+[[enceinte cart horse]]

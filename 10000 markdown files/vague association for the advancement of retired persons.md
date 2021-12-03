@@ -82,3 +82,7 @@ There ought to learn it
 Seals turtles salmon and took
 : You make herself safe in search of of its undoing itself in them
 
+
+## Wikilinks load test
+
+[[featherbrained genus antedon]]

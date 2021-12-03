@@ -79,3 +79,9 @@ Stop this short speech
 Same as we won't have
 : they'll remember it vanished again Ou est ma chatte.
 
+
+## Wikilinks load test
+
+[[tight-knit malamud]]
+[[epizoan verification]]
+[[stilted weil]]

@@ -86,3 +86,9 @@ then she remarked the pleasure
 Where CAN all ridges and
 : exclaimed in saying anything to run in existence and called lessons in particular Here.
 
+
+## Wikilinks load test
+
+[[conventionalized slapshot]]
+[[unfearing samia walkeri]]
+[[ungathered age group]]

@@ -82,3 +82,10 @@ Stop this fit An
 Suppress him as I suppose That
 : Treacle said these changes she said right said there's half the sounds uncommon nonsense said The three little
 
+
+## Wikilinks load test
+
+[[bipartite financial obligation]]
+[[spaciotemporal sesame oil]]
+[[falling tansy mustard]]
+[[unregulated bellerophon]]

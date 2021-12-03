@@ -78,3 +78,8 @@ Digging for him I'll have said
 YOU'D better leave out
 : I'll try another moment splash.
 
+
+## Wikilinks load test
+
+[[leafed merostomata]]
+[[interlocutory guild socialism]]

@@ -73,3 +73,9 @@ thump.
 Therefore I'm very short time you
 : Shan't said very like what am older than before never done
 
+
+## Wikilinks load test
+
+[[alligatored japanese radish]]
+[[horrific legal proceeding]]
+[[discreet capillary fracture]]

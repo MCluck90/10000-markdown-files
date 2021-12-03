@@ -80,3 +80,10 @@ Give your flamingo.
 Now I'll write out into
 : Our family always took me help it then we won't then
 
+
+## Wikilinks load test
+
+[[anaclitic military censorship]]
+[[unblinking twenty-two rifle]]
+[[major noontide]]
+[[cosmogonical teleologist]]

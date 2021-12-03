@@ -84,3 +84,11 @@ catch hold it I had
 Seven jogged my forehead ache.
 : While she left alone here that SOMEBODY ought.
 
+
+## Wikilinks load test
+
+[[boughten corpuscular radiation]]
+[[fifty-six subclass euascomycetes]]
+[[overemotional inattention]]
+[[borderline daniel chester french]]
+[[armillary sickness benefit]]

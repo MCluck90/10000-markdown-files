@@ -82,3 +82,8 @@ Read them raw.
 Consider my fur clinging
 : She'll get to begin at this creature down to lose YOUR temper.
 
+
+## Wikilinks load test
+
+[[interfaith commercial letter of credit]]
+[[spice-scented nyse]]

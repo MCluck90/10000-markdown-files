@@ -82,3 +82,11 @@ Let the sun.
 Twinkle twinkle little dears.
 : It matters a low weak For some book thought was near our house if they came very queer thing
 
+
+## Wikilinks load test
+
+[[antimonopoly warszawa]]
+[[valueless resettlement]]
+[[knockabout ravelling]]
+[[cogitative iditarod trail]]
+[[disinclined zoophilism]]

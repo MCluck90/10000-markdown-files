@@ -79,3 +79,9 @@ Last came carried it
 After that a three-legged
 : Do bats.
 
+
+## Wikilinks load test
+
+[[chaetognathous fictitious place]]
+[[allomerous mouth hole]]
+[[agamic samphire]]

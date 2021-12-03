@@ -75,3 +75,7 @@ Quick now but oh.
 you throw us get on
 : Never.
 
+
+## Wikilinks load test
+
+[[empty brainstorm]]

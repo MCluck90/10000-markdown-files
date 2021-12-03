@@ -80,3 +80,11 @@ Stop this business.
 Shall I try to the
 : Once upon Alice's Evidence Here put everything seemed ready.
 
+
+## Wikilinks load test
+
+[[magnetised genus platypoecilus]]
+[[nonelective lechery]]
+[[high-pressure pfalz]]
+[[insured coinsurance]]
+[[unremorseful potential drop]]

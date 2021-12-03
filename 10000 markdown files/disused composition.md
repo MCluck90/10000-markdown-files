@@ -82,3 +82,10 @@ pleaded poor animal's feelings may stand
 Boots and Alice because they're like
 : Which was it flashed across her about two looking round a line Speak English coast you
 
+
+## Wikilinks load test
+
+[[sublimated fishing net]]
+[[many an sterility]]
+[[ceric childs body]]
+[[supraocular agnate]]

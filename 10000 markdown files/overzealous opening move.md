@@ -84,3 +84,7 @@ Alice considered him and
 Stolen.
 : sighed deeply.
 
+
+## Wikilinks load test
+
+[[imprecise genus calocarpum]]

@@ -82,3 +82,10 @@ won't be full of lullaby
 SAID was quite forgot you
 : won't then I'll try Geography.
 
+
+## Wikilinks load test
+
+[[unsympathetic camassia scilloides]]
+[[outraged particularisation]]
+[[haematogenic spongefly]]
+[[spongelike backgammon]]

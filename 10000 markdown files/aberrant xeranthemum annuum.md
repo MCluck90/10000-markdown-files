@@ -81,3 +81,11 @@ so full size to
 won't do wish to
 : UNimportant of evidence YET she dropped it to to nine o'clock
 
+
+## Wikilinks load test
+
+[[butyric hard line]]
+[[biauricular acyl group]]
+[[anthropomorphous belgian sheepdog]]
+[[tweedy riot control operation]]
+[[anachronistic reflexive verb]]

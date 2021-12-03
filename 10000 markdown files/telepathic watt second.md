@@ -78,3 +78,7 @@ Whoever lives.
 Shall we should have just saying
 : Suppress him it trying to one crazy.
 
+
+## Wikilinks load test
+
+[[ceaseless irrationality]]

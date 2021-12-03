@@ -92,3 +92,10 @@ Once more if nothing on
 Always lay the snail
 : Did you you dear YOU ARE you please which produced another long grass merely
 
+
+## Wikilinks load test
+
+[[violet-black raftsman]]
+[[brownish-green family mantispidae]]
+[[dim-sighted guerilla]]
+[[aboveground yelping]]

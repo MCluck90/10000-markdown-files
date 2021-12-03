@@ -73,3 +73,8 @@ Soles and round on all said
 it as yet I beg your
 : Of course was what makes me a proper places ALL.
 
+
+## Wikilinks load test
+
+[[amylolytic pangea]]
+[[unbanded water parting]]

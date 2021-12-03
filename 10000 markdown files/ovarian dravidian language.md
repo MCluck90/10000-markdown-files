@@ -78,3 +78,9 @@ Now I HAVE my head's free
 Get up both mad
 : You're wrong.
 
+
+## Wikilinks load test
+
+[[irreversible physicist]]
+[[brag man and wife]]
+[[savourless swede]]

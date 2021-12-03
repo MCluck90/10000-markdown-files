@@ -83,3 +83,11 @@ Fifteenth said by far
 Everything is Bill I
 : Stupid things happening.
 
+
+## Wikilinks load test
+
+[[ionised dovyalis hebecarpa]]
+[[amenable pinky]]
+[[belted thorstein bunde veblen]]
+[[monstrous oral herpes]]
+[[unadjusted spring heath]]

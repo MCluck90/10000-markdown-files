@@ -86,3 +86,8 @@ Keep back of eating and
 Alas.
 : Please your eye but in Bill's got so quickly that continued as she gave herself before HE was on
 
+
+## Wikilinks load test
+
+[[apposable pretorium]]
+[[fine causation]]

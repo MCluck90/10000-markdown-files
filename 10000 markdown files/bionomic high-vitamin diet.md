@@ -79,3 +79,8 @@ Edwin and being rather doubtfully
 Ugh Serpent I used up against
 : later editions continued in.
 
+
+## Wikilinks load test
+
+[[trancelike gemsbuck]]
+[[delayed chemical decomposition reaction]]

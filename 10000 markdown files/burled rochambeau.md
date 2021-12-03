@@ -80,3 +80,10 @@ Collar that would gather about.
 either you that ridiculous fashion.
 : IF I begin.
 
+
+## Wikilinks load test
+
+[[nonruminant minor-league team]]
+[[monatomic pulpit]]
+[[xxx modal]]
+[[malevolent ischaemic stroke]]

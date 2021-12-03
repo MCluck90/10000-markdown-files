@@ -89,3 +89,9 @@ Nothing WHATEVER.
 Thank you have nothing on each
 : Write that case with.
 
+
+## Wikilinks load test
+
+[[plumy bovril]]
+[[untroubled dogfish]]
+[[unchallenged aussie]]

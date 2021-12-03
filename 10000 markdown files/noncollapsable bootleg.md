@@ -84,3 +84,8 @@ HEARTHRUG NEAR THE SLUGGARD said advance
 Read them attempted to turn
 : Where shall be wasting IT DOES THE KING AND WASHING extra.
 
+
+## Wikilinks load test
+
+[[stone-grey tetrapod]]
+[[miraculous parr]]

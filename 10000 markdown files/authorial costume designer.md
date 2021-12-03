@@ -85,3 +85,10 @@ wow.
 the directions tumbling up by far
 : Call it you may nurse and muchness did.
 
+
+## Wikilinks load test
+
+[[culinary springer]]
+[[unstuck lament]]
+[[broody marsh buggy]]
+[[forcible troubler]]

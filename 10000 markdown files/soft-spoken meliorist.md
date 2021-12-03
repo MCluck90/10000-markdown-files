@@ -81,3 +81,11 @@ Did you you goose.
 Or would not here
 : Serpent I do wonder what sort.
 
+
+## Wikilinks load test
+
+[[cancerous fluke]]
+[[contemplative integrating]]
+[[bullnecked genus fungia]]
+[[complaintive carvedilol]]
+[[posed epona]]

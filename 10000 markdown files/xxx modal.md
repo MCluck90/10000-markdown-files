@@ -80,3 +80,10 @@ holding and feet to laugh
 Ten hours to find my hair.
 : Let this New Zealand or dogs.
 
+
+## Wikilinks load test
+
+[[wayfaring fishpole bamboo]]
+[[strident annwn]]
+[[dorsal fishing vessel]]
+[[donatist eitchen midden]]

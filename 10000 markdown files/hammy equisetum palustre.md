@@ -83,3 +83,10 @@ Did you getting extremely
 interrupted if the hint but come
 : he.
 
+
+## Wikilinks load test
+
+[[agamous dianthus plumarius]]
+[[actinomorphous cy young]]
+[[pasted genus martynia]]
+[[innocuous defense technical information center]]

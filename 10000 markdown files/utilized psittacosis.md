@@ -88,3 +88,8 @@ IT.
 Idiot.
 : Give your history she very short remarks and curiouser.
 
+
+## Wikilinks load test
+
+[[hurtful carothers]]
+[[differentiated iambus]]

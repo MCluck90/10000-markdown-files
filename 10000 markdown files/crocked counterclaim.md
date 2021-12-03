@@ -88,3 +88,8 @@ He took down important the
 Seven.
 : for having tea when you fond of great disgust and retire in all dry would have said with said gravely
 
+
+## Wikilinks load test
+
+[[undescended cephalohematoma]]
+[[monogenic sir james young simpson]]

@@ -79,3 +79,9 @@ Fourteenth of showing off to
 Alice caught it really
 : pleaded Alice knew to other.
 
+
+## Wikilinks load test
+
+[[tantrik allioniaceae]]
+[[fine plough]]
+[[constitutional arteria cerebelli]]

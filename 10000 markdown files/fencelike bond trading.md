@@ -87,3 +87,11 @@ Serpent.
 Perhaps it was soon left foot
 : With extras.
 
+
+## Wikilinks load test
+
+[[pouch-shaped democratic republic of sao tome and principe]]
+[[subjugated rugelach]]
+[[fineable black morel]]
+[[laced middlebrow]]
+[[pound-foolish pebibyte]]

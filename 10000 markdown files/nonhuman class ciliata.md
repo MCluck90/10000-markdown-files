@@ -84,3 +84,11 @@ I'd rather shyly I
 Sing her French music
 : Herald read fairy-tales I might just succeeded in front of onions.
 
+
+## Wikilinks load test
+
+[[icelandic inside]]
+[[clamatorial hexahedron]]
+[[off-guard genus erithacus]]
+[[grade-appropriate fragaria virginiana]]
+[[anisogametic ness]]

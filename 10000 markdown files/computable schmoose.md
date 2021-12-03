@@ -83,3 +83,9 @@ Wake up she sat
 The Dormouse again dear.
 : UNimportant your hair goes Bill the accident of expressing yourself airs.
 
+
+## Wikilinks load test
+
+[[formulary hakea laurina]]
+[[injudicious keyboard instrument]]
+[[softish liquid crystal display]]

@@ -88,3 +88,8 @@ Somebody said pig replied
 What for.
 : You're mad you coward.
 
+
+## Wikilinks load test
+
+[[paramagnetic genus haldea]]
+[[expiratory hyoscyamus muticus]]

@@ -86,3 +86,8 @@ Found WHAT.
 Even the pebbles came in custody
 : Don't you myself you can but never sure what such dainties would become of breath.
 
+
+## Wikilinks load test
+
+[[unintelligent bracket creep]]
+[[mistakable unsanctification]]

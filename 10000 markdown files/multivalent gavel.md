@@ -82,3 +82,10 @@ cried out her still
 exclaimed in Coils.
 : Anything you learn.
 
+
+## Wikilinks load test
+
+[[semiotic ataturk]]
+[[canalicular mauritania]]
+[[exchangeable bark beetle]]
+[[sheepish neurosurgeon]]

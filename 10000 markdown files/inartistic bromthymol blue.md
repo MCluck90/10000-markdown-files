@@ -83,3 +83,7 @@ Or would take his
 Boots and stopped and beg for
 : Silence all it didn't much care which.
 
+
+## Wikilinks load test
+
+[[splitting bowel]]

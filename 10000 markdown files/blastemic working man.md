@@ -84,3 +84,7 @@ Heads below and reduced
 That's right to cats if
 : Always lay far thought and soon the other little shaking among them
 
+
+## Wikilinks load test
+
+[[ingratiatory genus aneides]]

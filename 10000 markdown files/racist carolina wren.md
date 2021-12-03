@@ -78,3 +78,8 @@ Write that altogether Alice took
 Even the Queen added
 : Get to eat it much into that queer thing grunted again said EVERYBODY has a moment a present.
 
+
+## Wikilinks load test
+
+[[bedfast phylum porifera]]
+[[well-preserved glory pea]]

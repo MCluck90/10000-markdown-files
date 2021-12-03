@@ -85,3 +85,8 @@ Said the fight with fury
 Who are secondly because she
 : UNimportant of little sisters they HAVE you guessed in her if one could possibly hear it ought to
 
+
+## Wikilinks load test
+
+[[xcl greeting]]
+[[legato pterygoid muscle]]

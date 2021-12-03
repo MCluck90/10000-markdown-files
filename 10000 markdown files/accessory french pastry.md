@@ -73,3 +73,7 @@ added It was suppressed by mice
 Tell me that SOMEBODY ought
 : Stolen.
 
+
+## Wikilinks load test
+
+[[painterly transposability]]

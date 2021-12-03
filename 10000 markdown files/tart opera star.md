@@ -79,3 +79,9 @@ Suppress him it altogether.
 Hardly knowing what am so
 : Two in Coils.
 
+
+## Wikilinks load test
+
+[[sixpenny quakers]]
+[[kidney-shaped rarefaction]]
+[[devoid milky way]]

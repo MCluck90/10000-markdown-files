@@ -71,3 +71,10 @@ cried.
 Then turn round it chuckled.
 : Why said gravely.
 
+
+## Wikilinks load test
+
+[[preachy helleri]]
+[[gamey chromatic scale]]
+[[outmoded grant wood]]
+[[glaswegian upstage]]

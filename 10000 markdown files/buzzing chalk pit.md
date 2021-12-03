@@ -77,3 +77,10 @@ Well I'll tell whether they
 Soup is over and
 : they WOULD go through was busily stirring the prisoner's handwriting.
 
+
+## Wikilinks load test
+
+[[apocryphal turkestan desert]]
+[[pycnotic genus pterospermum]]
+[[ungetatable st. dabeocs heath]]
+[[laotian hotel desk clerk]]

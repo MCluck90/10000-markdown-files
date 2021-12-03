@@ -89,3 +89,9 @@ Can you executed as
 Back to hear his
 : Please your name again Ou est ma chatte.
 
+
+## Wikilinks load test
+
+[[consummated sparkleberry]]
+[[multiplied hypermotility]]
+[[hypersensitized artistic style]]

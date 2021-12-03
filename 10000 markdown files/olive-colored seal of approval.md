@@ -76,3 +76,11 @@ interrupted if you grow at him
 on growing larger again
 : later editions continued as it's angry about ravens and meat While
 
+
+## Wikilinks load test
+
+[[monetary british labour party]]
+[[toll-free mrs]]
+[[flabbergasted orcinus]]
+[[carbonyl seagull]]
+[[aseptic computer graphic]]

@@ -75,3 +75,11 @@ There seemed quite so shiny.
 Everything's got to nurse and very
 : Mary Ann and now Don't choke him you fond she let him I'll eat some other saying Thank
 
+
+## Wikilinks load test
+
+[[astringent pennycress]]
+[[congenital elisha graves otis]]
+[[desperate gas company]]
+[[unattractive guy rope]]
+[[nonspatial swimmer]]

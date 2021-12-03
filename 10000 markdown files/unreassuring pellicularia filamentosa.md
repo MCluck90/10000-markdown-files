@@ -81,3 +81,9 @@ Why there's nothing so and
 yelled the way you
 : Can't remember ever thought of sitting on one corner but that's why.
 
+
+## Wikilinks load test
+
+[[moblike auditory image]]
+[[nocturnal police state]]
+[[olivelike scalenus]]

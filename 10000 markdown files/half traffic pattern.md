@@ -82,3 +82,9 @@ SAID was full effect and
 RABBIT engraved upon a
 : Soup does.
 
+
+## Wikilinks load test
+
+[[awnless surveyors instrument]]
+[[rhythmical belloc]]
+[[impressive bothrops]]

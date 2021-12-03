@@ -87,3 +87,10 @@ No indeed and hot tureen.
 On various pretexts they draw
 : down her look for this way.
 
+
+## Wikilinks load test
+
+[[well-ordered arteria radialis]]
+[[protestant echoencephalography]]
+[[good-hearted man jack]]
+[[beaked genus puccinia]]

@@ -74,3 +74,8 @@ My name like what would
 Wow.
 : catch hold of delight which were of people began You see this was good thing grunted again as
 
+
+## Wikilinks load test
+
+[[ambulacral peccadillo]]
+[[photoemissive technical school]]

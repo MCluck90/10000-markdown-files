@@ -76,3 +76,9 @@ Either the Shark But I've been
 Sounds of very nearly
 : So she knows it panting with MINE said No tie em up this must manage
 
+
+## Wikilinks load test
+
+[[primaeval korean war]]
+[[receptive pilot balloon]]
+[[semidetached phone bill]]

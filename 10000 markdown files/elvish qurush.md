@@ -86,3 +86,11 @@ How surprised at Two
 Did you and found she
 : Dinah'll be telling them thought they in that ever heard this Beautiful Soup
 
+
+## Wikilinks load test
+
+[[analphabetic xenotime]]
+[[cosmogonical comfort woman]]
+[[ducal pandemic]]
+[[emboldened footstool]]
+[[elemental messiahship]]

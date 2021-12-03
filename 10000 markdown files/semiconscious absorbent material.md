@@ -76,3 +76,7 @@ Certainly not swim in bed.
 Run home.
 : wow.
 
+
+## Wikilinks load test
+
+[[vicious internal combustion]]

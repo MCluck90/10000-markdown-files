@@ -79,3 +79,9 @@ See how do.
 .
 : That'll be grand procession thought at any of more calmly though still and all it
 
+
+## Wikilinks load test
+
+[[parabolical sidereal day]]
+[[consolatory marrakesh]]
+[[north animatronics]]

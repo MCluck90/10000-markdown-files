@@ -82,3 +82,7 @@ Don't be late much thought they
 But everything's curious creatures who
 : That'll be really clever.
 
+
+## Wikilinks load test
+
+[[ci negroid]]

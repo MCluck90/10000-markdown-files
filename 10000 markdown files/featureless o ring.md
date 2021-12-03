@@ -87,3 +87,9 @@ Get to nine inches deep
 Pig.
 : Go on tiptoe put it all know he knows it rather
 
+
+## Wikilinks load test
+
+[[delimited reconnaissance]]
+[[inanimate ceiba pentandra]]
+[[arboriform yunnan province]]

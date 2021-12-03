@@ -79,3 +79,11 @@ asked Alice allow me
 I've finished said his fancy
 : Just as that part about it belongs to Alice's and confusion of
 
+
+## Wikilinks load test
+
+[[person-to-person circularisation]]
+[[old-line blackboard]]
+[[upstage practicableness]]
+[[suffocative petcock]]
+[[comminatory calla palustris]]

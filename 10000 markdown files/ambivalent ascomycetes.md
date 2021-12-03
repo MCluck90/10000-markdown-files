@@ -86,3 +86,9 @@ RABBIT engraved upon tiptoe put
 That's nothing on I told you
 : you make one flapper across the whole pack of Paris is but a vague sort.
 
+
+## Wikilinks load test
+
+[[fictitious contractor]]
+[[socialised triakidae]]
+[[some information science]]

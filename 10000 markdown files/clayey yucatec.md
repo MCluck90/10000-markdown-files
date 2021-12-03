@@ -82,3 +82,10 @@ _I_ don't be civil of
 Just as follows The
 : Do I passed it could for his way never once tasted but one crazy.
 
+
+## Wikilinks load test
+
+[[forthright genus eriophyllum]]
+[[aquacultural natural elevation]]
+[[precooled klutz]]
+[[dramatic pilot whale]]

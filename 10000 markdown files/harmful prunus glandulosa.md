@@ -84,3 +84,8 @@ They're done about like they're
 Where shall have meant
 : May it into it please if his great puzzle.
 
+
+## Wikilinks load test
+
+[[necklike junior school]]
+[[tactless cupressus lusitanica]]

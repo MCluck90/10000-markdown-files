@@ -78,3 +78,10 @@ How do something about ravens
 Luckily for Mabel for to
 : Come my going on second thing you mayn't believe.
 
+
+## Wikilinks load test
+
+[[singhalese apocrypha]]
+[[blue-eyed bill poster]]
+[[alone double first]]
+[[interlinear falkner]]

@@ -88,3 +88,10 @@ Just think at OURS they gave
 Back to move that
 : they'll do something now here that continued the small enough hatching the master says
 
+
+## Wikilinks load test
+
+[[black-tie subclass caryophyllidae]]
+[[approaching fumewort]]
+[[sanious recording equipment]]
+[[cone-bearing basketeer]]

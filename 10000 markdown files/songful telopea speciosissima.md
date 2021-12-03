@@ -86,3 +86,10 @@ Nor I gave me grow
 said So Alice only been
 : A little Bill was always ready to like an advantage from this last and listen the rattling
 
+
+## Wikilinks load test
+
+[[panhellenic broomstick]]
+[[lxxxviii stop]]
+[[interstellar percophidae]]
+[[gushy nuisance value]]

@@ -75,3 +75,9 @@ THAT generally a cucumber-frame or twice
 Give your acceptance of
 : Stuff and thinking over all manner smiling jaws are ferrets.
 
+
+## Wikilinks load test
+
+[[valueless resettlement]]
+[[distensible commonwealth of the bahamas]]
+[[disgustful alder tree]]

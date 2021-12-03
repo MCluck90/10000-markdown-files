@@ -78,3 +78,8 @@ Alice's head pressing against
 Pig.
 : Hush.
 
+
+## Wikilinks load test
+
+[[waxed deeds]]
+[[devoid milky way]]

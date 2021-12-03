@@ -86,3 +86,10 @@ Yes said in less there
 Never mind said one
 : Prizes.
 
+
+## Wikilinks load test
+
+[[ambitious gym]]
+[[consequent ruskin]]
+[[teenage fallopius]]
+[[impure ash cake]]

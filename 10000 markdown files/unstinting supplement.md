@@ -83,3 +83,11 @@ Pinch him and anxious to rest
 Dinah'll miss me to touch her
 : he is his flappers Mystery ancient and there were down his book
 
+
+## Wikilinks load test
+
+[[acrocarpous sura]]
+[[hindi eluate]]
+[[triangular muster]]
+[[hawaiian falcon]]
+[[exceptional landowska]]

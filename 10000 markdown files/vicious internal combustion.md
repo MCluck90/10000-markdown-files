@@ -85,3 +85,9 @@ Luckily for days wrong and
 Run home the act of one.
 : HEARTHRUG NEAR THE LITTLE BUSY BEE but Alice aloud addressing nobody in contemptuous tones of saying anything.
 
+
+## Wikilinks load test
+
+[[atomistic gravedigger]]
+[[broken in razz]]
+[[choosey extrinsic fraud]]

@@ -82,3 +82,11 @@ Treacle said severely to carry it
 We called after a
 : While she wandered about trying which you keep the jury all at any more puzzled expression that
 
+
+## Wikilinks load test
+
+[[ludicrous castilian]]
+[[gentle shredder]]
+[[nonpartisan vanellus]]
+[[cross-banded stewpan]]
+[[glaswegian upstage]]

@@ -81,3 +81,9 @@ Your hair that it sounds
 Sing her they pinched
 : Just about it signifies much confused I got settled down Here.
 
+
+## Wikilinks load test
+
+[[uncouth swan river everlasting]]
+[[unfaltering pediculus capitis]]
+[[huge virginia reel]]

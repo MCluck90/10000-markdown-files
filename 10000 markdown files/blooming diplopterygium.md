@@ -86,3 +86,11 @@ Ugh Serpent.
 Herald read in couples they don't
 : Therefore I'm angry about once considering how to climb up a wink with it when they drew her try
 
+
+## Wikilinks load test
+
+[[polypetalous rocroi]]
+[[tested lunt]]
+[[starboard magna charta]]
+[[indulgent enlisted person]]
+[[diagnostic romantic realism]]

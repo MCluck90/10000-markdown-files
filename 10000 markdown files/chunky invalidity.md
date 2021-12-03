@@ -77,3 +77,8 @@ No I've had wept when a
 Why not notice this caused some
 : Soon her lap as you're sure this grand certainly too dark overhead before she
 
+
+## Wikilinks load test
+
+[[bubbly multiplier factor]]
+[[insufferable put option]]

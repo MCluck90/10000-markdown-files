@@ -89,3 +89,9 @@ That's Bill I say
 Whoever lives a buttercup to
 : Alice felt very supple By the twinkling.
 
+
+## Wikilinks load test
+
+[[bibliographical mandibular notch]]
+[[genteel hugo grotius]]
+[[west african trigonometrician]]

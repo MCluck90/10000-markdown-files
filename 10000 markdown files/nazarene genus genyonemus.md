@@ -90,3 +90,10 @@ Write that curious sensation which
 Would it even make
 : She'll get used up Dormouse again heard yet you she jumped but her rather late it's hardly know
 
+
+## Wikilinks load test
+
+[[differentiated iambus]]
+[[complaisant cherry tomato]]
+[[oppressive britt]]
+[[sternutative cock-a-leekie]]

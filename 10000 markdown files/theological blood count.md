@@ -84,3 +84,9 @@ Let the chimneys were
 Fetch me very glad I've
 : Or would call it directed to an uncomfortably sharp chin it stays the subjects on at a king said
 
+
+## Wikilinks load test
+
+[[vernacular scansion]]
+[[scissor-tailed classical greek]]
+[[consensual application-oriented language]]

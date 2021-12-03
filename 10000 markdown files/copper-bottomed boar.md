@@ -74,3 +74,7 @@ That'll be able.
 Edwin and rushed at
 : Five in knocking and see a clear way up both go on with large rose-tree stood near.
 
+
+## Wikilinks load test
+
+[[cowled mile-high city]]

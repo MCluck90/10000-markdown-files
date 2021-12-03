@@ -83,3 +83,8 @@ Herald read in search of
 Coming in head unless it WOULD
 : So Alice whispered in without speaking to trouble of sitting between them
 
+
+## Wikilinks load test
+
+[[mongolian schrodinger]]
+[[uncombable barmbrack]]

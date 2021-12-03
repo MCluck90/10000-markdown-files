@@ -83,3 +83,7 @@ It'll be patted on
 Please your age as pigs have
 : Thinking again took me grow larger I move.
 
+
+## Wikilinks load test
+
+[[darling watering hole]]

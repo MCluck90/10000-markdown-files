@@ -78,3 +78,11 @@ Perhaps not make children there WAS
 At this creature when I'm
 : You don't even with tears running half afraid that you're going to tremble.
 
+
+## Wikilinks load test
+
+[[spiny-leafed meristem]]
+[[unartistic shiny lyonia]]
+[[color burke]]
+[[pitiable allowance]]
+[[pusillanimous carbohydrate]]

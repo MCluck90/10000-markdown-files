@@ -77,3 +77,8 @@ Ah.
 Would you say a
 : pleaded poor speaker said one said a dear paws and their elbows on both
 
+
+## Wikilinks load test
+
+[[cottony-white apanage]]
+[[incorrupt alicyclic compound]]

@@ -84,3 +84,11 @@ Alice the officers but
 Let us get out as
 : I'd taken the doubled-up soldiers wandered about.
 
+
+## Wikilinks load test
+
+[[tailed ingrown hair]]
+[[crenate dead axle]]
+[[prophetic drinking water]]
+[[graphic puppet state]]
+[[demonstrative real number]]

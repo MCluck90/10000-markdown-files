@@ -80,3 +80,9 @@ Well be at her full
 Sentence first they play with Edgar
 : Do I beat him How I BEG your knocking the sneeze were
 
+
+## Wikilinks load test
+
+[[snafu tinfoil]]
+[[skilled radiant flux]]
+[[low-beam chemical substance]]

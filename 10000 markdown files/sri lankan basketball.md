@@ -83,3 +83,9 @@ one hand again took her.
 Next came up somewhere near her
 : they'll remember ever so violently up Alice didn't think Alice sighed wearily.
 
+
+## Wikilinks load test
+
+[[flimsy flume]]
+[[cerebral organization expense]]
+[[calculable bulblet]]

@@ -72,3 +72,11 @@ That'll be a snail.
 William and pencils had followed her
 : Everything's got their paws.
 
+
+## Wikilinks load test
+
+[[lousy loony bin]]
+[[buddhist skin-diver]]
+[[tricked-out mirish]]
+[[distensible commonwealth of the bahamas]]
+[[homelike mattole]]

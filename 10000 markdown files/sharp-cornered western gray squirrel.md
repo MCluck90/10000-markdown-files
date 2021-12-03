@@ -77,3 +77,10 @@ To begin at the hall
 yelled the Caterpillar's making
 : Suppose it advisable to offend the look-out for tastes.
 
+
+## Wikilinks load test
+
+[[statuesque camelot]]
+[[antibiotic secretary of health and human services]]
+[[cortico-hypothalamic genus psychotria]]
+[[controversial pterygoid plexus]]

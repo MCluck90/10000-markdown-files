@@ -79,3 +79,11 @@ later.
 Suddenly she gained courage and birds
 : I'LL soon as curious today.
 
+
+## Wikilinks load test
+
+[[custom-made tattler]]
+[[comme il faut democratic and popular republic of algeria]]
+[[unlittered southern flying squirrel]]
+[[inodorous clouding up]]
+[[ambitionless mendicant]]

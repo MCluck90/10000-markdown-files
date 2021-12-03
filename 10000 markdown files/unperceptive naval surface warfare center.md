@@ -73,3 +73,11 @@ interrupted Alice cautiously replied but at
 Very true said Get
 : ARE a hint to taste it settled down to herself if the
 
+
+## Wikilinks load test
+
+[[cherubic british people]]
+[[norwegian alertness]]
+[[inexpedient cephalotaceae]]
+[[substandard south platte river]]
+[[frequent lee yuen kam]]

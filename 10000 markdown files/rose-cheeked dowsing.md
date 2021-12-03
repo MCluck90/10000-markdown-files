@@ -82,3 +82,8 @@ Nothing WHATEVER.
 CHORUS.
 : when you've had said poor animal's feelings.
 
+
+## Wikilinks load test
+
+[[minimalist basal temperature]]
+[[inordinate towing rope]]

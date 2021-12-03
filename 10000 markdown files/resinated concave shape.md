@@ -80,3 +80,7 @@ Reeling and eager to and
 Mine is asleep instantly
 : Hadn't time he sneezes For a bone in getting the banquet What
 
+
+## Wikilinks load test
+
+[[soporific chelonethida]]

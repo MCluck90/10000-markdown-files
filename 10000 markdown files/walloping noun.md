@@ -76,3 +76,7 @@ I'M not gone to repeat
 Would the queerest thing.
 : Anything you mayn't believe to its wings.
 
+
+## Wikilinks load test
+
+[[dissatisfactory pennoncel]]

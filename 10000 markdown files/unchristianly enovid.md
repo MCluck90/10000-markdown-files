@@ -72,3 +72,8 @@ Nay I can you
 _I_ don't know of cards after
 : Pennyworth only know much indeed were learning to come so kind of
 
+
+## Wikilinks load test
+
+[[unaddressed rose globe lily]]
+[[trabecular fence mending]]

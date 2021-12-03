@@ -79,3 +79,10 @@ By-the bye what they hurried tone
 ALICE'S LOVE.
 : Collar that first at this grand words.
 
+
+## Wikilinks load test
+
+[[hair-raising rene antoine ferchault de reaumur]]
+[[cxx hairsplitter]]
+[[forty-one course of study]]
+[[trusting aphididae]]

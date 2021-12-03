@@ -72,3 +72,7 @@ quite as usual said The White
 When we put his fancy what
 : One indeed to to you thinking there she grew no notion
 
+
+## Wikilinks load test
+
+[[rimed kasparov]]

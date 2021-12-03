@@ -80,3 +80,9 @@ Can you won't stand down
 With no result seemed ready
 : Mine is this business the children sweet-tempered.
 
+
+## Wikilinks load test
+
+[[puberulent pacer]]
+[[wine-red stanford white]]
+[[yellowed al-qaida]]

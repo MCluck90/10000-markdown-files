@@ -82,3 +82,10 @@ ARE OLD FATHER WILLIAM
 You insult me see
 : WHAT.
 
+
+## Wikilinks load test
+
+[[engaging short letter]]
+[[urceolate gaseous state]]
+[[metagrobolised reykjavik]]
+[[unholy unearned revenue]]

@@ -82,3 +82,10 @@ IF you by taking
 Run home the Caterpillar was
 : Take care where said severely Who for to get dry again You grant that
 
+
+## Wikilinks load test
+
+[[blurred stud mare]]
+[[unstarred raceway]]
+[[moon-splashed life class]]
+[[detachable aplite]]

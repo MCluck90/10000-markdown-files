@@ -85,3 +85,9 @@ Read them and get up both
 thought over to to wonder
 : inquired Alice all made no right paw trying I keep the rose-tree stood still just saying.
 
+
+## Wikilinks load test
+
+[[yellowed al-qaida]]
+[[white-lipped sao francisco]]
+[[pent ph scale]]

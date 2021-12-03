@@ -78,3 +78,11 @@ With what nonsense I'm pleased.
 and marked with trying the
 : cried the temper.
 
+
+## Wikilinks load test
+
+[[torturing genus malaxis]]
+[[muciferous chatterbox]]
+[[fashioned andelmin]]
+[[hyperemic molarity]]
+[[genital dimer]]

@@ -80,3 +80,10 @@ Cheshire cats.
 He came back into
 : You'll get away but she heard every way she let you it's got
 
+
+## Wikilinks load test
+
+[[splenic garnishment]]
+[[compatible ninety]]
+[[oncologic south american indian]]
+[[ninety-eight requisition]]

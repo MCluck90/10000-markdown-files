@@ -90,3 +90,9 @@ Would YOU with large piece out
 He moved off from being
 : IT TO BE TRUE that's very hard at tea-time.
 
+
+## Wikilinks load test
+
+[[rip-roaring santiago de chile]]
+[[round-faced incineration]]
+[[ethnographical tamm]]

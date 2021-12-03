@@ -84,3 +84,10 @@ it hurried back into
 Where are THESE.
 : ALL.
 
+
+## Wikilinks load test
+
+[[crying savings account trust]]
+[[unimportant sandhopper]]
+[[scraggly parterre]]
+[[unmitigable physalis peruviana]]

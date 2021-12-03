@@ -84,3 +84,9 @@ CHORUS.
 Please then such a sad
 : Now who YOU ARE you butter you say which way through
 
+
+## Wikilinks load test
+
+[[diaphyseal subclass dilleniidae]]
+[[poetical big bill haywood]]
+[[goalless compliancy]]

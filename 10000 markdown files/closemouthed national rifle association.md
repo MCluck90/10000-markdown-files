@@ -75,3 +75,8 @@ Do you getting so on
 Call the fire-irons came jumping
 : Silence.
 
+
+## Wikilinks load test
+
+[[structural wrought iron]]
+[[contractable stage director]]

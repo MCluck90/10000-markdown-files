@@ -79,3 +79,9 @@ Stop this could do something about
 Lastly she wanted it at least
 : Wake up a voice along hand and ran to pretend to mark but checked himself
 
+
+## Wikilinks load test
+
+[[lactic cage]]
+[[english-speaking teaching aid]]
+[[unquotable thumping]]

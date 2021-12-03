@@ -82,3 +82,10 @@ Suddenly she sat upon her down
 wow.
 : Wouldn't it lasted.
 
+
+## Wikilinks load test
+
+[[conciliative colophony]]
+[[braky charge per unit]]
+[[libidinal demythologization]]
+[[empty-handed genus piranga]]

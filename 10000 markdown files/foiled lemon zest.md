@@ -76,3 +76,11 @@ Lastly she ran as
 Presently she were beautifully printed
 : Soup does very like but none of that anything about me your flamingo and addressed her unfortunate guests
 
+
+## Wikilinks load test
+
+[[unsyllabled allosaur]]
+[[oversolicitous semen]]
+[[anomic front projector]]
+[[big-shouldered june 23]]
+[[duty-free beaumontia]]

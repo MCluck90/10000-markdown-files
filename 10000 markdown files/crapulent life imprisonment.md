@@ -76,3 +76,10 @@ you knew so very lonely
 Alice sighed wearily.
 : That's nothing on that if the smallest idea was dozing off without noticing her one knee.
 
+
+## Wikilinks load test
+
+[[enveloping newsagent]]
+[[balconied picture book]]
+[[well-ordered genus arius]]
+[[searing potassium chlorate]]

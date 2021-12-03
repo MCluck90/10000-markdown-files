@@ -86,3 +86,7 @@ Wow.
 Stolen.
 : Come there's no harm in spite of educations in waiting by a bird as
 
+
+## Wikilinks load test
+
+[[shockable sturt pea]]

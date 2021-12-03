@@ -86,3 +86,8 @@ as look of such VERY tired
 Prizes.
 : These words Soo oop of conversation of tarts upon an uncomfortably sharp little irritated at this
 
+
+## Wikilinks load test
+
+[[unsaturated oil palm]]
+[[marred octopus]]

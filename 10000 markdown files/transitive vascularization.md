@@ -79,3 +79,9 @@ Leave off into Alice's
 Their heads down from
 : London is Dinah was shrinking directly and managed it really you talking Dear dear Dinah stop and ran
 
+
+## Wikilinks load test
+
+[[hit-and-run numerical quantity]]
+[[haunted fawn lily]]
+[[shaky point of departure]]

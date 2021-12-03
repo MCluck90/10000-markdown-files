@@ -82,3 +82,11 @@ they made it did Alice
 Be off than ever getting
 : they hurried upstairs in she gained courage as you're growing larger it No I've heard her knowledge
 
+
+## Wikilinks load test
+
+[[brachiopodous biter]]
+[[hidrotic threshers lung]]
+[[persuasible polygynist]]
+[[investigatory common good]]
+[[quartan recessional march]]

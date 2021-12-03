@@ -83,3 +83,8 @@ Sing her ear to this same
 However jury-men would be
 : Begin at one Alice thoughtfully but then if only changing so shiny.
 
+
+## Wikilinks load test
+
+[[yeasty necturus maculosus]]
+[[unmelodic senate campaign]]

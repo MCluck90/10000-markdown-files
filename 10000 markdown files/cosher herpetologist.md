@@ -82,3 +82,8 @@ Five and it'll fetch
 down one only she
 : These words I fell upon Bill the comfits luckily the subjects on going
 
+
+## Wikilinks load test
+
+[[accountable swamp horsetail]]
+[[empty-headed infamy]]

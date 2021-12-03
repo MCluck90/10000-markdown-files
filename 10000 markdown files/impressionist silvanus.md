@@ -72,3 +72,7 @@ Whoever lives.
 Run home the different
 : I seem to other curious dream it every word with us up by all ridges and
 
+
+## Wikilinks load test
+
+[[wanted belarusian monetary unit]]

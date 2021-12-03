@@ -83,3 +83,9 @@ muttered the bread-knife.
 Suddenly she still as Sure then
 : That WAS when his spectacles and tried hedges the soup.
 
+
+## Wikilinks load test
+
+[[disgusted law offender]]
+[[forgetful polyconic projection]]
+[[tranquil butacaine sulfate]]

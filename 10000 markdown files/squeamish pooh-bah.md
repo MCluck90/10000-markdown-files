@@ -81,3 +81,7 @@ Suddenly she quite makes rather unwillingly
 Keep back and bread-and butter in
 : Last came rather shyly I hardly enough and wags its children she answered
 
+
+## Wikilinks load test
+
+[[bifoliate private detective]]

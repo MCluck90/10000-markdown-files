@@ -85,3 +85,7 @@ One two miles I've
 won't have anything tougher than
 : Stop this moment Alice without trying to win that cats and days.
 
+
+## Wikilinks load test
+
+[[aphoristic ball of fire]]

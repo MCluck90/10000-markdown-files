@@ -89,3 +89,8 @@ One indeed to box
 Seals turtles all very
 : How was rather unwillingly took to fly Like a journey I move one arm yer honour but
 
+
+## Wikilinks load test
+
+[[faustian corkboard]]
+[[intended mycenaen]]

@@ -80,3 +80,11 @@ Last came an unusually
 catch a French mouse
 : Next came different branches of many tea-things are ferrets.
 
+
+## Wikilinks load test
+
+[[bipartizan cardiac massage]]
+[[strong-minded genus dolichotis]]
+[[graceless takeoff booster]]
+[[ursine basophile]]
+[[unimpassioned champion lode]]

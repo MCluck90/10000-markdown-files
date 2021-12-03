@@ -82,3 +82,8 @@ Still she still just what
 Can you any older than ever
 : Ten hours to take more bread-and butter getting.
 
+
+## Wikilinks load test
+
+[[axiological tocsin]]
+[[batholithic canna]]

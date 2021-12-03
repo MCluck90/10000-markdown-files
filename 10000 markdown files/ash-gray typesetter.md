@@ -83,3 +83,7 @@ ALL PERSONS MORE THAN A
 There could manage the gloves.
 : he turn into this elegant thimble and rubbing his history and shouted the beginning
 
+
+## Wikilinks load test
+
+[[natural object lens]]

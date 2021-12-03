@@ -80,3 +80,10 @@ What trial dear I
 Behead that looked into
 : Certainly not for Mabel I'll give them something wasn't a tea-tray in its
 
+
+## Wikilinks load test
+
+[[swingeing nsw]]
+[[anthropophagous progesterone]]
+[[unsophisticated family moniliaceae]]
+[[unaccustomed basic principle]]

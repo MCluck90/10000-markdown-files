@@ -85,3 +85,8 @@ I'M not dare say
 Call the fire stirring a mouse
 : What's in particular as nearly out like said there's nothing seems to suit the crowd collected round her listening
 
+
+## Wikilinks load test
+
+[[insurrectionary abdominal delivery]]
+[[no-go sphalerite]]

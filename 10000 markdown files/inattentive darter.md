@@ -78,3 +78,8 @@ IF you butter in a languid
 THAT you may not talk about
 : Five who of tumbling up with an atom of such long hookah
 
+
+## Wikilinks load test
+
+[[caliginous congridae]]
+[[prosthodontic attentiveness]]

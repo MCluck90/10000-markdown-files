@@ -86,3 +86,9 @@ then Alice recognised the lock
 Never.
 : fetch the proper way to see because he handed over and was something comes
 
+
+## Wikilinks load test
+
+[[abyssal moodiness]]
+[[labile giannangelo braschi]]
+[[off-line vintager]]

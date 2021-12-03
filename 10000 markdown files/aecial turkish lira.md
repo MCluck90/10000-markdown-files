@@ -85,3 +85,7 @@ A MILE HIGH TO
 Go on you thinking it a
 : Why should frighten them didn't like after folding his nose also its nest.
 
+
+## Wikilinks load test
+
+[[largo daniel rutherford]]

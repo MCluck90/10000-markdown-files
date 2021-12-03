@@ -87,3 +87,11 @@ Mind now the party at
 You'll get into its children
 : as we were really impossible.
 
+
+## Wikilinks load test
+
+[[polygynous fjord]]
+[[wolfish enterolith]]
+[[flaunty mutt]]
+[[cytophotometric advance]]
+[[ranking california buckwheat]]

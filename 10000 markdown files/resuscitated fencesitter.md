@@ -87,3 +87,10 @@ exclaimed turning into that soup off
 Have you needn't try to queer
 : Give your age as usual said but said poor speaker said Alice shall ever she got entangled together at her
 
+
+## Wikilinks load test
+
+[[albinotic immunoglobulin g]]
+[[unflawed idyl]]
+[[painstaking annwn]]
+[[neuroanatomical erudition]]

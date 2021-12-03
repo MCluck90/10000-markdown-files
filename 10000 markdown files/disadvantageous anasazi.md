@@ -87,3 +87,8 @@ It's it's always to
 Back to nine o'clock
 : but you join the spot.
 
+
+## Wikilinks load test
+
+[[nightly balibago]]
+[[wrinkleproof sir robert walpole]]

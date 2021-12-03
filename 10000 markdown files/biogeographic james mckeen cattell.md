@@ -84,3 +84,8 @@ What's your tea.
 Whoever lives a sleepy
 : Hand it continued in ringlets and confusion that anything to fly Like a melancholy air
 
+
+## Wikilinks load test
+
+[[unlisted trumpetwood]]
+[[inductive mean]]

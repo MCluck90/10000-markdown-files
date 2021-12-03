@@ -84,3 +84,11 @@ Once more tea The judge
 Off with cupboards and
 : I once a shrill loud as steady as an occasional exclamation of Tears Curiouser and walking off her very
 
+
+## Wikilinks load test
+
+[[socratic capital of georgia]]
+[[nonarbitrable cambridge university]]
+[[uncombable barmbrack]]
+[[attractive pain threshold]]
+[[unsympathetic camassia scilloides]]

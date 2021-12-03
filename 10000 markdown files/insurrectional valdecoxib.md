@@ -78,3 +78,7 @@ Do I see if anything
 ALICE'S RIGHT FOOT ESQ.
 : Found IT.
 
+
+## Wikilinks load test
+
+[[heightening baldness]]

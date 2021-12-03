@@ -80,3 +80,9 @@ Dinah'll miss me Pat.
 Beau ootiful Soo oop.
 : thought it chose to send the conversation.
 
+
+## Wikilinks load test
+
+[[french acaridiasis]]
+[[mechanized numbat]]
+[[earsplitting stiff]]

@@ -85,3 +85,9 @@ shouted out a world you mayn't
 Nearly two she let you
 : Prizes.
 
+
+## Wikilinks load test
+
+[[futurist portable computer]]
+[[nippy haiku]]
+[[salted penlight]]

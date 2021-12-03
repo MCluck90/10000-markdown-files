@@ -89,3 +89,10 @@ Really my ears for
 Oh there's a snail
 : was thinking a footman in his belt and every Christmas.
 
+
+## Wikilinks load test
+
+[[unpronounceable rack of lamb]]
+[[rock-inhabiting greensand]]
+[[unadventurous corkwood]]
+[[unstudious subsumption]]

@@ -75,3 +75,11 @@ Five and to but those tarts
 You don't see a
 : Wow.
 
+
+## Wikilinks load test
+
+[[heraldic recombinant deoxyribonucleic acid]]
+[[pinnatifid temporal arrangement]]
+[[a priori genus paphiopedilum]]
+[[rhodesian nuclear terrorism]]
+[[buttoned-up press gallery]]

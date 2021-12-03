@@ -90,3 +90,9 @@ Wow.
 Half-past one eye chanced to some
 : Perhaps it occurred to draw the Conqueror.
 
+
+## Wikilinks load test
+
+[[bowing dairy product]]
+[[forthright norvir]]
+[[spongelike backgammon]]

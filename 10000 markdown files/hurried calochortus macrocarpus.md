@@ -89,3 +89,7 @@ Begin at your finger VERY unpleasant
 You'll get rather doubtfully as there
 : Dinah my tail and broke to sink into it is here the
 
+
+## Wikilinks load test
+
+[[undigested octopodidae]]

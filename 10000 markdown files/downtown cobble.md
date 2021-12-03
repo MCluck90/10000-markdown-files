@@ -89,3 +89,8 @@ quite strange at her calling
 Be off in chains
 : Wake up the hall.
 
+
+## Wikilinks load test
+
+[[light-minded amoralism]]
+[[unprofessional guanabenz]]

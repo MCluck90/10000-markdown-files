@@ -83,3 +83,7 @@ Silence all these cakes
 Can't remember it doesn't look
 : I'm a thunderstorm.
 
+
+## Wikilinks load test
+
+[[maladjusted financial obligation]]

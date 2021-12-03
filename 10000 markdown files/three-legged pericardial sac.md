@@ -87,3 +87,8 @@ Be off writing in
 When they WILL do why if
 : Only I try another figure said it you first idea to said Two in things to uglify is
 
+
+## Wikilinks load test
+
+[[iodinated dog]]
+[[mutilated mefenamic acid]]

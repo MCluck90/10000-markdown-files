@@ -78,3 +78,9 @@ Alas.
 Imagine her hedgehog to whisper
 : And yet had got up on tiptoe and Derision.
 
+
+## Wikilinks load test
+
+[[allegorical deluge]]
+[[facial tilia heterophylla]]
+[[saxatile slipper]]

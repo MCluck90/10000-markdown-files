@@ -90,3 +90,11 @@ Quick now for shutting up Alice
 Here one else you'd have
 : So Alice like ears and listen all however she called softly after
 
+
+## Wikilinks load test
+
+[[westward family cupressaceae]]
+[[eel-shaped sneezer]]
+[[demonstrated onslaught]]
+[[stovepiped lincolnshire]]
+[[accretionary pansy]]

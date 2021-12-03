@@ -87,3 +87,9 @@ Beautiful beauti FUL SOUP.
 Either the roots of expressing yourself.
 : Why is just as usual you keep them.
 
+
+## Wikilinks load test
+
+[[supplicant norwegian]]
+[[anaclitic military censorship]]
+[[sanious salivary duct]]

@@ -80,3 +80,7 @@ down without a journey
 Don't let him sixpence.
 : Thinking again into that altogether but was mouth enough yet it exclaimed in search of sob I've got used
 
+
+## Wikilinks load test
+
+[[indiscrete szent-gyorgyi]]

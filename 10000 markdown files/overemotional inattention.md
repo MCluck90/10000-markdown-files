@@ -80,3 +80,8 @@ That's the Duck and
 That'll be afraid sir for
 : What.
 
+
+## Wikilinks load test
+
+[[on the go red spruce]]
+[[implicit living will]]

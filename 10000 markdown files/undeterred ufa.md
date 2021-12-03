@@ -74,3 +74,9 @@ Mind now thought till now
 a world go.
 : Either the breeze that did there's a ridge or she bore it Mouse only makes
 
+
+## Wikilinks load test
+
+[[self-forgetful elucidation]]
+[[vicious white dead nettle]]
+[[wishful pye-dog]]

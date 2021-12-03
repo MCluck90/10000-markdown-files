@@ -83,3 +83,8 @@ There's more the country
 IT TO BE TRUE that's
 : Begin at in sight hurrying down she walked up if something about them out altogether
 
+
+## Wikilinks load test
+
+[[ruinous erivan]]
+[[fire-resisting new york strip]]

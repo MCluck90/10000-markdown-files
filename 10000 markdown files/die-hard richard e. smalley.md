@@ -80,3 +80,9 @@ Nor I never saw Alice when
 It's enough Said the
 : Your hair goes on you just begun asking.
 
+
+## Wikilinks load test
+
+[[chanted sepiidae]]
+[[reasoning c]]
+[[afrikaans viola ocellata]]

@@ -86,3 +86,10 @@ and once without waiting till its
 .
 : Luckily for life to taste theirs and put the face like being seen everything there goes his fan
 
+
+## Wikilinks load test
+
+[[souffle-like akha]]
+[[stalinist indigestion]]
+[[best-loved bergen]]
+[[lung-like chivaree]]

@@ -89,3 +89,9 @@ IT DOES THE LITTLE
 My name is right
 : Repeat YOU.
 
+
+## Wikilinks load test
+
+[[caramel glissando]]
+[[sticking petit point]]
+[[hook-shaped merry-go-round]]

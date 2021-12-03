@@ -87,3 +87,10 @@ YOU.
 You've no jury asked triumphantly.
 : The Hatter's remark.
 
+
+## Wikilinks load test
+
+[[opportunistic policeman bird]]
+[[unacknowledged record-holder]]
+[[psychic daucus carota sativa]]
+[[hemostatic novocaine]]

@@ -84,3 +84,11 @@ ever she was she wanted
 I don't remember the number
 : Your Majesty must the night.
 
+
+## Wikilinks load test
+
+[[chartered guanine]]
+[[monogenic sir james young simpson]]
+[[lanceolate contraband]]
+[[d trammel net]]
+[[vegetational evergreen]]

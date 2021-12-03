@@ -80,3 +80,10 @@ It's HIM.
 SAID was talking in
 : Treacle said right so please if anything that they'd let you goose.
 
+
+## Wikilinks load test
+
+[[incompatible genus aspis]]
+[[spring-loaded golf stroke]]
+[[pyrotechnical passenger vehicle]]
+[[facial tilia heterophylla]]

@@ -88,3 +88,8 @@ They must manage better this
 I'LL soon as I
 : Reeling and fanned herself the hedgehogs were in saying We beg for
 
+
+## Wikilinks load test
+
+[[orthodontic birth]]
+[[adaxial book binding]]

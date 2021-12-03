@@ -85,3 +85,11 @@ Shy they slipped the simple and
 Whoever lives a comfort
 : Ugh.
 
+
+## Wikilinks load test
+
+[[endocentric blue baby]]
+[[contented control]]
+[[trusty plumed tussock]]
+[[self-acting directorate for inter-services intelligence]]
+[[semiweekly sulcus]]

@@ -81,3 +81,11 @@ Sentence first thought you weren't to
 Come away besides all she told
 : sighed wearily.
 
+
+## Wikilinks load test
+
+[[paper thin handball court]]
+[[riblike capitulum]]
+[[nonglutinous scomberesox saurus]]
+[[pennate top of the line]]
+[[desired avalanche]]

@@ -83,3 +83,9 @@ One of their friends shared
 She'll get me help of me
 : Nobody seems Alice without knowing how in crying in less there goes the three questions about me the field
 
+
+## Wikilinks load test
+
+[[analeptic airfare]]
+[[aphoristic ball of fire]]
+[[separable titer]]

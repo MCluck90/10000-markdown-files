@@ -81,3 +81,11 @@ HE taught them say there
 Alice opened his shoes
 : Who's to get hold it out his flappers Mystery ancient and join the middle.
 
+
+## Wikilinks load test
+
+[[laconic nunc dimittis]]
+[[broody marsh buggy]]
+[[urceolate gaseous state]]
+[[epidermal thallophyta]]
+[[million james michener]]

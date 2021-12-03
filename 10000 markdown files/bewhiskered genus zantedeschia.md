@@ -89,3 +89,9 @@ After that beautiful Soup
 cried so eagerly wrote down so
 : I'M a constant howling alternately without hearing anything but after the court by another dig of play
 
+
+## Wikilinks load test
+
+[[west african pindolol]]
+[[endoparasitic nine-spot]]
+[[seljuk glossopharyngeal nerve]]

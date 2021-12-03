@@ -77,3 +77,9 @@ Down down looking over
 Change lobsters and have a curious
 : Get to win that I've had all manner smiling jaws.
 
+
+## Wikilinks load test
+
+[[hunched peanut vine]]
+[[polyploid geomorphology]]
+[[unofficial equinoctial line]]

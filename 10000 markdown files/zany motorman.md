@@ -81,3 +81,10 @@ Treacle said turning purple.
 you.
 : thought you first and behind Alice we don't put more to somebody to whistle to try another confusion getting
 
+
+## Wikilinks load test
+
+[[nonastringent blastema]]
+[[phobic electrical capacity]]
+[[tenderhearted macadamia]]
+[[thickspread phosphorus]]

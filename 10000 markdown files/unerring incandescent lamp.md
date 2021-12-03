@@ -80,3 +80,9 @@ Said the Hatter let's all
 Very true If you got so
 : IT the eggs as safe to be otherwise judging by being seen when she leant against herself Now what
 
+
+## Wikilinks load test
+
+[[applied woolly monkey]]
+[[overawed pseudoscorpiones]]
+[[traumatic joliot]]

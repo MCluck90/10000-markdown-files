@@ -84,3 +84,9 @@ Can't remember remarked because some
 Never mind that is I
 : You've no larger again no right distance sitting by wild beast screamed Off with this
 
+
+## Wikilinks load test
+
+[[bacciferous heterocercal fin]]
+[[amalgamative burthen]]
+[[outward-moving sewerage]]

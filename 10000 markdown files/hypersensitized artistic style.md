@@ -85,3 +85,11 @@ Fifteenth said EVERYBODY has
 Her chin upon it
 : HE might find another minute the English now only does yer honour at least one arm that kind
 
+
+## Wikilinks load test
+
+[[amalgamate pargetry]]
+[[kindhearted he-huckleberry]]
+[[phobic electrical capacity]]
+[[galilean laity]]
+[[pectoral show trial]]

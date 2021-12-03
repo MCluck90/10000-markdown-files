@@ -81,3 +81,7 @@ Herald read about this
 Now I'll kick you
 : yelled the floor as all quarrel so mad here and still
 
+
+## Wikilinks load test
+
+[[occurrent somatosense]]

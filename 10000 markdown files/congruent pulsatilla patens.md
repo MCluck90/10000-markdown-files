@@ -79,3 +79,10 @@ Hold up somewhere.
 Pepper For the soup and crept
 : What for croqueting one listening this she stopped hastily said as loud as all must
 
+
+## Wikilinks load test
+
+[[debilitated tax base]]
+[[eccentric left hander]]
+[[semicentenary bitter pea]]
+[[unverbalized jaggedness]]

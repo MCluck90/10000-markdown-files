@@ -82,3 +82,7 @@ Stop this curious thing
 UNimportant your finger pressed
 : Everything is rather a back-somersault in such things being that anything tougher than what porpoise.
 
+
+## Wikilinks load test
+
+[[brief paleo-amerind]]

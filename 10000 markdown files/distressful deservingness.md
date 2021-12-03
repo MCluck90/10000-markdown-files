@@ -77,3 +77,9 @@ Go on good English
 With what she found
 : Wow.
 
+
+## Wikilinks load test
+
+[[antipodal onomasticon]]
+[[stereotypic praisworthiness]]
+[[triangulate erasable programmable read-only memory]]

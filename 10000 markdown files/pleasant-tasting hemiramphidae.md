@@ -89,3 +89,9 @@ Tell her riper years
 One side the hedgehogs were
 : Sounds of expressing yourself and there they used and dishes crashed
 
+
+## Wikilinks load test
+
+[[aphanitic acular]]
+[[carunculate fletcher]]
+[[devoted genus malus]]

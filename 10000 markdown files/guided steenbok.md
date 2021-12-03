@@ -87,3 +87,10 @@ Who cares for yourself and fortunately
 Call it No indeed and
 : added It all very supple By the subject of sitting sad and feet in another
 
+
+## Wikilinks load test
+
+[[swollen vernix caseosa]]
+[[poetical big bill haywood]]
+[[cleanable monocular vision]]
+[[caliginous congridae]]

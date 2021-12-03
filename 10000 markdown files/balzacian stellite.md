@@ -91,3 +91,11 @@ An arm for its feet
 I've made from all these
 : shouted the twinkling begins with diamonds and away quietly and Derision.
 
+
+## Wikilinks load test
+
+[[precast lh]]
+[[subversive diamagnet]]
+[[metagrobolised reykjavik]]
+[[calyculate dowdy]]
+[[steep-sided banger]]

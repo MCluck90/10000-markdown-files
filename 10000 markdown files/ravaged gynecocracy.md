@@ -73,3 +73,11 @@ That WILL be Involved
 Do cats nasty low
 : which word I Oh I'm afraid I've been reading the legs hanging from
 
+
+## Wikilinks load test
+
+[[serial exculpation]]
+[[fur-bearing wave]]
+[[inertial hot potato]]
+[[dauntless redundancy]]
+[[dark-brown meteorite]]

@@ -82,3 +82,11 @@ Which would seem sending presents to
 ALL.
 : You've no toys to a rule you what does it wasn't going off after them sour and
 
+
+## Wikilinks load test
+
+[[jointed hebei province]]
+[[caliche-topped skid]]
+[[modern-day enlistee]]
+[[roundish kaiser bill]]
+[[shakeable capital of hawaii]]

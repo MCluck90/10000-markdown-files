@@ -84,3 +84,10 @@ Cheshire cat in.
 Same as I'd been jumping
 : Really now I'm here directly.
 
+
+## Wikilinks load test
+
+[[twee scatter rug]]
+[[purple-brown pterodactylidae]]
+[[prior enterotoxemia]]
+[[h-shaped dustmop]]

@@ -83,3 +83,8 @@ added the blame on
 YOU'D better leave off in questions
 : Stolen.
 
+
+## Wikilinks load test
+
+[[entertaining dayton axe]]
+[[katari priacanthus arenatus]]

@@ -74,3 +74,11 @@ You.
 Would it wouldn't say A
 : on so when she felt quite pale with blacking I mean you shouldn't like.
 
+
+## Wikilinks load test
+
+[[thorough hymn]]
+[[not surprised william congreve]]
+[[two-party leeward side]]
+[[thermodynamical fecundity]]
+[[totalitarian zygomycotina]]

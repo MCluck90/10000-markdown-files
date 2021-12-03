@@ -81,3 +81,7 @@ _I_ don't care where it please
 This was walking off without knocking
 : Who's to nine feet.
 
+
+## Wikilinks load test
+
+[[unnamed coral gem]]

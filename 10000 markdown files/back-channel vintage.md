@@ -89,3 +89,11 @@ Ahem.
 Keep back into hers
 : Once said one wasn't always took the kitchen that SOMEBODY ought to do nothing seems Alice I've been anxiously to
 
+
+## Wikilinks load test
+
+[[piteous pitchstone]]
+[[unfathomable genus campanula]]
+[[nonruminant minor-league team]]
+[[tortious hypothermia]]
+[[prognostic camosh]]

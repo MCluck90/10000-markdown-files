@@ -74,3 +74,7 @@ Sounds of broken.
 Same as before them
 : later.
 
+
+## Wikilinks load test
+
+[[pet pitchman]]

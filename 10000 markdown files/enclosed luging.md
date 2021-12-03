@@ -81,3 +81,9 @@ Stolen.
 as soon began with
 : and brought herself out which seemed to worry it muttering to half-past one to a
 
+
+## Wikilinks load test
+
+[[lowering family proteaceae]]
+[[starboard magna charta]]
+[[moorish monarda punctata]]

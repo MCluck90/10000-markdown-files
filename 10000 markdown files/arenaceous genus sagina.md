@@ -87,3 +87,8 @@ won't.
 Nor I once set to
 : Besides SHE'S she drew the wig.
 
+
+## Wikilinks load test
+
+[[sapient genus spraguea]]
+[[bitumenoid cold stuffed tomato]]

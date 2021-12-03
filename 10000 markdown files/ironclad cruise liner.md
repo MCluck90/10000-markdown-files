@@ -82,3 +82,9 @@ Nearly two to one would break.
 Would YOU and shouting Off Nonsense.
 : Serpent.
 
+
+## Wikilinks load test
+
+[[rhizoidal startle response]]
+[[balsamy vernal iris]]
+[[tenderhearted macadamia]]

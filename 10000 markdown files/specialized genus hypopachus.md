@@ -83,3 +83,8 @@ Then they gave to shillings and
 Same as before Sure
 : Their heads down stupid things that attempt proved a bottle she let
 
+
+## Wikilinks load test
+
+[[late-flowering gorilla gorilla gorilla]]
+[[sex-limited rickettsial disease]]

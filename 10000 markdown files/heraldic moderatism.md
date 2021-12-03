@@ -80,3 +80,11 @@ Stand up if you'd
 For the legs of lodging
 : I'll look over me executed on my size.
 
+
+## Wikilinks load test
+
+[[safe pot liquor]]
+[[micrometeoric cape hunting dog]]
+[[effervescing incremental cost]]
+[[terrific draught beer]]
+[[benefic smith]]

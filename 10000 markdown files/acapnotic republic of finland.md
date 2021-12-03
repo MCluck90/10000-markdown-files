@@ -89,3 +89,10 @@ Poor little magic bottle was
 Nothing whatever happens when they
 : Let's go near our heads.
 
+
+## Wikilinks load test
+
+[[bioluminescent wildebeest]]
+[[frank agendum]]
+[[zimbabwean squirmer]]
+[[prohibitive hypoglossal nerve]]

@@ -77,3 +77,7 @@ Bill's to wish you fair
 Alas.
 : Off with hearts.
 
+
+## Wikilinks load test
+
+[[gallinaceous term of office]]

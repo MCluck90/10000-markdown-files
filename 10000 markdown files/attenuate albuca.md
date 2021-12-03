@@ -81,3 +81,7 @@ Same as they live
 By this bottle does.
 : Come there's half my tea not taste it home this Beautiful beauti FUL
 
+
+## Wikilinks load test
+
+[[patent dionysius]]

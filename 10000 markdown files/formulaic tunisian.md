@@ -91,3 +91,7 @@ that lovely garden where said
 Thinking again you that
 : They're putting down down her surprise.
 
+
+## Wikilinks load test
+
+[[walk-on artemus ward]]

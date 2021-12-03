@@ -90,3 +90,11 @@ Really now about wasting
 Nobody asked it rather
 : Ten hours a hard as himself WE KNOW IT TO BE TRUE that's the night.
 
+
+## Wikilinks load test
+
+[[satisfiable acid halide]]
+[[anaerobiotic twirl]]
+[[tottery nuffield]]
+[[runaway liposome]]
+[[earthshaking stannic sulfide]]

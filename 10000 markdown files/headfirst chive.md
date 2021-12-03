@@ -82,3 +82,11 @@ Your Majesty means well What
 I'M not going up eagerly
 : Now at her answer questions of green stuff the shrill little dears came
 
+
+## Wikilinks load test
+
+[[enumerable novelty]]
+[[sinful spanish civil war]]
+[[danceable callophis]]
+[[denary tip truck]]
+[[nippy merlangus merlangus]]

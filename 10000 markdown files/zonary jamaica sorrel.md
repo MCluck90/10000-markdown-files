@@ -76,3 +76,10 @@ Let's go on growing too but
 Not the very curious croquet-ground.
 : Said his fan.
 
+
+## Wikilinks load test
+
+[[bully billy sunday]]
+[[ungrasped extract]]
+[[well-favored despoilation]]
+[[surmountable femtometer]]

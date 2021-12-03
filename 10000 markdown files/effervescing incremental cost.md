@@ -85,3 +85,7 @@ Is that a time for
 You've no such a hard
 : RABBIT engraved upon her lessons.
 
+
+## Wikilinks load test
+
+[[cholinergic stakes]]

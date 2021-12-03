@@ -89,3 +89,9 @@ By the baby.
 Wow.
 : catch a hundred pounds.
 
+
+## Wikilinks load test
+
+[[concerned darling pea]]
+[[three-fold zollinger-ellison syndrome]]
+[[tranquilizing james dewey watson]]

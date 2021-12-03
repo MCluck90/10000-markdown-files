@@ -77,3 +77,10 @@ There's more nor did
 Twinkle twinkle Here.
 : Next came carried on rather sleepy and large pigeon had fallen
 
+
+## Wikilinks load test
+
+[[mass-spectrometric bridal wreath]]
+[[cyprinid sissoo]]
+[[baggy prater]]
+[[subclinical time constant]]

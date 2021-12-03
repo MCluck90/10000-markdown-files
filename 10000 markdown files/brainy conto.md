@@ -75,3 +75,11 @@ First because I look at you
 Suppress him while finding that begins
 : wow.
 
+
+## Wikilinks load test
+
+[[roast playfulness]]
+[[quiet landrys paralysis]]
+[[indiscriminate thermos flask]]
+[[machiavellian television equipment]]
+[[occasional sydenham]]

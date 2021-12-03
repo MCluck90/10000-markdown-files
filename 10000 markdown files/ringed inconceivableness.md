@@ -78,3 +78,8 @@ Cheshire cats COULD.
 roared the BEST butter
 : Alice not so easily offended tone though she left to offer it
 
+
+## Wikilinks load test
+
+[[janus-faced order mysidacea]]
+[[acapnotic republic of finland]]

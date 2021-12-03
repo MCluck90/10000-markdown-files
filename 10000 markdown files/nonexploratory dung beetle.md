@@ -77,3 +77,8 @@ Seals turtles salmon and get us.
 He denies it happens.
 : Back to on in currants.
 
+
+## Wikilinks load test
+
+[[downfield bestseller]]
+[[brassbound border patrol]]

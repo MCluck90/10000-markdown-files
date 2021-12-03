@@ -76,3 +76,11 @@ Now I took down that
 Hadn't time there they used
 : Two in.
 
+
+## Wikilinks load test
+
+[[aeriform discontinuation]]
+[[boughless saint benedict]]
+[[awless logomach]]
+[[testaceous safety zone]]
+[[denary garrison]]

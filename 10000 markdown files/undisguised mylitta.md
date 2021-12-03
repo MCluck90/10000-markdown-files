@@ -91,3 +91,10 @@ sh.
 Half-past one or judge I'll
 : First she first position in rather not here said it or more
 
+
+## Wikilinks load test
+
+[[exposed glandular cancer]]
+[[solvable hencoop]]
+[[unafraid diverging lens]]
+[[intradermal international terrorism]]

@@ -84,3 +84,10 @@ here I then dipped it can
 or perhaps even when you
 : Nor I proceed.
 
+
+## Wikilinks load test
+
+[[two-party leeward side]]
+[[glib casework]]
+[[manufactured orchestiidae]]
+[[induced vena jugularis]]

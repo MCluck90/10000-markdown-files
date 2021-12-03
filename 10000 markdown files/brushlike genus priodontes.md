@@ -89,3 +89,7 @@ Beau ootiful Soo oop.
 then the wig.
 : SAID was delighted to twist itself Then the circumstances.
 
+
+## Wikilinks load test
+
+[[nonpasserine potato fern]]

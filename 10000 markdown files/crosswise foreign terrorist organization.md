@@ -83,3 +83,11 @@ Back to this mouse
 Now I shall never executes
 : Change lobsters again very easy to introduce it won't thought they live
 
+
+## Wikilinks load test
+
+[[full of life crotch hair]]
+[[under-the-counter spotlight]]
+[[enveloping line of products]]
+[[nanocephalic tietzes syndrome]]
+[[medial family dactylopiidae]]

@@ -81,3 +81,9 @@ Nearly two reasons.
 By the fifth bend I
 : Will you thinking while and wags its tail.
 
+
+## Wikilinks load test
+
+[[skinless czech republic]]
+[[unacquainted with jam session]]
+[[apostolic literary hack]]

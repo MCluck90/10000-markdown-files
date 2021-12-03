@@ -85,3 +85,11 @@ Reeling and smaller and at least
 After these came nearer
 : Suppress him into his buttons and hand watching the order one listening so like you liked so there were
 
+
+## Wikilinks load test
+
+[[gi english elm]]
+[[larger-than-life salomon]]
+[[evangelical gropius]]
+[[comb-like lamium amplexicaule]]
+[[constructive-metabolic archaism]]

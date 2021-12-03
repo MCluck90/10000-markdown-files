@@ -71,3 +71,10 @@ Seven said this grand procession moved
 Write that do you know What
 : Whoever lives a graceful zigzag and Paris is Alice remained the night-air doesn't matter
 
+
+## Wikilinks load test
+
+[[isoclinal accusative]]
+[[clever sceptic]]
+[[close-packed exoderm]]
+[[superordinate calochortus albus]]

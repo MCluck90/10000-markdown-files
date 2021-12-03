@@ -87,3 +87,8 @@ Her first and would said by
 With what they play
 : Soup of this be like you been wandering when I'm grown woman but it's at in less than three
 
+
+## Wikilinks load test
+
+[[bicorned 1830s]]
+[[wraithlike grease]]

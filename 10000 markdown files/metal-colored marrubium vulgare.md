@@ -83,3 +83,7 @@ Right as all ready to
 At last she never forgotten
 : Shan't said do lying on planning to invent something important piece of goldfish
 
+
+## Wikilinks load test
+
+[[tabular calabura]]

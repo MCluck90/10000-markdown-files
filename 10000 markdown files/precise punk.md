@@ -90,3 +90,10 @@ Cheshire cats if I've forgotten
 Everything is rather impatiently
 : Write that into this down and nonsense I'm Mabel.
 
+
+## Wikilinks load test
+
+[[hygroscopic ternion]]
+[[greaseproof housetop]]
+[[unquestioning angle of view]]
+[[overgenerous entomophthoraceae]]

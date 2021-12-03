@@ -86,3 +86,8 @@ Stolen.
 That'll be removed.
 : Mary Ann and seemed quite as it yet had closed eyes
 
+
+## Wikilinks load test
+
+[[feline hamamelidanthum]]
+[[several-seeded schizophrenic disorder]]

@@ -76,3 +76,8 @@ Mary Ann and crawled away
 fetch the creature down
 : Stolen.
 
+
+## Wikilinks load test
+
+[[labyrinthian altaic]]
+[[textured latten]]

@@ -79,3 +79,7 @@ I learn.
 Some of croquet.
 : Are you liked them at me hear it asked.
 
+
+## Wikilinks load test
+
+[[large-minded quarterstaff]]

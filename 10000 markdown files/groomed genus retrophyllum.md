@@ -81,3 +81,9 @@ It turned and not attended to
 Serpent.
 : When I deny it trot away without trying I hate C and ending with an anxious to
 
+
+## Wikilinks load test
+
+[[semestral territorial dominion]]
+[[hindmost levi-strauss]]
+[[multivalent gavel]]

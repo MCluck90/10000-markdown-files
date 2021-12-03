@@ -72,3 +72,8 @@ exclaimed Alice didn't much
 Soon her sister who is
 : Hush.
 
+
+## Wikilinks load test
+
+[[bacillar woodshed]]
+[[xxix shaving cream]]

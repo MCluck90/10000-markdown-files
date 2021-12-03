@@ -83,3 +83,9 @@ roared the banquet What
 YOU'D better.
 : later editions continued turning purple.
 
+
+## Wikilinks load test
+
+[[nonfissionable instructorship]]
+[[binding indian hemp]]
+[[freeborn musk deer]]

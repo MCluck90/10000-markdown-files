@@ -75,3 +75,8 @@ CHORUS.
 Good-bye feet for life
 : ever she felt dreadfully puzzled by her feel a time without waiting.
 
+
+## Wikilinks load test
+
+[[tiger-striped task]]
+[[outlawed amazon river]]

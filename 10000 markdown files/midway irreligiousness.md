@@ -84,3 +84,9 @@ later.
 Their heads are the teacups
 : Last came the sentence first.
 
+
+## Wikilinks load test
+
+[[blue-eyed bill poster]]
+[[compatible indian pony]]
+[[intact psycholinguist]]

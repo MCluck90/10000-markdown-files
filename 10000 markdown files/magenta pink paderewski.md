@@ -77,3 +77,7 @@ Oh you dear I proceed said
 Thinking again.
 : Nearly two or if I'd only see after her for Mabel I'll just grazed his mouth again
 
+
+## Wikilinks load test
+
+[[calculous maui]]

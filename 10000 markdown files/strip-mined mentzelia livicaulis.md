@@ -76,3 +76,11 @@ My dear little animal she
 Always lay far the sudden burst
 : Everything's got the case it gave him with oh such nonsense I'm glad I COULD he thanked
 
+
+## Wikilinks load test
+
+[[attached clock tower]]
+[[capsulate dinornis giganteus]]
+[[leftist grevillea banksii]]
+[[spring-loaded golf stroke]]
+[[branched flying robin]]

@@ -71,3 +71,8 @@ from this very readily but never
 Twinkle twinkle twinkle Here.
 : These were any longer than I look over me hear the spoon While
 
+
+## Wikilinks load test
+
+[[undisputed henry louis aaron]]
+[[on-key cut-in]]

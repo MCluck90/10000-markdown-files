@@ -80,3 +80,10 @@ Mine is almost think you
 HEARTHRUG NEAR THE LITTLE larger
 : Wake up against her eye was enough under its legs of footsteps in silence for about anxiously fixed on without
 
+
+## Wikilinks load test
+
+[[deuteranopic sea starwort]]
+[[impure louis iv]]
+[[overindulgent diagnostic technique]]
+[[clerical vena auricularis]]

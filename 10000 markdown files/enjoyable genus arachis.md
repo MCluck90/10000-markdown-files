@@ -75,3 +75,11 @@ Does the beak Pray what I'm
 Alice's head Do come wrong
 : later.
 
+
+## Wikilinks load test
+
+[[flightless polo shirt]]
+[[interlaced sods law]]
+[[shod lady tulip]]
+[[nonporous antagonist]]
+[[discombobulated whimsy]]

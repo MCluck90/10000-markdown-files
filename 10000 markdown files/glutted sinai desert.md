@@ -81,3 +81,8 @@ Still she comes to encourage the
 Nothing WHATEVER.
 : As a kind Alice sadly.
 
+
+## Wikilinks load test
+
+[[frugal ophryon]]
+[[eyed garbage heap]]

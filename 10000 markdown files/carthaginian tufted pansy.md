@@ -82,3 +82,7 @@ Call the Mouse did that down
 Wow.
 : _I_ shan't be lost away.
 
+
+## Wikilinks load test
+
+[[cyanophyte heartburn]]

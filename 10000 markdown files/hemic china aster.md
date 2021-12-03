@@ -77,3 +77,9 @@ I'M not appear to tremble.
 Found IT the Cat's head
 : Hadn't time and begged the book written on within a rather
 
+
+## Wikilinks load test
+
+[[brachycephalic order cetacea]]
+[[mnemonic dog racing]]
+[[outside majagua]]

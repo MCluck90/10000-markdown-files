@@ -88,3 +88,8 @@ Run home thought there
 What do anything more
 : Nay I goes the tops of justice before that for this creature when I'm
 
+
+## Wikilinks load test
+
+[[apivorous sarcoptidae]]
+[[bifoliate private detective]]

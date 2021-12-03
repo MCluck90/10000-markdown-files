@@ -86,3 +86,10 @@ Ah.
 Can you drink under her waiting
 : they'll remember her its paws.
 
+
+## Wikilinks load test
+
+[[discriminatory diatonic scale]]
+[[scraggly parterre]]
+[[audio-lingual capital of iowa]]
+[[gushing darkening]]

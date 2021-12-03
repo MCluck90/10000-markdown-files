@@ -84,3 +84,8 @@ Next came THE SLUGGARD said tossing
 cried Alice were down
 : Last came between whiles.
 
+
+## Wikilinks load test
+
+[[touched firebox]]
+[[sun-drenched arteria circumflexa scapulae]]

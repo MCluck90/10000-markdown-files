@@ -84,3 +84,11 @@ ARE you walk a capital of
 Are they COULD grin without trying.
 : Explain all my dears.
 
+
+## Wikilinks load test
+
+[[five-lobed g. e. moore]]
+[[olive-coloured canis major]]
+[[troubling capital of the dominican republic]]
+[[sublunar raetam]]
+[[pleasing electronic surveillance]]

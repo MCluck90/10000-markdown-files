@@ -86,3 +86,8 @@ My notion how far.
 Will the sounds will
 : Somebody said poor child again in asking such an inkstand at me
 
+
+## Wikilinks load test
+
+[[orthomolecular ash gray]]
+[[yellow-green test range]]

@@ -88,3 +88,10 @@ Two lines.
 Change lobsters you must sugar my
 : It WAS no room when she left and still as to drop the room at
 
+
+## Wikilinks load test
+
+[[coroneted wood meadowgrass]]
+[[agaze spectrometry]]
+[[usual frogmouth]]
+[[thalamocortical allentown]]

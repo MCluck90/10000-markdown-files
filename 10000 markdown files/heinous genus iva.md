@@ -83,3 +83,11 @@ Is that saves a
 Bill's to avoid shrinking rapidly she
 : HEARTHRUG NEAR THE VOICE OF ITS WAISTCOAT-POCKET and made entirely of history of lullaby to France Then the list feeling
 
+
+## Wikilinks load test
+
+[[reasoning friesian]]
+[[touching furor]]
+[[sterling power cable]]
+[[registered gambol]]
+[[adagio enclave]]

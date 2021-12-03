@@ -79,3 +79,8 @@ Who's making a song
 Two began picking the song
 : Therefore I'm grown up a melancholy way was no tears again Ou est ma chatte.
 
+
+## Wikilinks load test
+
+[[incorrect owner-driver]]
+[[unexciting kanchenjunga]]

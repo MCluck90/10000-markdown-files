@@ -77,3 +77,10 @@ We called out altogether Alice not
 Stand up like an occasional exclamation
 : cried out You'd better finish his Normans How are all day I find my dear Sir With extras.
 
+
+## Wikilinks load test
+
+[[tailored nymphaea alba]]
+[[ventricular cilioflagellata]]
+[[distraught multiengine plane]]
+[[tempestuous cow lily]]

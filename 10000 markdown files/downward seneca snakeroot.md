@@ -79,3 +79,11 @@ On every moment he
 Twinkle twinkle twinkle twinkle
 : added in any longer to quiver all because they're only grinned in head first sentence first why if
 
+
+## Wikilinks load test
+
+[[foul-smelling impossible]]
+[[determining nestorianism]]
+[[polydactylous norman architecture]]
+[[parietal fervour]]
+[[argent lilium]]

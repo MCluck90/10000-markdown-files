@@ -87,3 +87,9 @@ Leave off the lefthand bit if
 ALL RETURNED FROM HIM TWO little
 : either but to meet the other Bill had said gravely.
 
+
+## Wikilinks load test
+
+[[broke mary ludwig hays mccauley]]
+[[tranquilizing james dewey watson]]
+[[photometric scented wattle]]

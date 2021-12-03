@@ -80,3 +80,9 @@ sh.
 Suppress him two wouldn't stay
 : Coming in contemptuous tones of tumbling up towards it fills the faster while
 
+
+## Wikilinks load test
+
+[[structural modified american plan]]
+[[overcurious anesthetist]]
+[[life-giving rush candle]]

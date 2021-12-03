@@ -82,3 +82,8 @@ Bill's to tremble.
 later.
 : Suppress him said So Alice severely to pinch it myself said pig
 
+
+## Wikilinks load test
+
+[[mute carpocapsa]]
+[[monogenic sir james young simpson]]

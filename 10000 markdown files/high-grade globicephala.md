@@ -81,3 +81,9 @@ Either the earth.
 Ahem.
 : Do come back.
 
+
+## Wikilinks load test
+
+[[retributive heart of dixie]]
+[[delayed preceptor]]
+[[livable ops]]

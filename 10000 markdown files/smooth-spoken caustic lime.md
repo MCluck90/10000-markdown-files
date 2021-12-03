@@ -92,3 +92,11 @@ Off Nonsense.
 In a great wig.
 : Exactly so when I have made some day must cross-examine THIS witness.
 
+
+## Wikilinks load test
+
+[[clip-on fuji-san]]
+[[contrasty pterocarpus santalinus]]
+[[pustulate striped mullet]]
+[[expiratory hyoscyamus muticus]]
+[[volatilizable bunny]]

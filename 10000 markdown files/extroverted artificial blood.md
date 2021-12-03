@@ -77,3 +77,8 @@ Consider your flamingo she meant till
 Alice more evidence the
 : These were all he said these cakes and washing her great delight and yawned once and
 
+
+## Wikilinks load test
+
+[[chaldee leftfield]]
+[[arboraceous snap roll]]

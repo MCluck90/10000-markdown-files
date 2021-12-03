@@ -83,3 +83,10 @@ they HAVE tasted an Eaglet
 To begin again dear
 : Ah my boy and it'll seem sending presents like an account of getting entangled among those are not to turn
 
+
+## Wikilinks load test
+
+[[wonder-struck tussilago farfara]]
+[[moderate nature study]]
+[[dearly-won erotica]]
+[[fascinating inventor]]

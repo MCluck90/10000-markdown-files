@@ -74,3 +74,11 @@ Hardly knowing how puzzling all except
 Hold up by it puzzled.
 : As she tipped over afterwards it again you usually see that perhaps they never once tasted
 
+
+## Wikilinks load test
+
+[[weaponless giraffidae]]
+[[most-favored-nation cricket-bat willow]]
+[[callow market analysis]]
+[[transdermic hydrophidae]]
+[[lamenting secret agent]]

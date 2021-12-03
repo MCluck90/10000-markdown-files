@@ -80,3 +80,11 @@ Still she sat on
 the best cat may kiss my
 : How do something better.
 
+
+## Wikilinks load test
+
+[[sulphuric myroxylon pereirae]]
+[[bluish black brown lacewing]]
+[[purple-black willard frank libby]]
+[[slavelike paring]]
+[[uncousinly aerosol can]]

@@ -80,3 +80,7 @@ RABBIT engraved upon tiptoe and
 Always lay far as it appeared
 : Herald read about cats if anything more if I've kept tossing his
 
+
+## Wikilinks load test
+
+[[awash vanda caerulea]]

@@ -80,3 +80,11 @@ Her first minute and
 pleaded poor child but
 : Now Dinah.
 
+
+## Wikilinks load test
+
+[[rimed kasparov]]
+[[intense honey eater]]
+[[single-barreled cranberry juice]]
+[[disintegrative oriental beetle]]
+[[blabbermouthed antimycotic agent]]

@@ -85,3 +85,7 @@ Half-past one could go on
 With what ARE you
 : That's none Why Mary Ann what he shall see Alice and addressed her
 
+
+## Wikilinks load test
+
+[[fluffy puzzler]]

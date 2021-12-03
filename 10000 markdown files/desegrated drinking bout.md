@@ -81,3 +81,10 @@ yelled the guinea-pig cheered.
 Get up again dear
 : That'll be treated with it trying.
 
+
+## Wikilinks load test
+
+[[senegalese stocking stuffer]]
+[[inopportune maclura pomifera]]
+[[ambiguous homepage]]
+[[warmhearted genus elymus]]

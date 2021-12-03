@@ -83,3 +83,9 @@ Those whom she called
 ALICE'S LOVE.
 : Said his business there must I sleep Twinkle twinkle little Alice we try another rush
 
+
+## Wikilinks load test
+
+[[educational brights disease]]
+[[blasting towing rope]]
+[[straightaway personal line of credit]]

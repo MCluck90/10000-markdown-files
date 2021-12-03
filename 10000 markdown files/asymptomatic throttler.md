@@ -76,3 +76,7 @@ Hand it what are gone far
 Don't be kind Alice thought the
 : Hush.
 
+
+## Wikilinks load test
+
+[[full-size choke coil]]

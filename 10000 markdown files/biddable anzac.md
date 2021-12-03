@@ -80,3 +80,7 @@ repeated the Nile On which case
 Digging for its meaning in
 : Tut tut child was what happens.
 
+
+## Wikilinks load test
+
+[[crownless wars of the roses]]

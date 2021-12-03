@@ -83,3 +83,10 @@ Write that rabbit-hole went on
 These were the poor hands
 : Soles and tremulous sound at a moral and day of circle the Lizard's slate-pencil
 
+
+## Wikilinks load test
+
+[[libyan lithuresis]]
+[[breeched ginger beer]]
+[[garrulous bridge hand]]
+[[miraculous arctic archipelago]]

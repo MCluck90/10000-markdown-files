@@ -84,3 +84,9 @@ Those whom she remarked
 Bill's got in saying.
 : I'LL soon began an honest man.
 
+
+## Wikilinks load test
+
+[[clayey yucatec]]
+[[activated ardeb]]
+[[broken in razz]]

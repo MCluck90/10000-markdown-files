@@ -79,3 +79,7 @@ No more happened.
 thump.
 : Up lazy thing yourself not possibly make one Alice sighed deeply.
 
+
+## Wikilinks load test
+
+[[eased horse-head]]

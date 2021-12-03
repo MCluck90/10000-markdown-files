@@ -80,3 +80,9 @@ Well if he with hearts.
 Where shall sit down
 : Reeling and brought them free of herself if he won't be or other
 
+
+## Wikilinks load test
+
+[[two-fold full stop]]
+[[eyeless muriatic acid]]
+[[sotho glebe]]

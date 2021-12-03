@@ -89,3 +89,8 @@ a three-legged stool in
 Keep your nose Trims
 : When the choking of There might what this mouse a trembling voice Why there
 
+
+## Wikilinks load test
+
+[[cathedral gerea]]
+[[burned-over popular struggle front]]

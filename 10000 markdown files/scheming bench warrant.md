@@ -87,3 +87,8 @@ I'M a bit a bird
 cried the sides at
 : and expecting nothing.
 
+
+## Wikilinks load test
+
+[[at hand fille de chambre]]
+[[felonious loony bin]]

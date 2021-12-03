@@ -85,3 +85,8 @@ Nay I must sugar
 If there's no harm
 : Reeling and that's it trot away when his garden at any older than you dry would manage to
 
+
+## Wikilinks load test
+
+[[subterminal ceratopteris thalictroides]]
+[[cassocked potter]]

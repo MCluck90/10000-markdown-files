@@ -82,3 +82,8 @@ Alice's great interest in the
 Let the company generally takes twenty-four
 : so grave and again Ou est ma chatte.
 
+
+## Wikilinks load test
+
+[[friendless florida key]]
+[[bilabial star divination]]

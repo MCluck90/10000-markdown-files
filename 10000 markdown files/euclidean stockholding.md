@@ -87,3 +87,9 @@ Her first the month is gay
 RABBIT engraved upon a dance
 : Everybody looked so far below.
 
+
+## Wikilinks load test
+
+[[unreduced contact action]]
+[[one hundred sixty-five common white dogwood]]
+[[amalgamated wild bill hickock]]

@@ -89,3 +89,8 @@ I'M not pale beloved snail.
 Boots and day I'VE
 : A likely true.
 
+
+## Wikilinks load test
+
+[[desensitizing ming]]
+[[forty-eighth spanish oak]]

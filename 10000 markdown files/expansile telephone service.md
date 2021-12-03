@@ -80,3 +80,9 @@ Nothing can you hold
 How am older than you
 : Idiot.
 
+
+## Wikilinks load test
+
+[[long-shanked bris]]
+[[trifoliate nubbiness]]
+[[uncombed contumacy]]

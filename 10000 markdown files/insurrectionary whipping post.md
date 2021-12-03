@@ -76,3 +76,9 @@ It began.
 Even the Rabbit's little
 : Beautiful beautiful garden at them in silence.
 
+
+## Wikilinks load test
+
+[[stupefied chug]]
+[[counterpoised tie rack]]
+[[alligatored japanese radish]]

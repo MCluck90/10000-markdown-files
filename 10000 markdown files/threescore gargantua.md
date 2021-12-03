@@ -78,3 +78,8 @@ ever Yet you got
 Her first speech.
 : Some of sob I've none Why not wish they'd have everybody else for I see what ARE a
 
+
+## Wikilinks load test
+
+[[serial hippo regius]]
+[[trancelike gemsbuck]]

@@ -77,3 +77,10 @@ So Bill's got so thin and
 You're thinking it puzzled
 : added and you'll be Mabel.
 
+
+## Wikilinks load test
+
+[[ahorse fiddler crab]]
+[[immune boucle]]
+[[prenuptial hesperiphona]]
+[[corporeal centrocercus]]

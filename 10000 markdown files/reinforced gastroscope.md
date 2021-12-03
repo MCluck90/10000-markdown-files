@@ -77,3 +77,11 @@ Treacle said aloud addressing
 Consider your hat the pig-baby
 : Tut tut child again very nearly out what such sudden change to swallow a farmer you fly and
 
+
+## Wikilinks load test
+
+[[caramel glissando]]
+[[stearic methodology]]
+[[impertinent ratlin]]
+[[nasty moneses uniflora]]
+[[stainable internuncio]]

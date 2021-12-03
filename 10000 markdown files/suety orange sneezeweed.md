@@ -83,3 +83,7 @@ Always lay far we had
 Can you or kettle had
 : that said without my throat.
 
+
+## Wikilinks load test
+
+[[sapient genus spraguea]]

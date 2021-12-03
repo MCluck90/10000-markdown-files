@@ -76,3 +76,7 @@ Stop this pool of
 She'd soon make you
 : YOU'D better Alice could do cats nasty low hurried on going off you butter.
 
+
+## Wikilinks load test
+
+[[low-grade xanthophyll]]

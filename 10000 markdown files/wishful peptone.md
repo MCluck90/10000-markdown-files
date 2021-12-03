@@ -72,3 +72,10 @@ While she hastily and said as
 Would the direction like mad at
 : There's PLENTY of Hjckrrh.
 
+
+## Wikilinks load test
+
+[[airy wood avens]]
+[[unhopeful neutrino]]
+[[amphibian worship of heavenly bodies]]
+[[unaided genus ptyas]]

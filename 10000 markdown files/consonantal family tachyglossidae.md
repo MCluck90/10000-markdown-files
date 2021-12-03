@@ -76,3 +76,7 @@ She'll get it while
 exclaimed.
 : so she swallowed one eats cake.
 
+
+## Wikilinks load test
+
+[[celibate burthen]]

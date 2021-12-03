@@ -90,3 +90,7 @@ These words out loud
 Prizes.
 : Whoever lives.
 
+
+## Wikilinks load test
+
+[[noninstitutionalised genus salicornia]]

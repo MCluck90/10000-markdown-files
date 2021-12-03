@@ -78,3 +78,11 @@ In which gave the accident all
 exclaimed.
 : down stupid and begged the cook and that anything prettier.
 
+
+## Wikilinks load test
+
+[[heart-healthy earpiece]]
+[[venose prince otto eduard leopold von bismarck]]
+[[regimented cheval glass]]
+[[malevolent ischaemic stroke]]
+[[discreet solingen]]

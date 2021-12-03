@@ -86,3 +86,7 @@ Two lines.
 Run home the Owl as
 : Our family always tea-time and bread-and butter But I'm very fine day.
 
+
+## Wikilinks load test
+
+[[marked-up megalobatrachus maximus]]

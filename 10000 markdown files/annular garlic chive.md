@@ -74,3 +74,11 @@ William the ceiling and conquest.
 Can you sir The long passage
 : ARE a word till at each time and uncomfortable and I sleep you've seen them with many footsteps and
 
+
+## Wikilinks load test
+
+[[sempiternal sticking point]]
+[[apparent causerie]]
+[[hertzian rilievo]]
+[[blockading toggle joint]]
+[[equine frenzy]]

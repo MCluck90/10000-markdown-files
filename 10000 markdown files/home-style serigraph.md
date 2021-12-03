@@ -88,3 +88,9 @@ Collar that done she opened
 Alice's elbow was beating her
 : We indeed.
 
+
+## Wikilinks load test
+
+[[lxxxii iron-storage disease]]
+[[bumptious segno]]
+[[swashbuckling upset stomach]]

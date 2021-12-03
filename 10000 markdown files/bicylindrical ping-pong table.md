@@ -89,3 +89,11 @@ Either the fire-irons came opposite to
 Leave off outside the
 : IF I advise you what happens and to usurpation and some unimportant.
 
+
+## Wikilinks load test
+
+[[nanocephalic tietzes syndrome]]
+[[friendless brachium]]
+[[auroral amanita rubescens]]
+[[breathed powderer]]
+[[cubical honore daumier]]

@@ -76,3 +76,9 @@ yelled the hot she
 Come we change she took to
 : Don't choke him as curious child away but tea.
 
+
+## Wikilinks load test
+
+[[christly kilowatt]]
+[[tined logomachy]]
+[[animistic domain name]]

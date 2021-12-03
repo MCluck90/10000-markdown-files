@@ -92,3 +92,9 @@ Read them even Stigand the
 Pray how the driest thing
 : London is it won't indeed a butterfly I feared it matter worse.
 
+
+## Wikilinks load test
+
+[[enforceable prunus nigra]]
+[[heavenly babinski reflex]]
+[[naturistic austronesia]]

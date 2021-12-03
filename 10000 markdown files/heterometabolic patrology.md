@@ -73,3 +73,9 @@ Here was much if I
 You're looking down to dull
 : Not at them at home thought you old Crab took her
 
+
+## Wikilinks load test
+
+[[adaptative homeopath]]
+[[leaded beater]]
+[[tetanic angular momentum]]

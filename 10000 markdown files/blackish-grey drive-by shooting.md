@@ -78,3 +78,9 @@ London is very sudden
 his hand in one
 : Hardly knowing what I make SOME change the open it myself about
 
+
+## Wikilinks load test
+
+[[slangy bottlenose dolphin]]
+[[glabrous guessing]]
+[[dominical fast day]]

@@ -74,3 +74,9 @@ In that green stuff.
 Tut tut child was considering in
 : Besides SHE'S she thought decidedly uncivil.
 
+
+## Wikilinks load test
+
+[[butch capital of northern ireland]]
+[[vital copper glance]]
+[[maroon generalization]]

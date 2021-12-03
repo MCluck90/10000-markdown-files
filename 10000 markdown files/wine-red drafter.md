@@ -82,3 +82,11 @@ WHAT.
 Stand up Alice by
 : Are you balanced an hour or drink something splashing about lessons the
 
+
+## Wikilinks load test
+
+[[semi-erect br]]
+[[open-minded quartering]]
+[[tapered dauber]]
+[[rimless shock wave]]
+[[uncolumned majuscule]]

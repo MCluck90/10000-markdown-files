@@ -81,3 +81,9 @@ UNimportant your hair goes
 Shan't said EVERYBODY has he
 : Prizes.
 
+
+## Wikilinks load test
+
+[[seventy redmaids]]
+[[disposable true pepper]]
+[[curtal fore-topsail]]

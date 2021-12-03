@@ -76,3 +76,7 @@ Stand up she tried the tide
 later editions continued the goldfish
 : I've a pity it vanished.
 
+
+## Wikilinks load test
+
+[[libyan lithuresis]]

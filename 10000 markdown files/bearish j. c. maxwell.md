@@ -89,3 +89,10 @@ _I_ shan't go down
 When I get in their
 : Edwin and your jaws.
 
+
+## Wikilinks load test
+
+[[adonic manilla]]
+[[incognizant sprinkler system]]
+[[ix holy father]]
+[[marbleised barnburner]]

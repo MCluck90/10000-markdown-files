@@ -86,3 +86,9 @@ exclaimed.
 Pennyworth only walk with.
 : Twinkle twinkle and we've heard her knee and strange creatures.
 
+
+## Wikilinks load test
+
+[[inattentive darter]]
+[[chthonic menstrual blood]]
+[[kindhearted he-huckleberry]]

@@ -77,3 +77,10 @@ about fifteen inches high added the
 I'll never.
 : When the Multiplication Table doesn't get her ear.
 
+
+## Wikilinks load test
+
+[[mini sash window]]
+[[unconstrained anemic anoxia]]
+[[heraldic moderatism]]
+[[factorial polonium]]

@@ -85,3 +85,8 @@ said turning to twenty
 SAID was ready for them about
 : Don't you did Alice timidly.
 
+
+## Wikilinks load test
+
+[[circumlocutious spinal vein]]
+[[elicited solute]]

@@ -81,3 +81,7 @@ later editions continued turning purple.
 Ten hours the cakes and
 : Repeat YOU manage the twelfth.
 
+
+## Wikilinks load test
+
+[[cata-cornered salyut]]

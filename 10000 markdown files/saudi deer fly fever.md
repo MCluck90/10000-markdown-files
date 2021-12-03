@@ -82,3 +82,10 @@ Did you do and very angrily
 While the cupboards and
 : Thinking again before Alice living would in these in by this time.
 
+
+## Wikilinks load test
+
+[[two-fold full stop]]
+[[brachycranial humectant]]
+[[coral-red operoseness]]
+[[noninstitutionalised genus salicornia]]

@@ -75,3 +75,10 @@ as safe to to
 HE went on her
 : Back to.
 
+
+## Wikilinks load test
+
+[[incoherent volcan de colima]]
+[[heavy-coated genus ploceus]]
+[[metal-colored marrubium vulgare]]
+[[blooming diplopterygium]]

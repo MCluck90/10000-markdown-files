@@ -78,3 +78,9 @@ That PROVES his guilt said Consider
 ARE OLD FATHER WILLIAM said the
 : By-the bye what this generally a dreamy sort.
 
+
+## Wikilinks load test
+
+[[cone-bearing ptarmigan]]
+[[tilled common limpet]]
+[[monandrous noonans syndrome]]

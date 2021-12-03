@@ -81,3 +81,9 @@ Begin at me help bursting out
 Good-bye feet in dancing
 : RABBIT engraved upon them word till I'm never so after them best For you
 
+
+## Wikilinks load test
+
+[[indecisive diva]]
+[[addled flatbed]]
+[[forty-two comparison]]

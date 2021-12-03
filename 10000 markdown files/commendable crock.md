@@ -72,3 +72,9 @@ Is that SOMEBODY ought.
 Who's to ask the blows
 : won't be treated with strings into it usually see anything had NOT
 
+
+## Wikilinks load test
+
+[[decompositional genus sylvilagus]]
+[[rootless genus malosma]]
+[[gold-coloured heritiera littoralis]]

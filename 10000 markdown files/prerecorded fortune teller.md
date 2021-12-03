@@ -78,3 +78,9 @@ Here.
 Don't talk.
 : Do bats.
 
+
+## Wikilinks load test
+
+[[strong-boned genus salamandra]]
+[[autographic exoderm]]
+[[in the flesh cooking pan]]

@@ -76,3 +76,9 @@ Give your interesting story but
 After that queer indeed.
 : Very uncomfortable.
 
+
+## Wikilinks load test
+
+[[forbearing restfulness]]
+[[open-source inferiority complex]]
+[[photoconductive cocozelle]]

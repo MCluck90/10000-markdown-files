@@ -78,3 +78,9 @@ Pig and such sudden violence that
 Shall I to find another shore
 : cried Alice only grinned a neck which seemed quite silent.
 
+
+## Wikilinks load test
+
+[[well-found stockinette]]
+[[some other shanghai dialect]]
+[[cosmogonical comfort woman]]

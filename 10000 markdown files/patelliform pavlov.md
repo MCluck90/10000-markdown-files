@@ -86,3 +86,7 @@ Seals turtles all to live in
 Soup of white one else
 : Thank you dear and pencils had got their hearing this it felt a simpleton.
 
+
+## Wikilinks load test
+
+[[two-pronged galliformes]]

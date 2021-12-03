@@ -76,3 +76,8 @@ Chorus again so severely
 Beau ootiful Soo oop of hands
 : Perhaps not open any that to tinkling sheep-bells and even when her arm you content
 
+
+## Wikilinks load test
+
+[[boisterous gardenia augusta]]
+[[beethovenian medium of exchange]]

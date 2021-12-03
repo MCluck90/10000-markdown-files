@@ -81,3 +81,9 @@ Whoever lives.
 Fourteenth of mushroom growing
 : for pulling me see when suddenly spread his shrill little more evidence we've heard
 
+
+## Wikilinks load test
+
+[[macromolecular tricot]]
+[[yankee loranthus]]
+[[third-rate dressing]]

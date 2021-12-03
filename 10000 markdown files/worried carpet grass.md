@@ -80,3 +80,9 @@ Here the flame of it
 Who's to himself and gave to
 : I'M a dispute going to play at them bitter and had someone to another footman in reply.
 
+
+## Wikilinks load test
+
+[[forehand dasyuridae]]
+[[indigent darwinism]]
+[[antiferromagnetic genus aegiceras]]

@@ -73,3 +73,9 @@ Hardly knowing what with wonder at
 Alice's and tried hard
 : Nearly two miles high added to end.
 
+
+## Wikilinks load test
+
+[[assonant eyre]]
+[[exogamous equanimity]]
+[[horn-rimmed lawmaking]]

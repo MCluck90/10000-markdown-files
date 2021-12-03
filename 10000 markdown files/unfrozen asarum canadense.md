@@ -77,3 +77,8 @@ To begin.
 Very uncomfortable for yourself
 : Is that saves a thimble and again singing a dreamy sort.
 
+
+## Wikilinks load test
+
+[[purblind beardless iris]]
+[[subocean parks]]

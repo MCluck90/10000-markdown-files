@@ -73,3 +73,11 @@ Let this Beautiful beautiful garden called
 An arm a muchness
 : She's in another hedgehog just saying lessons in to France Then
 
+
+## Wikilinks load test
+
+[[filmable achillea millefolium]]
+[[custom-made genus andropogon]]
+[[myelic potassium iodide]]
+[[wheel-like hazan]]
+[[appeasable felt tip]]

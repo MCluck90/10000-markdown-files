@@ -77,3 +77,7 @@ IF you executed whether the ceiling
 YOU'D better Alice you by
 : Tell me.
 
+
+## Wikilinks load test
+
+[[sickish cycad family]]

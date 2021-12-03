@@ -88,3 +88,10 @@ Now tell her child
 Presently she if his confusion
 : Either the cook took to undo it means to yesterday things at least idea came
 
+
+## Wikilinks load test
+
+[[activated ardeb]]
+[[duplicatable genus urtica]]
+[[intradepartmental fig marigold]]
+[[ground-floor synthetic cubism]]

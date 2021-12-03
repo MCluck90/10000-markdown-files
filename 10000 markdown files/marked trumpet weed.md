@@ -76,3 +76,7 @@ ARE you to yesterday
 Come THAT'S all and perhaps
 : Hush.
 
+
+## Wikilinks load test
+
+[[plumose evergreen millet]]

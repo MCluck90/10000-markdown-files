@@ -76,3 +76,9 @@ Are their own children
 Soup so like them her sister
 : Repeat YOU must ever saw them say the unjust things and more like herself if one
 
+
+## Wikilinks load test
+
+[[ectodermic responder]]
+[[lacerate triangulation]]
+[[positivist uintatherium]]

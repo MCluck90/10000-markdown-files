@@ -76,3 +76,10 @@ While she jumped up
 In that there's nothing
 : Explain yourself.
 
+
+## Wikilinks load test
+
+[[consolidative almond willow]]
+[[skimmed trochlear]]
+[[canny time sheet]]
+[[starving gypsum]]

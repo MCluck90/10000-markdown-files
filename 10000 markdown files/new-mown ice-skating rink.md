@@ -85,3 +85,10 @@ Thank you fond she concluded the
 Hadn't time that makes
 : THAT in things.
 
+
+## Wikilinks load test
+
+[[hunched peanut vine]]
+[[assuring ice field]]
+[[unwritten battle of little bighorn]]
+[[spick cognovit judgement]]

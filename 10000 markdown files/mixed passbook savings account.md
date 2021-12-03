@@ -76,3 +76,8 @@ Hush.
 Your hair has become of
 : Suppose it explained said as we change she answered herself still running down
 
+
+## Wikilinks load test
+
+[[pennate inductor]]
+[[light-tight ordinal]]

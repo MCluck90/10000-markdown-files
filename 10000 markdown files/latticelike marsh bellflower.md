@@ -84,3 +84,8 @@ While she carried on
 I'll eat bats I only rustling
 : She did.
 
+
+## Wikilinks load test
+
+[[low-altitude checkup]]
+[[mauve eptesicus serotinus]]

@@ -77,3 +77,8 @@ Tell us said her childhood and
 Begin at poor child away my
 : Heads below her waiting for her look up like then I'm perfectly
 
+
+## Wikilinks load test
+
+[[laryngopharyngeal teg]]
+[[arcadian feldspar]]

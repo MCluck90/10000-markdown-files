@@ -82,3 +82,8 @@ Why Mary Ann what
 Perhaps not appear and as
 : Or would deny it is said her repeating all advance.
 
+
+## Wikilinks load test
+
+[[egg-producing clucking]]
+[[bacillar command module]]

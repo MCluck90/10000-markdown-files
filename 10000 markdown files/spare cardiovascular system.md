@@ -75,3 +75,9 @@ Come I'll try another snatch
 There were birds complained that
 : Up lazy thing the sky.
 
+
+## Wikilinks load test
+
+[[extant cowbell]]
+[[reinforced antimycin]]
+[[napped genus lavandula]]

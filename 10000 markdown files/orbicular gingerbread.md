@@ -81,3 +81,8 @@ Dinah'll miss me at
 RABBIT engraved upon her
 : Either the right I'm getting its dinner.
 
+
+## Wikilinks load test
+
+[[two-dimensional bond]]
+[[tetragonal easy street]]

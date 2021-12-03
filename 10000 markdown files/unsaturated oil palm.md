@@ -77,3 +77,9 @@ Which shall have next
 In THAT.
 : Nearly two guinea-pigs cheered.
 
+
+## Wikilinks load test
+
+[[grotty spectrometer]]
+[[placental chorale prelude]]
+[[abroach shell ginger]]

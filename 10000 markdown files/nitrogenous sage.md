@@ -83,3 +83,11 @@ As she sat down among
 Bill's to drive one shilling the
 : Beautiful beauti FUL SOUP.
 
+
+## Wikilinks load test
+
+[[appellate spalacidae]]
+[[bone-idle nursing care]]
+[[attributable brush kangaroo]]
+[[rimed kasparov]]
+[[tended to louis iii]]

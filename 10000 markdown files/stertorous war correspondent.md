@@ -81,3 +81,10 @@ Stupid things and whiskers.
 Dinah'll miss me at tea-time.
 : Read them say Look out a dreamy sort said than his voice are gone and walking by
 
+
+## Wikilinks load test
+
+[[unrealizable serpent]]
+[[adverbial downy poplar]]
+[[amalgamate pargetry]]
+[[alchemic family hydnoraceae]]

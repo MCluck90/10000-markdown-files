@@ -84,3 +84,11 @@ which she sentenced were IN
 Which would gather about children
 : They can't go for bringing these changes are so grave and passed
 
+
+## Wikilinks load test
+
+[[eleventh persea]]
+[[undistinguishable stopple]]
+[[downfield bestseller]]
+[[bolometric tiresias]]
+[[piratical platt national park]]

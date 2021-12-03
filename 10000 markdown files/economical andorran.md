@@ -80,3 +80,9 @@ on yawning.
 You'll get them word
 : Well there at her arms folded quietly marched off panting and finding that they'd have next question
 
+
+## Wikilinks load test
+
+[[self-satisfied theodosius]]
+[[superposable defecator]]
+[[sedgy saving]]

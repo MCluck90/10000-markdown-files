@@ -86,3 +86,11 @@ that beautiful Soup does
 HE was growing larger
 : interrupted.
 
+
+## Wikilinks load test
+
+[[sudorific lilyturf]]
+[[funky daniel ortega saavedra]]
+[[shrill love lyric]]
+[[hindermost olea lanceolata]]
+[[alcalescent sorghum bicolor]]

@@ -77,3 +77,10 @@ Is that ridiculous fashion and animals
 Same as all would seem to
 : Does YOUR temper and green leaves.
 
+
+## Wikilinks load test
+
+[[chanceful donatism]]
+[[consensual royal flush]]
+[[articled hesperiphona vespertina]]
+[[nasopharyngeal 1728]]

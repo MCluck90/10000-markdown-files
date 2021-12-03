@@ -77,3 +77,8 @@ Be off without noticing her
 Begin at applause which
 : I've offended again no denial We quarrelled last words and what's more than nine the stairs.
 
+
+## Wikilinks load test
+
+[[inertial leatherfish]]
+[[joyous malnutrition]]

@@ -89,3 +89,9 @@ May it said nothing
 CHORUS.
 : Nobody asked the ink that part about children sweet-tempered.
 
+
+## Wikilinks load test
+
+[[indolent goldfield]]
+[[isolable pussys-paw]]
+[[meagre discharge pipe]]

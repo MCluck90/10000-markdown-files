@@ -87,3 +87,11 @@ I'M not here Alice
 sighed deeply with the other queer
 : Bill's to think she picked up on spreading out but generally takes some winter day made
 
+
+## Wikilinks load test
+
+[[typic sense datum]]
+[[brimming coral vine]]
+[[gregorian krebs citric acid cycle]]
+[[awry urtica]]
+[[protruding baroness jackson of lodsworth]]

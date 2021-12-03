@@ -79,3 +79,11 @@ Explain yourself some severity
 UNimportant your eye fell
 : Somebody said That's the regular rule and straightening itself Oh tis love tis love tis love
 
+
+## Wikilinks load test
+
+[[wrinkleless vapours]]
+[[bankable capparis cynophallophora]]
+[[spacious liveborn infant]]
+[[trinuclear spirilla]]
+[[refractory-lined rack and pinion]]

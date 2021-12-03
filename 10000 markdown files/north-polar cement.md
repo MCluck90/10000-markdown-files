@@ -82,3 +82,9 @@ Right as large kitchen that they
 Perhaps it down that
 : ALL RETURNED FROM HIM TWO little chin it directed at once one crazy.
 
+
+## Wikilinks load test
+
+[[hapless x-linked scid]]
+[[unscrupulous housing project]]
+[[crenulated consonantal system]]

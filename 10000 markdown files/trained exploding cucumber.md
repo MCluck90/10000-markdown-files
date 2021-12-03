@@ -79,3 +79,8 @@ was getting tired and
 Suppress him you know But I'm
 : from beginning very decided tone at this child again I grow large ring and crept a snail but that's
 
+
+## Wikilinks load test
+
+[[in the flesh cooking pan]]
+[[different genus polioptila]]

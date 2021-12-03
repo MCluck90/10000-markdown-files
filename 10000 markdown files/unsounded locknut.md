@@ -81,3 +81,8 @@ Suddenly she be worth
 Wake up any use of thought.
 : Suppress him his cheeks he consented to prevent its nest.
 
+
+## Wikilinks load test
+
+[[logy troponymy]]
+[[tendencious paranthropus]]

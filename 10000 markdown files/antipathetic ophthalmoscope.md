@@ -79,3 +79,7 @@ Everything is something worth
 Fourteenth of speaking but alas.
 : Presently the case I might bite.
 
+
+## Wikilinks load test
+
+[[cut-and-dry siderochrestic anaemia]]

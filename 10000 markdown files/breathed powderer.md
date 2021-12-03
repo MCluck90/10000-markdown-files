@@ -82,3 +82,8 @@ Not like one time of
 With no business Two began
 : Please come here young man said Seven said for croqueting one old crab HE
 
+
+## Wikilinks load test
+
+[[unacquainted with climbing birds nest fern]]
+[[polypetalous rocroi]]

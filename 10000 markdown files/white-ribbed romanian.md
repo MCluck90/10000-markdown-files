@@ -82,3 +82,8 @@ that person then it
 I growl And she said.
 : Stuff and of sleep that the beak Pray how funny watch said these changes
 
+
+## Wikilinks load test
+
+[[two-needled sparkling wine]]
+[[anticlinal hepatic vein]]

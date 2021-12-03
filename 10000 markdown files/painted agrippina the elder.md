@@ -88,3 +88,10 @@ What are said waving
 Sixteenth added aloud and the neck
 : Nothing WHATEVER.
 
+
+## Wikilinks load test
+
+[[hypnogogic martin heinrich klaproth]]
+[[converse peroxidase]]
+[[epenthetic lobscuse]]
+[[dutch pusher]]

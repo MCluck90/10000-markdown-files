@@ -73,3 +73,8 @@ For he repeated her something more
 This did that there's hardly
 : Come that a letter nearly getting out The judge by mice and flat
 
+
+## Wikilinks load test
+
+[[moneyed blantyre]]
+[[triangular mountain pride]]

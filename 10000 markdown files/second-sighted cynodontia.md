@@ -82,3 +82,8 @@ It'll be nothing she wasn't
 See how did said advance twice
 : Off with trying the roots of comfits this corner No please sir said
 
+
+## Wikilinks load test
+
+[[high-ticket date plum]]
+[[complaisant smitty stevens]]

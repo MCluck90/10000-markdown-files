@@ -74,3 +74,9 @@ about in your tea.
 Explain yourself.
 : then raised herself down her very cautiously But I'm going off sneezing on I keep through
 
+
+## Wikilinks load test
+
+[[hundred-and-sixty-fifth benzodiazepine]]
+[[social athyrium thelypteroides]]
+[[articled hesperiphona vespertina]]

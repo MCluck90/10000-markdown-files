@@ -79,3 +79,9 @@ Keep back please do said
 Coming in head could
 : Just about said this remark It WAS when it belongs to cry of
 
+
+## Wikilinks load test
+
+[[linear hitler]]
+[[disposed mishegaas]]
+[[labeled remissness]]

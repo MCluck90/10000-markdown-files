@@ -80,3 +80,10 @@ Never heard one the Dormouse
 Where CAN all spoke.
 : Keep back again sitting sad tale.
 
+
+## Wikilinks load test
+
+[[white-pink hardpan]]
+[[alligatored japanese radish]]
+[[myrmecophytic satureja douglasii]]
+[[bulgy soddy]]

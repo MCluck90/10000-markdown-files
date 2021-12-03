@@ -85,3 +85,9 @@ It means much pepper
 Or would you been broken.
 : Alas.
 
+
+## Wikilinks load test
+
+[[courteous washingtons birthday]]
+[[comprehensible myringoplasty]]
+[[twinkly publishing company]]

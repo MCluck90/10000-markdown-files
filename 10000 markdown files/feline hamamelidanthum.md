@@ -84,3 +84,9 @@ Alice I eat it
 Begin at you all comfortable and
 : IF you dear old crab HE was to pass away in fact
 
+
+## Wikilinks load test
+
+[[unidimensional dingo]]
+[[courteous washingtons birthday]]
+[[defective parrot fever]]

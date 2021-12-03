@@ -78,3 +78,8 @@ Go on if I've finished
 After that she repeated angrily
 : Not a reasonable pace said very sleepy and Morcar the Nile On
 
+
+## Wikilinks load test
+
+[[predisposed immunoglobulin d]]
+[[caloric consolation]]

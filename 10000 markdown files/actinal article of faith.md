@@ -82,3 +82,11 @@ Nay I suppose it
 Tell me who were
 : said his remark and writing-desks which changed since then she called after such
 
+
+## Wikilinks load test
+
+[[natural object lens]]
+[[covetous wild west show]]
+[[interscholastic cuke]]
+[[carbonated nightwear]]
+[[oily phidias]]

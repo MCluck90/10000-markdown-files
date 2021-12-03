@@ -86,3 +86,7 @@ William replied eagerly.
 Well I only one side and
 : May it does yer honour but alas.
 
+
+## Wikilinks load test
+
+[[semihard clothespress]]

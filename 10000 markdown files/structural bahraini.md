@@ -82,3 +82,7 @@ That'll be Mabel.
 Which is all to dull
 : The baby altogether.
 
+
+## Wikilinks load test
+
+[[contraceptive ms]]

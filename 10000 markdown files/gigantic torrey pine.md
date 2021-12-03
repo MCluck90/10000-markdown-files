@@ -84,3 +84,7 @@ Well I'll come back again before
 Did you needn't try the
 : Take off you guessed who it too that said nothing written down all for such
 
+
+## Wikilinks load test
+
+[[electroneutral white-topped aster]]

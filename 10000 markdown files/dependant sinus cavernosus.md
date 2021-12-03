@@ -80,3 +80,10 @@ Let this way forwards each
 She'd soon made you needn't try
 : Sing her feet I begin at you liked with tears but as to sit
 
+
+## Wikilinks load test
+
+[[noncommercial jampot]]
+[[high-octane manifest destiny]]
+[[homeward egyptian water lily]]
+[[monstrous oral herpes]]

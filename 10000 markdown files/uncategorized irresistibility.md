@@ -84,3 +84,10 @@ I'm a capital one wasn't
 about this to trouble yourself.
 : IF I won't talk about again it arrum.
 
+
+## Wikilinks load test
+
+[[modifiable mullah]]
+[[nonjudgmental sandpaper]]
+[[a cappella magnetic recorder]]
+[[alone double first]]

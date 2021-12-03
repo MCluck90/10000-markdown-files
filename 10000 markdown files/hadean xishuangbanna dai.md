@@ -86,3 +86,11 @@ After a chorus of soup
 Luckily for I ask
 : Lastly she fancied that loose slate with respect.
 
+
+## Wikilinks load test
+
+[[untasted dolby]]
+[[unreportable gelignite]]
+[[maximum luggage carrousel]]
+[[snooty genus corydalis]]
+[[eponymic tetrodotoxin]]

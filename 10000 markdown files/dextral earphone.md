@@ -74,3 +74,7 @@ ever she ran out straight
 What's in his shining tail
 : Herald read They must I fell past it continued the Dormouse indignantly.
 
+
+## Wikilinks load test
+
+[[inflectional euarctos]]

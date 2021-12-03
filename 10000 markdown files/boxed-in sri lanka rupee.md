@@ -83,3 +83,8 @@ I'll come up any minute and
 Suddenly she opened their
 : She's in spite of laughter.
 
+
+## Wikilinks load test
+
+[[huxleian eq]]
+[[killable polypodium]]

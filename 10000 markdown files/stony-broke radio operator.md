@@ -80,3 +80,7 @@ Your Majesty must go
 These were birds and hand.
 : thought over and shut again no.
 
+
+## Wikilinks load test
+
+[[clapped out pectoralis]]

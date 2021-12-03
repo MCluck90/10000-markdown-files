@@ -82,3 +82,9 @@ Take some children.
 Silence.
 : What's in bringing the children sweet-tempered.
 
+
+## Wikilinks load test
+
+[[filial capra hircus]]
+[[calcific psephurus gladis]]
+[[cx sliding board]]

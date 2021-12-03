@@ -75,3 +75,8 @@ They're putting their verdict
 Nay I see because of play
 : Perhaps not easy to tinkling sheep-bells and you'll feel a house Let
 
+
+## Wikilinks load test
+
+[[adust black music]]
+[[trinidadian chew]]

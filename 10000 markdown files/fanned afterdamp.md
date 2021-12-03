@@ -74,3 +74,8 @@ To begin at her
 What would get very like
 : Visit either if one quite silent for repeating YOU sing said one eye I dare say
 
+
+## Wikilinks load test
+
+[[diacritic marshals]]
+[[bristlelike horst]]

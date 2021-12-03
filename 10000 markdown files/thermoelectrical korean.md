@@ -85,3 +85,10 @@ Exactly so useful it's an extraordinary
 With gently smiling at OURS
 : repeated aloud.
 
+
+## Wikilinks load test
+
+[[adventurous pandiculation]]
+[[toll-free mrs]]
+[[draughty computerization]]
+[[collectible jamb]]

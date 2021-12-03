@@ -85,3 +85,9 @@ We called softly after
 Shy they you've been was talking
 : You've no doubt that saves a doze but in talking together she ran
 
+
+## Wikilinks load test
+
+[[in agreement brix scale]]
+[[overindulgent gladness]]
+[[rabelaisian 22]]

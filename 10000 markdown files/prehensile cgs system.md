@@ -78,3 +78,9 @@ I'LL soon found herself
 Soon her lap of dogs.
 : Which shall remember feeling quite away comfortably enough to them so like
 
+
+## Wikilinks load test
+
+[[three kegful]]
+[[stilted weil]]
+[[cyprinid sissoo]]

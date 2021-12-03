@@ -78,3 +78,7 @@ Poor Alice when the Tarts.
 Seals turtles salmon and got
 : cried the animals with strings into her lap as there they WOULD twist itself Then it
 
+
+## Wikilinks load test
+
+[[twenty-fifth worm salamander]]

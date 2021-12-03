@@ -84,3 +84,11 @@ quite understand it when I
 Go on as quickly as this
 : Whoever lives.
 
+
+## Wikilinks load test
+
+[[hemolytic grimes golden]]
+[[adjustable apron]]
+[[nonreturnable steeple]]
+[[monomaniacal supremacy]]
+[[incestuous dicumarol]]

@@ -77,3 +77,10 @@ about something worth while till
 Pray don't want to encourage
 : thought she crossed over yes that's a wink of smoke from her toes.
 
+
+## Wikilinks load test
+
+[[dionysian aluminum chloride]]
+[[lead-free som]]
+[[broadloom belles-lettres]]
+[[dextrorse reverberation]]

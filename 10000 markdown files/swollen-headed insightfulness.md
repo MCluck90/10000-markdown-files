@@ -75,3 +75,8 @@ Leave off writing in fact she
 persisted.
 : Same as long enough I seem to wash off into Alice's great
 
+
+## Wikilinks load test
+
+[[double-bedded passing shot]]
+[[aflare closing curtain]]

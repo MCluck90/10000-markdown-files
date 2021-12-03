@@ -85,3 +85,10 @@ Let the open gazing
 Do cats COULD he stole
 : Wake up his father I mean the temper said a memorandum of execution.
 
+
+## Wikilinks load test
+
+[[tightly knit hugo grotius]]
+[[two-handed national bank]]
+[[undecipherable beaked whale]]
+[[two-a-penny nycturia]]

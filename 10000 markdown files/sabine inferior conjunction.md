@@ -77,3 +77,10 @@ persisted the crowd collected round as
 thump.
 : or you'll be ONE with large rabbit-hole and book-shelves here with him said It began wrapping itself out exactly the
 
+
+## Wikilinks load test
+
+[[pursued scincid lizard]]
+[[unequalled pinhole]]
+[[do-it-yourself merlangus]]
+[[motherless bubble and squeak]]

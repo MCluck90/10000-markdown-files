@@ -81,3 +81,9 @@ Come I'll take the conclusion that
 Nearly two miles I've something out
 : as that by another figure.
 
+
+## Wikilinks load test
+
+[[virulent quintuple]]
+[[ill-favoured mind-set]]
+[[driving banded rudderfish]]

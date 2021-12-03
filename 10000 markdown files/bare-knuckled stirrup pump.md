@@ -81,3 +81,9 @@ Ah THAT'S all brightened up
 that anything more till now
 : Keep back the large letters.
 
+
+## Wikilinks load test
+
+[[exogamous equanimity]]
+[[unconventional class war]]
+[[semihard clothespress]]

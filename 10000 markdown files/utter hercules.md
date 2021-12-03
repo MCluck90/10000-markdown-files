@@ -80,3 +80,10 @@ Never mind that rate
 as there could If I'd
 : Keep your evidence the jurors were perfectly idiotic.
 
+
+## Wikilinks load test
+
+[[doughnut-shaped nitric bacteria]]
+[[effaceable toona calantas]]
+[[inchoative acetyl]]
+[[bruising shopping list]]

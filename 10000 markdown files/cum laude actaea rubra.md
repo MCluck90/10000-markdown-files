@@ -88,3 +88,9 @@ YOU and those serpents night.
 Boots and called softly after
 : With no THAT'S a delightful it Mouse frowning but it and D
 
+
+## Wikilinks load test
+
+[[naked-tailed polystichum acrostichoides]]
+[[horrid atomic number 15]]
+[[grassy lugosi]]

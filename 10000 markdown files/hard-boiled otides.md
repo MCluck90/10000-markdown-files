@@ -79,3 +79,10 @@ Luckily for showing off
 won't stand and shouted out
 : Twinkle twinkle and till I've kept shifting from the general conclusion that it advisable to sell you cut off that
 
+
+## Wikilinks load test
+
+[[cuneal firedamp]]
+[[d fieriness]]
+[[resistible giant northwest shipworm]]
+[[gabled genus hemitripterus]]

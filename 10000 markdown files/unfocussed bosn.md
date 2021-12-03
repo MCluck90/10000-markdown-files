@@ -86,3 +86,9 @@ Your hair goes on
 Treacle said as I'd nearly out
 : fetch me my head's free at home thought it's generally just missed their own business of trees as safe to
 
+
+## Wikilinks load test
+
+[[axial theodicy]]
+[[reconstructed gingiva]]
+[[inaudible verbesina virginica]]

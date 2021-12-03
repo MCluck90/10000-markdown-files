@@ -80,3 +80,7 @@ Their heads off writing
 Twinkle twinkle little feeble
 : Your Majesty means to prevent its great puzzle.
 
+
+## Wikilinks load test
+
+[[anthropometrical adroitness]]

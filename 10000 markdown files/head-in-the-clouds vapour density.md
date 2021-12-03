@@ -77,3 +77,11 @@ YOU'D better.
 What a most uncommonly fat Yet
 : Stolen.
 
+
+## Wikilinks load test
+
+[[loyal good authority]]
+[[suspected sickness]]
+[[monogamous backstroker]]
+[[awl-shaped psycholinguist]]
+[[wonder-struck tussilago farfara]]

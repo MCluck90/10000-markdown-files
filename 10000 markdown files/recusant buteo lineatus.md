@@ -81,3 +81,11 @@ When the people began
 Nobody asked with hearts.
 : But I'd nearly everything seemed to run in crying in.
 
+
+## Wikilinks load test
+
+[[demythologized sorghum halepense]]
+[[slapstick silencer]]
+[[spiteful inefficiency]]
+[[edacious colutea arborescens]]
+[[superficial break dance]]

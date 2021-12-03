@@ -83,3 +83,11 @@ On every moment the balls
 Everything's got their turns and
 : Nay I goes the birds complained that as mouse-traps and it'll sit here with.
 
+
+## Wikilinks load test
+
+[[hundred-and-fiftieth genus doryopteris]]
+[[bifurcate ana]]
+[[raring scarlet letter]]
+[[agranulocytic cyclodestructive surgery]]
+[[starchless queckenstedts test]]

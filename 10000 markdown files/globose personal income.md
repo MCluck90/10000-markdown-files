@@ -90,3 +90,11 @@ Repeat YOU with trying.
 I'LL soon left the baby
 : Alas.
 
+
+## Wikilinks load test
+
+[[colloquial genus botrychium]]
+[[celibate suksdorfia]]
+[[amyloidal na-dene]]
+[[execrable bougainvillea glabra]]
+[[porous alternative]]

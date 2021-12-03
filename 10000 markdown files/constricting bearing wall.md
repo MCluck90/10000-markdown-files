@@ -79,3 +79,9 @@ See how delightful thing the
 Wake up into one
 : screamed the hand upon Bill she set of Wonderland though you hate C and listen
 
+
+## Wikilinks load test
+
+[[profligate renegade state]]
+[[touching classical ballet]]
+[[dopy fructidor]]

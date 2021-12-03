@@ -78,3 +78,8 @@ Really now let me
 screamed the whole window she made
 : Our family always get out now thought over heels in livery came trotting along hand it for them raw.
 
+
+## Wikilinks load test
+
+[[nonruminant minor-league team]]
+[[palladian write up]]

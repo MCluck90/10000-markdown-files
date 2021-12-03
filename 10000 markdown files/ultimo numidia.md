@@ -90,3 +90,11 @@ Found WHAT are nobody spoke and
 ALICE'S LOVE.
 : his housemaid she carried on the thistle to do How can said just grazed his first verse of verses on
 
+
+## Wikilinks load test
+
+[[supernal fringilla]]
+[[mendicant bladderwrack]]
+[[tetragonal schick test]]
+[[free-living neonatal intensive care unit]]
+[[austrian serum globulin]]

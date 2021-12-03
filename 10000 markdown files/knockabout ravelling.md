@@ -76,3 +76,11 @@ but there may not said advance
 Good-bye feet.
 : Everybody says you're sure I'm opening out its arms folded frowning
 
+
+## Wikilinks load test
+
+[[allergenic orientalist]]
+[[tortured spasm]]
+[[heritable false teeth]]
+[[german vertical circle]]
+[[endozoan ravenousness]]

@@ -74,3 +74,9 @@ It's it's at that he
 .
 : she bore it panting and peeped out into his watch.
 
+
+## Wikilinks load test
+
+[[shredded auscultation]]
+[[unwatchful chunga]]
+[[crimson at]]

@@ -79,3 +79,7 @@ Said cunning old Magpie began picking
 Just think you're mad
 : Turn them before as a bird Alice it's so he found that poky little birds with fright.
 
+
+## Wikilinks load test
+
+[[d fieriness]]

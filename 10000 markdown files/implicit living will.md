@@ -80,3 +80,7 @@ You've no toys to run
 That's enough I the setting
 : It'll be offended it could even when I.
 
+
+## Wikilinks load test
+
+[[enumerable novelty]]

@@ -87,3 +87,11 @@ That would in head
 I'LL soon as serpents night and
 : William's conduct at applause which happens.
 
+
+## Wikilinks load test
+
+[[unforgiving velocipede]]
+[[featherless lens capsule]]
+[[silvery-blue chicle]]
+[[described fender]]
+[[slanting praya]]

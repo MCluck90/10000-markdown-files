@@ -91,3 +91,7 @@ I believe you see
 cried so you what
 : While the pepper-box in but as Alice felt dreadfully fond she set to like telescopes this here to doubt that
 
+
+## Wikilinks load test
+
+[[aciduric stropharia rugoso-annulata]]

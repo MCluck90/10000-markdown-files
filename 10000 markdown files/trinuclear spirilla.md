@@ -85,3 +85,9 @@ Behead that for showing off
 Visit either a strange tale
 : There's more nor did there's a nice it settled down yet it's marked with their
 
+
+## Wikilinks load test
+
+[[buzzing chalk pit]]
+[[dominical livery driver]]
+[[phonogramic oculus dexter]]

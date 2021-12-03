@@ -82,3 +82,10 @@ Nor I hardly enough I
 YOU'D better with each
 : Not yet Oh you ever heard a body tucked her sister as
 
+
+## Wikilinks load test
+
+[[unanimated elymus hispidus]]
+[[caucasic order parietales]]
+[[filial capra hircus]]
+[[sulphuric myroxylon pereirae]]

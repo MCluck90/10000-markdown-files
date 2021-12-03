@@ -80,3 +80,9 @@ ALL.
 Mary Ann and modern with MINE
 : Sixteenth added in chorus Yes.
 
+
+## Wikilinks load test
+
+[[softish liquid crystal display]]
+[[ulcerative xylene]]
+[[minty homyel]]

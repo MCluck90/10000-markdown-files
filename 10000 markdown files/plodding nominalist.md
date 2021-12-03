@@ -87,3 +87,11 @@ Everybody says it's pleased
 Have some tea when she
 : Beautiful beautiful Soup.
 
+
+## Wikilinks load test
+
+[[half traffic pattern]]
+[[silky-leafed incontinency]]
+[[unsought whitecap]]
+[[unsurprising secretin]]
+[[associational mild silver protein]]

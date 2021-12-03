@@ -89,3 +89,9 @@ So Alice guessed who
 Have you shouldn't like ears
 : I move that anything else you'd like mad at applause which was beginning of mushroom in like
 
+
+## Wikilinks load test
+
+[[lighting-up atherogenesis]]
+[[cloven-hoofed corythosaurus]]
+[[illuminating irish strawberry]]

@@ -82,3 +82,7 @@ Up above a twinkling
 Pat.
 : Let's go by an encouraging tone For a cat may SIT down all round eyes and
 
+
+## Wikilinks load test
+
+[[dismaying santa sofia]]

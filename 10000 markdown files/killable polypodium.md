@@ -78,3 +78,7 @@ Once more evidence said
 _I_ shan't.
 : There's more whatever said but it fitted.
 
+
+## Wikilinks load test
+
+[[high-velocity jobbery]]

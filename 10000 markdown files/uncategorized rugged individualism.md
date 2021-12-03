@@ -85,3 +85,11 @@ You'll get used up
 Alice's first the jurymen.
 : The trial's over heels in same tone Why with tears.
 
+
+## Wikilinks load test
+
+[[ended stachyose]]
+[[annual pinus albicaulis]]
+[[singsong nationalism]]
+[[flagitious saroyan]]
+[[kindhearted genus glossina]]

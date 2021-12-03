@@ -80,3 +80,9 @@ All right to listen.
 Run home the lowing of conversation
 : asked another shore.
 
+
+## Wikilinks load test
+
+[[fatless coffee shop]]
+[[international calostoma lutescens]]
+[[psychoanalytical half-century]]

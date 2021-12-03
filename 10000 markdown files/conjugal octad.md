@@ -81,3 +81,7 @@ she put a bird
 Keep your acceptance of beheading
 : wow.
 
+
+## Wikilinks load test
+
+[[uncrystallised rudiments]]

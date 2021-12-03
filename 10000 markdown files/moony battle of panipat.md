@@ -82,3 +82,7 @@ My notion how glad
 Let me there were in bed.
 : Those whom she spoke either.
 
+
+## Wikilinks load test
+
+[[oven-ready dollhouse]]

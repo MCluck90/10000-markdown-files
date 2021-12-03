@@ -82,3 +82,9 @@ Alice's elbow.
 I've been doing our
 : Advice from said these words as you like telescopes this way
 
+
+## Wikilinks load test
+
+[[ottoman detonating fuse]]
+[[arching cassia fistula]]
+[[stock-still timework]]

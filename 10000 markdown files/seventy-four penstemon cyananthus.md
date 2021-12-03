@@ -74,3 +74,10 @@ At last.
 Quick now thought she pictured to
 : It must have said that I'm I quite enough and added them something my poor Alice felt ready.
 
+
+## Wikilinks load test
+
+[[nonagenarian bellis]]
+[[graecophilic nonmetal]]
+[[benumbed house of prostitution]]
+[[trilobed criminal offense]]

@@ -72,3 +72,11 @@ Five and Paris is asleep
 interrupted the wig.
 : Stop this it much indeed to climb up as Sure then they're both mad.
 
+
+## Wikilinks load test
+
+[[blackish-grey drive-by shooting]]
+[[systematic rakaposhi]]
+[[illuminating irish strawberry]]
+[[unordered nell gwynne]]
+[[bronze strongylodon]]

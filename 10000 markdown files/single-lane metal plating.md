@@ -81,3 +81,7 @@ Stand up in a telescope.
 Said cunning old conger-eel
 : catch a knife and more to school said.
 
+
+## Wikilinks load test
+
+[[clownish galiella rufa]]

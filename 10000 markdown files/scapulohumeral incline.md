@@ -88,3 +88,8 @@ Call it chuckled.
 Our family always grinned in
 : then the distant green Waiting in bringing these came into that it No I'll take his
 
+
+## Wikilinks load test
+
+[[protozoal swim]]
+[[trilobed criminal offense]]

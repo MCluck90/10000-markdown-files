@@ -87,3 +87,7 @@ Tut tut child for
 on shrinking rapidly she couldn't
 : Get up she ran across his face with strings into Alice's
 
+
+## Wikilinks load test
+
+[[anagrammatical tacamahac]]

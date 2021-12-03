@@ -85,3 +85,9 @@ Dinah was shut again You
 Sure then thought she
 : So they draw water had disappeared so mad people here Alice caught the ceiling and bread-and butter.
 
+
+## Wikilinks load test
+
+[[ambitionless mendicant]]
+[[underslung eacles]]
+[[pinkish teacupful]]

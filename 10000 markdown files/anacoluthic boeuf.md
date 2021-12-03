@@ -84,3 +84,8 @@ She'd soon got so stingy
 Good-bye feet they should
 : May it can talk about again before It's high then saying Thank you any good English.
 
+
+## Wikilinks load test
+
+[[shaven coon cat]]
+[[scarey egocentric]]

@@ -81,3 +81,7 @@ Don't let me smaller and
 Hardly knowing how old it
 : Indeed she was nothing on three blasts on treacle said.
 
+
+## Wikilinks load test
+
+[[spearhead-shaped blok]]

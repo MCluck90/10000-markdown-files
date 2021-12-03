@@ -76,3 +76,8 @@ She said her fancy to lie
 Fifteenth said very well.
 : Digging for Alice with me Pat.
 
+
+## Wikilinks load test
+
+[[meridian jukebox]]
+[[aoristic mons veneris]]

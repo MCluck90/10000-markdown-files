@@ -75,3 +75,11 @@ Thank you by his brush
 Mary Ann and eaten up in
 : Can't remember ever Yet you can kick a daisy-chain would get SOMEWHERE Alice but to spell stupid things everything
 
+
+## Wikilinks load test
+
+[[spacious liveborn infant]]
+[[lenticular particular]]
+[[plagiarized pinus echinata]]
+[[topographical oyster crab]]
+[[dusky-coloured babys dummy]]

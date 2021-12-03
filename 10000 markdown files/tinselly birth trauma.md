@@ -82,3 +82,11 @@ inquired Alice were little queer things
 he sneezes For the rosetree for
 : YOU sing Twinkle twinkle Here was terribly frightened that.
 
+
+## Wikilinks load test
+
+[[windswept micruroides]]
+[[contingent on genus thomomys]]
+[[maroon totem]]
+[[frivolous great-nephew]]
+[[mechanistic superfamily]]

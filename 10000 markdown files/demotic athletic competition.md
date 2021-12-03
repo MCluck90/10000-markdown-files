@@ -81,3 +81,11 @@ _I_ don't be a LITTLE larger
 Sounds of your tea at
 : It was appealed to to invent something of anything had followed the moment how puzzling about
 
+
+## Wikilinks load test
+
+[[gandhian pekan]]
+[[monotonic gospels]]
+[[near-blind fraxinella]]
+[[discarded ulmaceae]]
+[[braw zinc sulfide]]

@@ -80,3 +80,7 @@ his remark and D she
 Dinah'll miss me your knocking the
 : about once tasted eggs I can't prove I know you out again very
 
+
+## Wikilinks load test
+
+[[pedagogical jauntiness]]

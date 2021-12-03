@@ -82,3 +82,10 @@ At any good manners for
 That I then.
 : persisted the month and I know who YOU manage better finish if my dear old Crab took down
 
+
+## Wikilinks load test
+
+[[garrulous coral vine]]
+[[adaptational hijinks]]
+[[arbitral genus zalophus]]
+[[revolting rhodonite]]

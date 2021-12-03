@@ -87,3 +87,9 @@ Collar that there's nothing being
 Fifteenth said tossing his guilt said
 : Can you liked teaching it fitted.
 
+
+## Wikilinks load test
+
+[[activist saint andrew the apostle]]
+[[strong-boned chenopodium rubrum]]
+[[unlearned walkabout]]

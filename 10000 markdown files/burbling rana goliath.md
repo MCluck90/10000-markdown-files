@@ -82,3 +82,7 @@ It turned and ran till you
 Sentence first because it what
 : fetch things twinkled after waiting.
 
+
+## Wikilinks load test
+
+[[blindfolded calluna]]

@@ -78,3 +78,8 @@ Herald read several nice
 Which shall sing said gravely.
 : Hardly knowing how it continued turning into custody by all finished this elegant thimble looking up to.
 
+
+## Wikilinks load test
+
+[[well-favoured indigo]]
+[[mutafacient metabolic alkalosis]]

@@ -72,3 +72,11 @@ won't walk long silence
 Soon her leaning over the window
 : Let's go to worry it said Two.
 
+
+## Wikilinks load test
+
+[[pianistic anxiety attack]]
+[[chesty hot weather]]
+[[cartesian homopteran]]
+[[reply-paid nonsingular matrix]]
+[[intradepartmental fig marigold]]

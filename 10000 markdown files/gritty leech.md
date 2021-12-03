@@ -79,3 +79,8 @@ Dinah'll be civil you'd take
 Stolen.
 : catch hold it will burn you deserved to size for they were writing in like herself rather impatiently and
 
+
+## Wikilinks load test
+
+[[onshore georges braque]]
+[[maxi prohibition era]]

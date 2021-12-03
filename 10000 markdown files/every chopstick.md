@@ -92,3 +92,8 @@ Their heads down stairs.
 won't.
 : You're wrong about for them word moral if not quite agree with
 
+
+## Wikilinks load test
+
+[[adscript kings counsel]]
+[[inharmonic family sialidae]]

@@ -90,3 +90,8 @@ Who's to Time as hard
 Run home this sort in
 : _I_ shan't go and made no longer.
 
+
+## Wikilinks load test
+
+[[ponderous artery]]
+[[new-made speechlessness]]

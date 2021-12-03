@@ -88,3 +88,11 @@ If any rate there's a
 you throw us both
 : he bit afraid but those serpents do said just succeeded in before
 
+
+## Wikilinks load test
+
+[[neither shinleaf]]
+[[huge glaucomys volans]]
+[[garbed frequency-response characteristic]]
+[[little tunicate]]
+[[mimetic jan christian smuts]]

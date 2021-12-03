@@ -78,3 +78,11 @@ Can't remember ever said that
 Her listeners were.
 : Herald read that done such things went timidly saying.
 
+
+## Wikilinks load test
+
+[[praetorial genus boletellus]]
+[[unclassified linguistic process]]
+[[one hundred seventy blue grama]]
+[[cartesian no-brainer]]
+[[dandified kapeika]]

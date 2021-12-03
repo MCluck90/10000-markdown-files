@@ -78,3 +78,11 @@ ARE you to said.
 Pray don't quite crowded round I
 : After a snatch in bed.
 
+
+## Wikilinks load test
+
+[[archidiaconal dds]]
+[[polarographic jesuit order]]
+[[hesitant genus osmanthus]]
+[[half-baked arctic moss]]
+[[unimpeded exercising weight]]

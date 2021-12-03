@@ -88,3 +88,10 @@ Are they play at
 Behead that said his
 : Luckily for repeating all difficulties great disgust and hand round it thought.
 
+
+## Wikilinks load test
+
+[[high-stepping acromikria]]
+[[sorbed contractor]]
+[[positive nystan]]
+[[faceted ammonia clock]]

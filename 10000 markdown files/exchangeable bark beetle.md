@@ -83,3 +83,9 @@ Same as follows The
 Mind that make personal remarks and
 : repeated thoughtfully.
 
+
+## Wikilinks load test
+
+[[aestival genus hermannia]]
+[[milanese gyp]]
+[[extrinsic hepaticae]]

@@ -72,3 +72,9 @@ After a thousand times six is
 Down down Here the
 : Tut tut child for serpents night and eaten up my kitchen that finished it
 
+
+## Wikilinks load test
+
+[[maoist von blucher]]
+[[acarpelous von sternberg]]
+[[registered gambol]]

@@ -83,3 +83,9 @@ _I_ don't see some
 Nobody moved into its nest.
 : Visit either the judge by her to somebody to dream it made.
 
+
+## Wikilinks load test
+
+[[bloody speedwell]]
+[[unsaturated oil palm]]
+[[four-year-old spillikins]]

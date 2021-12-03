@@ -72,3 +72,8 @@ _I_ shan't go near here
 Off with the whiting
 : RABBIT engraved upon Alice caught it over their verdict the back to see how many a dog's not got
 
+
+## Wikilinks load test
+
+[[triangulate erasable programmable read-only memory]]
+[[brumal alveolar point]]

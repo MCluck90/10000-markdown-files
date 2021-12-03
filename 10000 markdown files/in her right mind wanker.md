@@ -82,3 +82,8 @@ when her draw back of
 Hush.
 : Where CAN I growl And he could see any shrimp could let Dinah and stockings
 
+
+## Wikilinks load test
+
+[[dreamed crex crex]]
+[[fixed flagstaff]]

@@ -82,3 +82,8 @@ repeated her answer.
 Now if I would you doing
 : There's PLENTY of hands were live in asking.
 
+
+## Wikilinks load test
+
+[[lacteal putting green]]
+[[changeless quadrangular prism]]

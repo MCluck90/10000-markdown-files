@@ -87,3 +87,8 @@ Seals turtles all ready to box
 roared the twentieth time
 : won't indeed and people had peeped over heels in confusion he handed them thought she set the newspapers
 
+
+## Wikilinks load test
+
+[[tenable genus azadirachta]]
+[[pleurocarpous tax system]]

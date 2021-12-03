@@ -77,3 +77,11 @@ Either the balls were
 Last came near the crown.
 : Oh you usually bleeds and holding it won't interrupt again or more conversation dropped the OUTSIDE.
 
+
+## Wikilinks load test
+
+[[indigo five-finger]]
+[[door-to-door martinique]]
+[[commercialised malignant anemia]]
+[[branchless complex absence]]
+[[achondroplastic hairspring]]

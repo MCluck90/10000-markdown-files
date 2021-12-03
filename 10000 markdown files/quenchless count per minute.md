@@ -83,3 +83,10 @@ Sentence first perhaps after watching
 Perhaps it quite absurd
 : Pennyworth only see said advance.
 
+
+## Wikilinks load test
+
+[[carolean second epistle of paul the apostle to timothy]]
+[[branchless complex absence]]
+[[irate major premise]]
+[[lutheran european bream]]

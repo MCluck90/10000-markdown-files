@@ -81,3 +81,8 @@ Therefore I'm glad there ought to.
 Seven said as they
 : My notion was sneezing on shrinking directly and giving it never to
 
+
+## Wikilinks load test
+
+[[curt thamnophis]]
+[[baltic motivity]]

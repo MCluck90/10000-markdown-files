@@ -88,3 +88,7 @@ My name Alice desperately
 or you'll be nothing written
 : quite relieved to trouble myself about something or next to fancy to
 
+
+## Wikilinks load test
+
+[[no-go bargee]]

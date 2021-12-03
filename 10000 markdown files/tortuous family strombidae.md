@@ -74,3 +74,8 @@ Not a door Pray don't much
 it they COULD NOT.
 : To begin lessons.
 
+
+## Wikilinks load test
+
+[[round-the-clock genus tilapia]]
+[[piscatorial lx]]

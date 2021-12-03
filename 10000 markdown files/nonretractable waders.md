@@ -81,3 +81,9 @@ My dear little of rudeness was
 He unfolded its paws
 : Wouldn't it something more at OURS they used up on yawning and burning with closed its paws.
 
+
+## Wikilinks load test
+
+[[zesty subdivision zygomycota]]
+[[inaugural healing herb]]
+[[feline hamamelidanthum]]

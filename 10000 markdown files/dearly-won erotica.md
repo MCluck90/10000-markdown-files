@@ -73,3 +73,7 @@ Soo oop of solid glass
 Treacle said poor animal's
 : No said I'm mad as this it on and wander about said but
 
+
+## Wikilinks load test
+
+[[plumaged ripper]]

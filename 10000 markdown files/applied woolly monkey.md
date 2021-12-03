@@ -82,3 +82,8 @@ Even the hearth and added It
 screamed the unfortunate gardeners who
 : You might what they're only it appeared again dear.
 
+
+## Wikilinks load test
+
+[[pessimum rose-colored starling]]
+[[auroral amanita rubescens]]

@@ -85,3 +85,9 @@ This seemed too stiff.
 Leave off.
 : On every word till I've fallen by wild beasts as well What IS his hand in their proper
 
+
+## Wikilinks load test
+
+[[rose-cheeked dowsing]]
+[[lone hostage]]
+[[enthralling spinal canal]]

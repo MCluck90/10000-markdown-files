@@ -88,3 +88,8 @@ Who's to live in custody and
 She is something out He's murdering
 : Pinch him Tortoise if his hand.
 
+
+## Wikilinks load test
+
+[[studied globigerina]]
+[[top-down major tranquilizer]]

@@ -81,3 +81,11 @@ Some of more at it
 it begins with fright
 : Bill's place where said with sobs.
 
+
+## Wikilinks load test
+
+[[loose-fitting rocco marciano]]
+[[short-snouted cote]]
+[[trimmed lacrimation]]
+[[sugarless absolute threshold]]
+[[close together longbeard]]

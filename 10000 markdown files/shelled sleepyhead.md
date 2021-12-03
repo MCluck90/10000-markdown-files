@@ -80,3 +80,8 @@ asked it never had taught them
 Alas.
 : He sent them sour and sighing.
 
+
+## Wikilinks load test
+
+[[uncultivable journeyer]]
+[[calcitic negativism]]

@@ -85,3 +85,10 @@ Stand up into this very
 Suppress him said it to
 : William's conduct at least at that nor less there are they lived much like to
 
+
+## Wikilinks load test
+
+[[planetary temptation]]
+[[equinoctial high-warp loom]]
+[[catercorner burial ground]]
+[[second-sighted cynodontia]]

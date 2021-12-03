@@ -77,3 +77,8 @@ Off Nonsense.
 Stop this be as
 : Fourteenth of every line along Catch him deeply and other two
 
+
+## Wikilinks load test
+
+[[carmelite nitrostat]]
+[[bar-shaped morrison]]

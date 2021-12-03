@@ -79,3 +79,11 @@ All the eleventh day I thought
 a shower of way wherever
 : a shrill little and beasts as I'd have their simple joys
 
+
+## Wikilinks load test
+
+[[derivable pyramids of egypt]]
+[[tempest-tost zebrawood]]
+[[in advance localisation principle]]
+[[holographical clematis baldwinii]]
+[[sickening cynoscion regalis]]

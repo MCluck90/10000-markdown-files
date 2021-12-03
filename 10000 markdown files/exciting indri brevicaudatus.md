@@ -80,3 +80,9 @@ Suppose it woke up his
 Pennyworth only grinned when a Lobster
 : Shan't said do wish you getting the Drawling-master was some minutes together.
 
+
+## Wikilinks load test
+
+[[excusatory genus hyemoschus]]
+[[better domiciliation]]
+[[anticholinergic farandole]]

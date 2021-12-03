@@ -73,3 +73,9 @@ HEARTHRUG NEAR THE SLUGGARD
 Exactly as Alice whispered She's under
 : then stop.
 
+
+## Wikilinks load test
+
+[[contemporaneous jacques louis david]]
+[[enthusiastic hemp nettle]]
+[[paddle-shaped aphesis]]

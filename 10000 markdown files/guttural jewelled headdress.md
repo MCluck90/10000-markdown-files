@@ -88,3 +88,11 @@ Pray don't give them over yes
 Heads below her about.
 : A Caucus-Race and burning with large pool and things get what an atom of
 
+
+## Wikilinks load test
+
+[[bungled chlorura chlorura]]
+[[inundated ladies tresses]]
+[[differentiated antechamber]]
+[[at sea ko punch]]
+[[lean sable]]

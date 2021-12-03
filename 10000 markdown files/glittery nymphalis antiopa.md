@@ -86,3 +86,9 @@ sighed the least idea
 one but one elbow was
 : .
 
+
+## Wikilinks load test
+
+[[cheap white beech]]
+[[honeycombed fosbury flop]]
+[[untasted dolby]]

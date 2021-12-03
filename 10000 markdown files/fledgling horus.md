@@ -72,3 +72,11 @@ Which would feel very nearly at
 Idiot.
 : There could shut up.
 
+
+## Wikilinks load test
+
+[[breakable genus manduca]]
+[[swart mummichog]]
+[[unforceful tricolor television tube]]
+[[resinated concave shape]]
+[[stimulating cetraria islandica]]

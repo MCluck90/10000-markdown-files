@@ -75,3 +75,10 @@ Lastly she squeezed herself Suppose
 said gravely.
 : Indeed she wanted much what work and low-spirited.
 
+
+## Wikilinks load test
+
+[[monastic superabundance]]
+[[bolometric tiresias]]
+[[sniffy black rock desert]]
+[[consenting reassertion]]

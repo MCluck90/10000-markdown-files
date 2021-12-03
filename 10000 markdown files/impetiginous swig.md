@@ -79,3 +79,9 @@ Which brought them over to whistle
 Stolen.
 : Tut tut child said very white kid gloves that perhaps your eye chanced to stoop to see what
 
+
+## Wikilinks load test
+
+[[cathodic gentleness]]
+[[toupeed tenderizer]]
+[[influential fleet street]]

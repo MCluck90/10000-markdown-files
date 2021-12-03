@@ -74,3 +74,8 @@ Off Nonsense.
 Found WHAT.
 : May it arrum.
 
+
+## Wikilinks load test
+
+[[susceptible scallion]]
+[[unhealed eleventh hour]]

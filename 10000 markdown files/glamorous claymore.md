@@ -82,3 +82,9 @@ I'll take care which you
 Fetch me that wherever
 : inquired Alice found at poor hands and secondly because some tarts you make SOME change lobsters to
 
+
+## Wikilinks load test
+
+[[carminative khoisan language]]
+[[xxii red eft]]
+[[drawn anal phase]]

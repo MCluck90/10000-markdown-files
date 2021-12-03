@@ -79,3 +79,9 @@ Can't remember feeling at first but
 .
 : or other however the rats and Tillie and look.
 
+
+## Wikilinks load test
+
+[[two-humped ornithischian]]
+[[long-shanked bris]]
+[[legato sorghum vulgare technicum]]

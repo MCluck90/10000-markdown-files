@@ -79,3 +79,8 @@ Stand up I'll put down looking
 Still she gave me the large
 : I'll fetch it continued turning into that you're talking such dainties would gather
 
+
+## Wikilinks load test
+
+[[xcl greeting]]
+[[foliate case in point]]

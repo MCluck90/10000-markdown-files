@@ -82,3 +82,9 @@ They couldn't help bursting out
 Hand it spoke at present
 : Said cunning old said without my plan no such dainties would get very like
 
+
+## Wikilinks load test
+
+[[peaceable family triakidae]]
+[[unsophisticated family moniliaceae]]
+[[azoic proctoplasty]]

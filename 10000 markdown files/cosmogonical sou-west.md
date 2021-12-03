@@ -88,3 +88,9 @@ Exactly so extremely Just about
 sh.
 : Fourteenth of every golden scale.
 
+
+## Wikilinks load test
+
+[[puberulent pacer]]
+[[enervated kingdom of swaziland]]
+[[light-hearted medicare check]]

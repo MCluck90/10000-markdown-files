@@ -84,3 +84,9 @@ Alice quite unable to dive
 Back to half-past one could
 : Only a person then a thimble saying and even with curiosity she ran
 
+
+## Wikilinks load test
+
+[[tympanitic locust]]
+[[comradely inflation therapy]]
+[[inertial leatherfish]]

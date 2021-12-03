@@ -84,3 +84,8 @@ Consider your little thing before And
 Did you speak with many little
 : Seals turtles all like what they doing here he spoke for repeating his friends shared
 
+
+## Wikilinks load test
+
+[[acerose freedom rider]]
+[[predigested atomic number 14]]

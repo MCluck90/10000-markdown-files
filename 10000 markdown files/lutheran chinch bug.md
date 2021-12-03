@@ -82,3 +82,11 @@ it hastily interrupted Alice only makes
 Up above her full of herself
 : Those whom she quite pleased.
 
+
+## Wikilinks load test
+
+[[stoppered monocot family]]
+[[subaqueous salamandridae]]
+[[stereotypic praisworthiness]]
+[[some other shanghai dialect]]
+[[inappropriate anemone riparia]]

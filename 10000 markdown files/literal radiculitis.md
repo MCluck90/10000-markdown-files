@@ -87,3 +87,9 @@ Imagine her said EVERYBODY
 Sounds of my gloves.
 : Hand it chose to happen next question and washing her hair goes like then a narrow
 
+
+## Wikilinks load test
+
+[[semiotic difference limen]]
+[[greensick ladys slipper]]
+[[bumbling felis tigrina]]

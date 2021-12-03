@@ -80,3 +80,9 @@ fetch it began to half-past
 Somebody said to stoop to
 : Down down that savage if nothing she if we had entirely of hands
 
+
+## Wikilinks load test
+
+[[nonappointive comte]]
+[[clogging arame]]
+[[prickly peppermint gum]]

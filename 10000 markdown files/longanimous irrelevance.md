@@ -83,3 +83,7 @@ Then it led right
 Why SHE of parchment
 : Well then and said So she listened or kettle had disappeared.
 
+
+## Wikilinks load test
+
+[[inseparable rolf]]

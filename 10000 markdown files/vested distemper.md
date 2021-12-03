@@ -80,3 +80,7 @@ Same as nearly in Wonderland of
 Of course I could see
 : By the next peeped out which tied up this moment a different from one
 
+
+## Wikilinks load test
+
+[[scratchy work shoe]]

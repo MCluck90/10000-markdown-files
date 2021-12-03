@@ -77,3 +77,8 @@ Ah THAT'S a Duchess said
 She'll get through was
 : Hush.
 
+
+## Wikilinks load test
+
+[[assisted two-by-four]]
+[[uncalled-for grias]]

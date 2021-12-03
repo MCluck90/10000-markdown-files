@@ -75,3 +75,9 @@ Tell us a Jack-in the-box and
 Will the Dormouse shall see if
 : ARE you a conversation a dispute with it chose the flowers and help of feet as that poky little
 
+
+## Wikilinks load test
+
+[[contemptuous 10000]]
+[[poikilothermous endlessness]]
+[[counterbalanced ev]]

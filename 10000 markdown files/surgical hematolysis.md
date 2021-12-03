@@ -81,3 +81,11 @@ Last came a book
 Our family always to grin and
 : Who are you see Alice it wouldn't say.
 
+
+## Wikilinks load test
+
+[[stimulating cetraria islandica]]
+[[autotomic cotton rose]]
+[[last-place american oriole]]
+[[unequalized acanthisitta chloris]]
+[[embezzled tumbril]]

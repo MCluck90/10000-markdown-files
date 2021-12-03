@@ -83,3 +83,11 @@ Heads below and see her back
 Nobody moved.
 : I fancied she felt unhappy at.
 
+
+## Wikilinks load test
+
+[[diametric black and tan]]
+[[dolomitic puppet government]]
+[[well-mannered freewheel]]
+[[stemless preceptor]]
+[[slovakian multitudinousness]]

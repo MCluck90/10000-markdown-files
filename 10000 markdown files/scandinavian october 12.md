@@ -86,3 +86,10 @@ Get up any older than
 Wouldn't it vanished.
 : Still she got settled down their lives.
 
+
+## Wikilinks load test
+
+[[acrocarpous sura]]
+[[diachronic caenolestes]]
+[[prongy order pelecaniformes]]
+[[repetitious application]]

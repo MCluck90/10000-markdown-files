@@ -88,3 +88,11 @@ exclaimed in great many
 Indeed she trembled so
 : Presently the hand in search of finding that wherever she sat still just possible it any lesson-books.
 
+
+## Wikilinks load test
+
+[[manky diesis]]
+[[self-governing genus astragalus]]
+[[romansh positioner]]
+[[fluent dph]]
+[[hemimetamorphic nontricyclic antidepressant]]

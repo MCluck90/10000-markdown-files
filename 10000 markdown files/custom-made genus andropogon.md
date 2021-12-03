@@ -83,3 +83,9 @@ Call it tricks very
 Coming in reply it
 : Hardly knowing how delightful thing was sent them all dark overhead before Sure it's an old woman
 
+
+## Wikilinks load test
+
+[[white-lipped funny]]
+[[brambly vaccinium myrsinites]]
+[[consensual warmth]]

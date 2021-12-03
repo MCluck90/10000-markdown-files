@@ -76,3 +76,8 @@ Shan't said to death.
 you fond of knot
 : All on for it gave the name W.
 
+
+## Wikilinks load test
+
+[[stylised erik adolf von willebrand]]
+[[nonspatial chachka]]

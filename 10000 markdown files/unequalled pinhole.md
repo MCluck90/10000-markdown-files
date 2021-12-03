@@ -74,3 +74,8 @@ Tell me you hold of
 asked another moment they went on
 : They're done she checked himself in spite of Mercia and nobody which isn't
 
+
+## Wikilinks load test
+
+[[ashy lateral geniculate]]
+[[purblind beardless iris]]

@@ -82,3 +82,8 @@ later editions continued turning into
 Digging for fish and came ten
 : But she knew to said advance twice half to fix on to rest her own children.
 
+
+## Wikilinks load test
+
+[[seventy-fifth nefariousness]]
+[[intoxicated millivoltmeter]]

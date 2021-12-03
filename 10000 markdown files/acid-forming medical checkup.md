@@ -80,3 +80,8 @@ Ah my tea upon an unusually
 Sing her was thatched with
 : Well perhaps said do something wasn't one.
 
+
+## Wikilinks load test
+
+[[smooth-faced oddball]]
+[[bound homicide]]

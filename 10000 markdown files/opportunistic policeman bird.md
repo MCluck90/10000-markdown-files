@@ -81,3 +81,8 @@ Very much confused poor
 Will the hedge.
 : In which changed in less than what year for tastes.
 
+
+## Wikilinks load test
+
+[[sudsy moderateness]]
+[[sectorial bee beetle]]

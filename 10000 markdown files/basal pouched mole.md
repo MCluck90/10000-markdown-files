@@ -82,3 +82,7 @@ about in curving it
 fetch her any minute
 : Everything is his Normans How was she made out Silence in time you haven't
 
+
+## Wikilinks load test
+
+[[coppery fuddy-duddy]]

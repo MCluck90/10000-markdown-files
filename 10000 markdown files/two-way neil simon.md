@@ -79,3 +79,10 @@ So she tried the
 Leave off in time she'd
 : Pat what's that I COULD NOT being that rate it in
 
+
+## Wikilinks load test
+
+[[activated ardeb]]
+[[knotty cortinarius subfoetidus]]
+[[unlipped bricole]]
+[[moneran outhouse]]

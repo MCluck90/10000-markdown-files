@@ -89,3 +89,8 @@ Their heads cut it twelve
 Two lines.
 : Wow.
 
+
+## Wikilinks load test
+
+[[puppyish genus mitchella]]
+[[plagiarised batrachoseps]]

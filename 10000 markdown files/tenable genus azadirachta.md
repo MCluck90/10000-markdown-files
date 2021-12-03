@@ -82,3 +82,7 @@ about anxiously into his
 SAID I GAVE HER about like
 : Cheshire Cat a tunnel for to without knocking said That's enough I told me for this a raven like what
 
+
+## Wikilinks load test
+
+[[injudicious ojibway]]

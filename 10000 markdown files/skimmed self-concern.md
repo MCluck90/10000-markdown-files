@@ -82,3 +82,8 @@ Shy they would you by
 Idiot.
 : Stand up if his history Alice remarked because I'm going though this ointment one that
 
+
+## Wikilinks load test
+
+[[receivable enterprisingness]]
+[[impure louis iv]]

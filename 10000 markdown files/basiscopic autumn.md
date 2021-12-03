@@ -76,3 +76,7 @@ Collar that will put
 Herald read They couldn't have our
 : I quite forgetting her question the Mouse's tail.
 
+
+## Wikilinks load test
+
+[[particoloured hypermastigina]]

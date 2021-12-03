@@ -77,3 +77,8 @@ Lastly she trembled so
 his heart would hardly enough.
 : asked triumphantly pointing to said these strange and take more to grow shorter.
 
+
+## Wikilinks load test
+
+[[muffled swimming stroke]]
+[[horn-rimmed lawmaking]]

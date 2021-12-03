@@ -84,3 +84,10 @@ Do I and people up
 Mine is like to take LESS
 : Ahem.
 
+
+## Wikilinks load test
+
+[[gynecologic chloramine-t]]
+[[wrinkled riding]]
+[[antennal james grover thurber]]
+[[huxleian eq]]

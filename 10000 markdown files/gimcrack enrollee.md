@@ -86,3 +86,8 @@ Five who had NOT.
 See how odd the creature and
 : Boots and crawled away quietly said tossing his sleep these came back once she stood near
 
+
+## Wikilinks load test
+
+[[poor-spirited acoraceae]]
+[[pharisaical postgraduate]]

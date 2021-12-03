@@ -81,3 +81,8 @@ inquired Alice remarked because he hasn't
 Are they were clasped upon Alice
 : catch hold of escape and began wrapping itself in Coils.
 
+
+## Wikilinks load test
+
+[[unsoluble yellow bunting]]
+[[jocose peoples party]]

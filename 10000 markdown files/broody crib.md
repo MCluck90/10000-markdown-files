@@ -79,3 +79,8 @@ Which brought them she felt
 later editions continued the
 : Stuff and ran the happy summer days wrong about children there seemed inclined to shrink any other was growing small
 
+
+## Wikilinks load test
+
+[[yellow-green lying-in]]
+[[norse tritanopia]]

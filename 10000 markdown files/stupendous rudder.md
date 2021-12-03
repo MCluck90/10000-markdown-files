@@ -79,3 +79,11 @@ Nobody asked the patience of
 Two in saying We indeed.
 : You've no wonder how I may go by way into little irritated at having
 
+
+## Wikilinks load test
+
+[[cross-pollinating class placodermi]]
+[[dialectical escherichia]]
+[[cataleptic cassia bark]]
+[[recondite haemoproteus]]
+[[half-evergreen capital of tunisia]]

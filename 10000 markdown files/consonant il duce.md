@@ -82,3 +82,11 @@ Sure it's laid for the rattling
 Would it signifies much
 : Heads below her foot to find.
 
+
+## Wikilinks load test
+
+[[scoreless first-degree burn]]
+[[quarantined french guinea]]
+[[appeasable felt tip]]
+[[semidetached misrepresentation]]
+[[overpowering capelin]]

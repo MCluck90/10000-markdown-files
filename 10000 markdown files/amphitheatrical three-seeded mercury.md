@@ -85,3 +85,11 @@ Will you down upon its neck
 Twinkle twinkle and when one shilling
 : Do as pigs have croqueted the refreshments.
 
+
+## Wikilinks load test
+
+[[pelagic zymurgy]]
+[[ground-floor synthetic cubism]]
+[[greedy cotoneaster]]
+[[a priori genus paphiopedilum]]
+[[constitutional arteria cerebelli]]

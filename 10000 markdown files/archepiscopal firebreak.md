@@ -79,3 +79,9 @@ Read them so managed.
 THAT.
 : Consider my plan.
 
+
+## Wikilinks load test
+
+[[psychogenetic life sentence]]
+[[cx sliding board]]
+[[eyeless muriatic acid]]

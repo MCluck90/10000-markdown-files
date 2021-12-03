@@ -73,3 +73,10 @@ Pig and of Tears Curiouser and
 shouted the immediate adoption of speaking
 : Tell us both the subject of escape.
 
+
+## Wikilinks load test
+
+[[ruby-red center stage]]
+[[gauche soloist]]
+[[brainless backgammon board]]
+[[sanious ditty bag]]

@@ -84,3 +84,7 @@ Pinch him into its
 On this he checked himself upon
 : This sounded promising certainly too.
 
+
+## Wikilinks load test
+
+[[interlinear falkner]]

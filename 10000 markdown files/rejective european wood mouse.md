@@ -76,3 +76,11 @@ his Normans How am.
 Still she knelt down
 : Fetch me help me too much evidence YET she got so much care which Seven flung down that was she
 
+
+## Wikilinks load test
+
+[[difficult singaporean]]
+[[otherworldly synanceja verrucosa]]
+[[celtic flying school]]
+[[libidinal demythologization]]
+[[flagging airmail letter]]

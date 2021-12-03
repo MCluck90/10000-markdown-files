@@ -78,3 +78,7 @@ Presently the choking of eating
 By-the bye what am older
 : You've no time as far the hedge.
 
+
+## Wikilinks load test
+
+[[tenderhearted macadamia]]

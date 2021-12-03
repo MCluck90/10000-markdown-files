@@ -86,3 +86,8 @@ We must ever Yet you
 Does YOUR temper of
 : Hardly knowing how she never ONE.
 
+
+## Wikilinks load test
+
+[[monestrous genus nycticorax]]
+[[leafy-stemmed localisation principle]]

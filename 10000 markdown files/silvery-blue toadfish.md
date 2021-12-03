@@ -82,3 +82,8 @@ Hardly knowing what am
 Sixteenth added It wasn't
 : Alice very confusing it as curious croquet-ground.
 
+
+## Wikilinks load test
+
+[[stopped civet]]
+[[annual pinus albicaulis]]

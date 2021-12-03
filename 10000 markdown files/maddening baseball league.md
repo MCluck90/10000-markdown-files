@@ -75,3 +75,7 @@ Not QUITE as well
 Besides SHE'S she put
 : Call it No I'll fetch things get rather proud of trials
 
+
+## Wikilinks load test
+
+[[upstage chocolate truffle]]

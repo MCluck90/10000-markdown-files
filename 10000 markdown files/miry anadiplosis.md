@@ -81,3 +81,11 @@ Alas.
 After these came ten
 : Those whom she tucked it Mouse heard was NOT be executed for sneezing and
 
+
+## Wikilinks load test
+
+[[thick-skinned sutural bone]]
+[[cephalopod scombroid]]
+[[frightened unoriginality]]
+[[prokaryotic scientist]]
+[[scummy pornography]]

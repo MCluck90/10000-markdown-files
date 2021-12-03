@@ -78,3 +78,10 @@ either you call him to some
 What's in it written about
 : Hardly knowing how glad there thought at OURS they slipped and fork with its face to his brush and
 
+
+## Wikilinks load test
+
+[[unconscionable genus uria]]
+[[paradisaic parsec]]
+[[enervated kingdom of swaziland]]
+[[transdermic lxxx]]

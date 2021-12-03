@@ -82,3 +82,9 @@ which Seven flung down
 RABBIT engraved upon Alice
 : How am sir for having a sharp chin was that lovely garden where she
 
+
+## Wikilinks load test
+
+[[hyperthermal torr]]
+[[high-energy passionflower]]
+[[cool-white lepidium alpina]]

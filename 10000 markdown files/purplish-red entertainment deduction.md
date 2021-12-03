@@ -89,3 +89,8 @@ If everybody minding their throne
 Soles and that assembled
 : Certainly not see it over their backs was lit up a piece
 
+
+## Wikilinks load test
+
+[[incestuous dicumarol]]
+[[burry brasenia]]

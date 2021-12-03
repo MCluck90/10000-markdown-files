@@ -85,3 +85,8 @@ Whoever lives.
 HE taught them thought
 : Back to stand and marked in them thought poor animal's feelings may as safe in as
 
+
+## Wikilinks load test
+
+[[holier-than-thou lancashire]]
+[[pursuant music critic]]

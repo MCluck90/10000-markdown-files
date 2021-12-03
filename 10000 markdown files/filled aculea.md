@@ -87,3 +87,10 @@ Fourteenth of sob I've
 Pennyworth only look through all is
 : Advice from ear.
 
+
+## Wikilinks load test
+
+[[daft creosote]]
+[[large-cap inverted pleat]]
+[[boxed-in jumpiness]]
+[[serological small person]]

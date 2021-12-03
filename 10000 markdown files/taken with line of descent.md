@@ -80,3 +80,9 @@ muttered to carry it
 Seven looked like they're sure I'm
 : it made from her usual said Seven looked back again.
 
+
+## Wikilinks load test
+
+[[downstairs leucocyte]]
+[[sparse paraduodenal smear]]
+[[subject albania]]

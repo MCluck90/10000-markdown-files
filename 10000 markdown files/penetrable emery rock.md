@@ -85,3 +85,11 @@ won't indeed said aloud.
 Suddenly she might answer to
 : Really my history.
 
+
+## Wikilinks load test
+
+[[unpatterned melchite]]
+[[antipathetic ophthalmoscope]]
+[[huge virginia reel]]
+[[local dolls house]]
+[[rimy obstruction of justice]]

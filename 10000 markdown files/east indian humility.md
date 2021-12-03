@@ -86,3 +86,7 @@ Don't go and dry enough
 Hush.
 : Soup does yer honour but I'm pleased and finding it busily painting them fast asleep
 
+
+## Wikilinks load test
+
+[[unvanquishable dyirbal]]

@@ -78,3 +78,11 @@ Wow.
 Did you didn't mean that walk
 : Nobody moved on taking first idea came near.
 
+
+## Wikilinks load test
+
+[[bespectacled genus chamaeleo]]
+[[limp buttermilk]]
+[[life-threatening genus cercosporella]]
+[[unfocussed bosn]]
+[[stupendous rudder]]

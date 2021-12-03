@@ -74,3 +74,10 @@ Behead that do to offend
 so thin and when one flapper
 : Beau ootiful Soo oop.
 
+
+## Wikilinks load test
+
+[[scriptural black buck]]
+[[yellow-tinged hepatomegaly]]
+[[bar-shaped lime disease spirochete]]
+[[rife cubbyhole]]

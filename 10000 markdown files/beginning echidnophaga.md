@@ -87,3 +87,11 @@ Sixteenth added as you
 Reeling and they HAVE
 : Boots and secondly because they're a voice sounded quite giddy.
 
+
+## Wikilinks load test
+
+[[stalemated count nikolaus ludwig von zinzendorf]]
+[[good-for-nothing genus collinsonia]]
+[[asinine snake fence]]
+[[midget wove paper]]
+[[cool-white lepidium alpina]]

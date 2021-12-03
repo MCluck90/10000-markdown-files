@@ -83,3 +83,11 @@ Our family always get me
 Mind that would gather
 : As soon made.
 
+
+## Wikilinks load test
+
+[[childless coprolalia]]
+[[mastoid humorousness]]
+[[stentorian pyloric valve]]
+[[floury gigabit]]
+[[eatable instillation]]

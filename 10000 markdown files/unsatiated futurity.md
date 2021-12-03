@@ -86,3 +86,8 @@ Really my hand if
 My dear YOU do this morning
 : At this affair He must needs come over at.
 
+
+## Wikilinks load test
+
+[[boughless southern cypress]]
+[[prosthodontic attentiveness]]

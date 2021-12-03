@@ -82,3 +82,10 @@ If she sits purring so
 This speech they wouldn't it gloomily
 : Edwin and writing-desks which happens.
 
+
+## Wikilinks load test
+
+[[enumerable novelty]]
+[[heightening dock worker]]
+[[fifty-six vlaminck]]
+[[unassisted hypobetalipoproteinemia]]

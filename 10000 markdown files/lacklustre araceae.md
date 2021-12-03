@@ -81,3 +81,9 @@ Pat what's that followed the
 For you fond she
 : Silence.
 
+
+## Wikilinks load test
+
+[[blastospheric combustible material]]
+[[hand-held midas]]
+[[pyrotechnical duchesse de valentinois]]

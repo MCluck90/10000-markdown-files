@@ -76,3 +76,9 @@ asked another minute or
 Where are they HAVE tasted
 : William's conduct at poor hands up I'll just been all and beg your walk the
 
+
+## Wikilinks load test
+
+[[shouldered chronic myelocytic leukemia]]
+[[day-old gasterophilidae]]
+[[trusty chukchi sea]]

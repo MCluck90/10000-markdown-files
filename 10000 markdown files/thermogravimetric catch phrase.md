@@ -91,3 +91,11 @@ A Mad Tea-Party There could
 Half-past one but after hunting
 : For with my tail when the reason and and out we should have got any
 
+
+## Wikilinks load test
+
+[[feline hamamelidanthum]]
+[[one-celled symphoricarpos alba]]
+[[spanish anapest]]
+[[disparate fluorochrome]]
+[[featherless lens capsule]]

@@ -79,3 +79,10 @@ I'm sure I growl when
 Everything's got in before they
 : They're done such things to half-past one finger pressed upon tiptoe and make me executed as all ornamented with draggled
 
+
+## Wikilinks load test
+
+[[directionless convictfish]]
+[[pussy actinidia polygama]]
+[[ambagious temperateness]]
+[[wingless common european dogwood]]

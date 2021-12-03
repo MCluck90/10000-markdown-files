@@ -78,3 +78,11 @@ Who Stole the crowd of bathing
 Even the proposal.
 : Their heads downward.
 
+
+## Wikilinks load test
+
+[[kinesthetic sickness]]
+[[personal nobody]]
+[[imbalanced railroad engineer]]
+[[circadian gynura aurantiaca]]
+[[above-mentioned cerise]]

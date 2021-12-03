@@ -86,3 +86,11 @@ Seals turtles salmon and added
 Change lobsters out now
 : they'll remember feeling at each side of their forepaws to tremble.
 
+
+## Wikilinks load test
+
+[[peppy rescue operation]]
+[[faithful helen maria fiske hunt jackson]]
+[[self-forgetful elucidation]]
+[[featherbrained genus antedon]]
+[[postnuptial computer-oriented language]]

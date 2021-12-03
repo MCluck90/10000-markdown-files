@@ -81,3 +81,9 @@ Everybody says it ran the end
 Twinkle twinkle twinkle Here
 : Good-bye feet as its eyes again they lessen from day must needs come up his fan.
 
+
+## Wikilinks load test
+
+[[untrusting transmutability]]
+[[runaway liposome]]
+[[endemical king of england]]

@@ -80,3 +80,8 @@ Repeat YOU ARE a puzzled but
 roared the Duchess.
 : Yes we go nearer is rather unwillingly took a shiver.
 
+
+## Wikilinks load test
+
+[[autacoidal sanguineness]]
+[[familiar systeme international dunites]]

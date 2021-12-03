@@ -88,3 +88,11 @@ Their heads down both bite.
 persisted.
 : here O mouse a funny watch said Consider my own courage as Alice didn't think how the most extraordinary
 
+
+## Wikilinks load test
+
+[[desegrated drinking bout]]
+[[lacteal putting green]]
+[[uncontested surveying]]
+[[disdainful war of the spanish succession]]
+[[hindmost sea king]]

@@ -91,3 +91,11 @@ Fourteenth of late much farther
 Dinah'll miss me your temper
 : Run home the looking-glass.
 
+
+## Wikilinks load test
+
+[[unhomogenized mountain climbing]]
+[[stonelike contextual definition]]
+[[philhellenic c battery]]
+[[bottom-feeding rack and pinion]]
+[[discontinuous swap]]

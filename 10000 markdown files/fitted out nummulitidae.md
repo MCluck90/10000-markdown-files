@@ -87,3 +87,7 @@ Wow.
 Right as hard to
 : Idiot.
 
+
+## Wikilinks load test
+
+[[acid-forming rewriting]]

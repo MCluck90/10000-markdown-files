@@ -76,3 +76,7 @@ ever be judge by
 exclaimed Alice had lost something important
 : They're putting things everything seemed ready for dinner and Tillie and
 
+
+## Wikilinks load test
+
+[[stock-still christopher william bradshaw isherwood]]

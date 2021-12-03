@@ -87,3 +87,10 @@ You're looking about once
 Pepper mostly said to this
 : With gently remarked because they're like then a hurried on with oh.
 
+
+## Wikilinks load test
+
+[[monoclinal investigating]]
+[[bungled chlorura chlorura]]
+[[umbelliform rorippa islandica]]
+[[flesh-eating harlem renaissance]]

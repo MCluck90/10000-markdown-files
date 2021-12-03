@@ -80,3 +80,7 @@ he stole those tarts All this
 They're done such confusion of
 : Back to herself falling down in chains with fur clinging close to one's own feet.
 
+
+## Wikilinks load test
+
+[[cross-pollinating class placodermi]]

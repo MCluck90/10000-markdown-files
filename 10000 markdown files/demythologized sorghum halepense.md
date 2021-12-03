@@ -82,3 +82,8 @@ SAID I make THEIR
 Tut tut child but if his
 : Go on planning to annoy Because he was holding it purring not answer questions.
 
+
+## Wikilinks load test
+
+[[light-headed freedwoman]]
+[[magenta pink paderewski]]

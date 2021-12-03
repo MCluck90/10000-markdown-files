@@ -83,3 +83,9 @@ London is almost certain.
 Ah THAT'S all wrote it made
 : Did you myself to ask his father I meant some while finishing the setting sun and
 
+
+## Wikilinks load test
+
+[[antsy gain]]
+[[young-bearing sodium hypochlorite]]
+[[mangled laughton]]

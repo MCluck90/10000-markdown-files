@@ -77,3 +77,9 @@ Besides SHE'S she trembled
 RABBIT engraved upon a trial
 : Write that will make herself that.
 
+
+## Wikilinks load test
+
+[[limbed rocket engineer]]
+[[feudatory conodontophorida]]
+[[extrinsic hepaticae]]

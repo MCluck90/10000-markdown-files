@@ -84,3 +84,9 @@ One said.
 they'll do very absurd
 : William and sneezing.
 
+
+## Wikilinks load test
+
+[[spellbound jainism]]
+[[self-restraining bishkek]]
+[[skim intonation pattern]]

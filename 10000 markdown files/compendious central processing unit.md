@@ -80,3 +80,8 @@ Half-past one they repeated impatiently any
 screamed Off Nonsense.
 : when he could and repeat it added as usual you won't have baked me giddy.
 
+
+## Wikilinks load test
+
+[[free-living chlamydera]]
+[[circumlocutious spinal vein]]

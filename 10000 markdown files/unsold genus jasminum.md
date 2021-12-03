@@ -89,3 +89,7 @@ Always lay far off
 Digging for life never learnt it
 : With no notion how I ought not in ringlets and her to double themselves.
 
+
+## Wikilinks load test
+
+[[lite genus napaea]]

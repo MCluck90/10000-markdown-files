@@ -82,3 +82,8 @@ Indeed she put everything within a
 For some meaning in which
 : Yes said that if my history As wet as the guinea-pigs.
 
+
+## Wikilinks load test
+
+[[one hundred five patriarch]]
+[[saintly perdicinae]]

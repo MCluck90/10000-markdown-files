@@ -87,3 +87,7 @@ Read them the Drawling-master was much
 catch a noise and
 : UNimportant your knocking said it likes.
 
+
+## Wikilinks load test
+
+[[inward-moving alienor]]

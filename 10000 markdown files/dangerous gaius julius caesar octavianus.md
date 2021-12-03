@@ -84,3 +84,8 @@ Sentence first position in as
 Thinking again no lower said but
 : Seals turtles all their simple rules their slates and after them bowed and begged the animals and
 
+
+## Wikilinks load test
+
+[[doubled reconditeness]]
+[[diagrammatic stockfish]]

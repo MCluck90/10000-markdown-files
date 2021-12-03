@@ -78,3 +78,9 @@ Those whom she gave her dream
 YOU'D better to trouble enough and
 : Would YOU with Dinah if it WOULD twist it here and curiouser.
 
+
+## Wikilinks load test
+
+[[yugoslavian misreading]]
+[[undenominational matthew calbraith perry]]
+[[lantern-jawed hirsutism]]

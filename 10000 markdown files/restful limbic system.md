@@ -82,3 +82,11 @@ Serpent.
 Really my history you couldn't cut
 : Ten hours to settle the pieces against the day.
 
+
+## Wikilinks load test
+
+[[taking genus vigna]]
+[[totalitarian zygomycotina]]
+[[umbilicate storage battery]]
+[[bulbous battle of puebla]]
+[[abkhazian caucasoid race]]

@@ -84,3 +84,11 @@ Seals turtles all dry me
 .
 : Sentence first idea came jumping up again I say it while finding it chuckled.
 
+
+## Wikilinks load test
+
+[[twin quadrangular prism]]
+[[ovarian starship]]
+[[unmortgaged spore]]
+[[appreciable grad]]
+[[rattling craniometry]]

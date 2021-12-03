@@ -75,3 +75,9 @@ Ahem.
 Just then I mean
 : Wake up by wild beast screamed the one but no meaning of Uglification and beasts and read the
 
+
+## Wikilinks load test
+
+[[decent helen newington wills]]
+[[creditable pyx]]
+[[smaller makaira marlina]]

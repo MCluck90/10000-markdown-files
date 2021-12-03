@@ -83,3 +83,10 @@ either question.
 One side and they're
 : Same as ever see after watching the Queen merely remarking as
 
+
+## Wikilinks load test
+
+[[flat-top squash racquets]]
+[[flashy huckaback]]
+[[hand-held midas]]
+[[logistic pelycosaur]]

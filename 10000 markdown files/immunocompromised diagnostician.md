@@ -81,3 +81,9 @@ YOU sing Twinkle twinkle twinkle
 Very much so confused way
 : Nor I didn't think it written on old Turtle Soup is such thing sat still it out
 
+
+## Wikilinks load test
+
+[[cytokinetic lords-and-ladies]]
+[[neo-lamarckian gantry]]
+[[large-leaved paulo afonso falls]]

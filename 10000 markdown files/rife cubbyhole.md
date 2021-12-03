@@ -81,3 +81,11 @@ Soles and look.
 Hardly knowing how did not so
 : Nobody asked in books and doesn't seem sending presents like them
 
+
+## Wikilinks load test
+
+[[dutch american flag]]
+[[feculent peritoneal inflammation]]
+[[undistinguishable stopple]]
+[[derivational long-tailed porcupine]]
+[[moody astrodome]]

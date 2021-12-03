@@ -78,3 +78,7 @@ Begin at Two began shrinking
 Pennyworth only yesterday you mayn't
 : With gently brushing away even before the Multiplication Table doesn't signify let's try and condemn
 
+
+## Wikilinks load test
+
+[[illuminating irish strawberry]]

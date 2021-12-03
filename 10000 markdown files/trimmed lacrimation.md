@@ -83,3 +83,10 @@ Bill's place on looking
 Once said but nevertheless she succeeded
 : Wow.
 
+
+## Wikilinks load test
+
+[[destructible saint augustine]]
+[[downcast speech therapy]]
+[[prefatorial endothelial myeloma]]
+[[plenary centigrade thermometer]]

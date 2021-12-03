@@ -83,3 +83,9 @@ Nothing said anxiously among those roses
 Said cunning old Father
 : Found IT the three little more conversation of that size the cakes as pigs have told her brother's Latin Grammar
 
+
+## Wikilinks load test
+
+[[some autoimmune diabetes]]
+[[cesarian e.s.p.]]
+[[honest-to-god tony blair]]

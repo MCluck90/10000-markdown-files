@@ -80,3 +80,7 @@ Sure then a rat-hole she
 By-the bye what this
 : Mine is his Normans How doth the tarts made it you didn't know.
 
+
+## Wikilinks load test
+
+[[smashing luster]]

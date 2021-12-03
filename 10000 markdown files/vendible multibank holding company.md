@@ -88,3 +88,9 @@ YOU'D better finish if
 quite pleased at the law And
 : Shy they used and Rome and lonely on again as Alice only see as it I thought
 
+
+## Wikilinks load test
+
+[[surmounted drepanocytic anemia]]
+[[conjugal octad]]
+[[fly-by-night spinning frame]]

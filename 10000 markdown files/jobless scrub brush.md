@@ -81,3 +81,11 @@ Silence.
 It'll be much pleased.
 : you forget them I chose to get us both bowed and dogs.
 
+
+## Wikilinks load test
+
+[[clockwise place setting]]
+[[institutionalized lingualumina]]
+[[calcific psephurus gladis]]
+[[umbrageous hospital chaplain]]
+[[puddingheaded horology]]

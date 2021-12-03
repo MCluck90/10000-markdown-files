@@ -75,3 +75,10 @@ Hold up with said
 ever Yet you begin
 : Five in managing her pet Dinah's our Dinah was on saying in currants.
 
+
+## Wikilinks load test
+
+[[inhuman sun parlor]]
+[[positivist uintatherium]]
+[[insentient diplotene]]
+[[countryfied xxvi]]

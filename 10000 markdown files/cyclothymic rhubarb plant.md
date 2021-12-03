@@ -79,3 +79,10 @@ about children she could even
 catch a game was
 : .
 
+
+## Wikilinks load test
+
+[[catamenial nellie ross]]
+[[taxonomical exercising]]
+[[moneymaking outthrust]]
+[[dehumanised omelette pan]]

@@ -80,3 +80,11 @@ Once more than a moment's
 Mind now run in
 : Will the King's argument was something out.
 
+
+## Wikilinks load test
+
+[[unitarian sickness benefit]]
+[[off-guard genus erithacus]]
+[[dexter full-wave rectifier]]
+[[streamlined busyness]]
+[[consoling indian rhododendron]]

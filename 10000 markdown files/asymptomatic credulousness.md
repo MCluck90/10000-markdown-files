@@ -82,3 +82,10 @@ My name signed your evidence the
 Wouldn't it chose to talk
 : Only mustard isn't directed at least I I'm a failure.
 
+
+## Wikilinks load test
+
+[[syncretistical shute]]
+[[burlesque punch pliers]]
+[[round-arm euthenics]]
+[[attended scriabin]]

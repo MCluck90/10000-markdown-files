@@ -86,3 +86,8 @@ Pat what's the different
 Nothing whatever said but all
 : Two days and your hair.
 
+
+## Wikilinks load test
+
+[[avocado ware]]
+[[heavy-armed d region]]

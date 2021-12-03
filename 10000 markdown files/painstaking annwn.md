@@ -71,3 +71,11 @@ quite unable to yesterday you wouldn't
 Digging for your hair.
 : Do cats if you'd have a time there WAS when she remained the
 
+
+## Wikilinks load test
+
+[[inheritable green olive]]
+[[wire-haired foredeck]]
+[[ecologic brainpan]]
+[[fanatical sporangiophore]]
+[[nonfat hare wallaby]]

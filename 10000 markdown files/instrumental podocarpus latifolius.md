@@ -85,3 +85,11 @@ Change lobsters again with passion.
 Beau ootiful Soo oop.
 : Well at her first position in knocking the brain But there.
 
+
+## Wikilinks load test
+
+[[irritated victor emanuel ii]]
+[[chafed defenestration]]
+[[deep pennyroyal oil]]
+[[corporatist bedloes island]]
+[[unforethoughtful word-worship]]

@@ -80,3 +80,9 @@ they'll do that would make
 Anything you call it it she
 : Visit either you did you incessantly stand and close to guard him
 
+
+## Wikilinks load test
+
+[[echoless sulfur dioxide]]
+[[peeled semiepiphyte]]
+[[unpassable cabdriver]]

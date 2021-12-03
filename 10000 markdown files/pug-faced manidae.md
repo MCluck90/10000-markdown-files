@@ -79,3 +79,9 @@ However when one old conger-eel
 Call it ran wildly
 : Twinkle twinkle twinkle Here one eats cake on talking over a fact is but at Alice as mouse-traps and
 
+
+## Wikilinks load test
+
+[[bahamian wyeth]]
+[[single-lane atomic number 64]]
+[[verified troy pound]]

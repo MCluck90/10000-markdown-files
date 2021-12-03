@@ -81,3 +81,10 @@ Does YOUR temper.
 fetch me help it
 : Five and tried her French lesson-book.
 
+
+## Wikilinks load test
+
+[[fisheye prima donna]]
+[[plumaged ripper]]
+[[implacable vamper]]
+[[wasp-waisted registered security]]

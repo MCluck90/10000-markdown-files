@@ -88,3 +88,8 @@ one finger and sneezing all else
 Sure it into it I
 : Ahem.
 
+
+## Wikilinks load test
+
+[[piddling capital of guinea-bissau]]
+[[diagrammatic duplex]]

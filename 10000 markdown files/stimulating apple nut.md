@@ -79,3 +79,10 @@ What did so shiny.
 Ugh.
 : wow.
 
+
+## Wikilinks load test
+
+[[awless vena facialis]]
+[[west trypsinogen]]
+[[neo class pteridospermopsida]]
+[[discoidal wine-makers yeast]]

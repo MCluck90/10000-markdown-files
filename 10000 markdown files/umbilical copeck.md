@@ -76,3 +76,8 @@ Oh it's always took
 Silence.
 : a thunderstorm.
 
+
+## Wikilinks load test
+
+[[heat-absorbing palometa simillima]]
+[[brittle kingdom of god]]

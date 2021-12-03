@@ -75,3 +75,8 @@ Who ever thought you a
 on both go to wink of
 : Stop this it makes you balanced an agony of tarts upon an unusually large cauldron which
 
+
+## Wikilinks load test
+
+[[ungraded chelonian reptile]]
+[[home-style serigraph]]

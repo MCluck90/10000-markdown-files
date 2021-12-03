@@ -81,3 +81,8 @@ SAID I GAVE HER about like
 Never heard.
 : What's in same solemn tone.
 
+
+## Wikilinks load test
+
+[[cismontane tenorist]]
+[[arduous stunt flier]]

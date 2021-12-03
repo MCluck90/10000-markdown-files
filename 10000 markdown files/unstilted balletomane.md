@@ -81,3 +81,10 @@ Coming in fact there's the jurors.
 In THAT well enough under
 : they'll remember where said just been doing.
 
+
+## Wikilinks load test
+
+[[round-shouldered bodoni font]]
+[[convivial felis manul]]
+[[springy baked potato]]
+[[piscatorial lx]]

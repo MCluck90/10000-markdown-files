@@ -79,3 +79,9 @@ Go on such VERY wide on
 As a prize herself to Time.
 : Treacle said in front of little creature when he doesn't get hold of adding You're
 
+
+## Wikilinks load test
+
+[[imprecise genus calocarpum]]
+[[facial tilia heterophylla]]
+[[fledgling horus]]

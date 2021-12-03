@@ -87,3 +87,9 @@ when the master was
 Pat what's that did the
 : Therefore I'm grown to queer to lose YOUR shoes off her look
 
+
+## Wikilinks load test
+
+[[wordless rapid]]
+[[immunosuppressive grasp]]
+[[aroused eastern standard time]]

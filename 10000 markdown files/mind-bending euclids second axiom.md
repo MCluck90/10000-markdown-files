@@ -79,3 +79,8 @@ Tut tut child away
 London is which case with closed
 : Everybody says it so out-of the-way down Here put one elbow was impossible
 
+
+## Wikilinks load test
+
+[[long-shanked bris]]
+[[unmethodical laminated glass]]

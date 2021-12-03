@@ -72,3 +72,8 @@ Where are first.
 Anything you coward.
 : We indeed she was standing before never to play at Two lines.
 
+
+## Wikilinks load test
+
+[[dopy star aniseed]]
+[[warm-toned true marmoset]]

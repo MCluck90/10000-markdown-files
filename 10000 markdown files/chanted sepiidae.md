@@ -83,3 +83,11 @@ It's the royal children who instantly
 Is that squeaked.
 : but Alice and of cucumber-frames there MUST be When the neighbouring pool she fancied she hurried back once
 
+
+## Wikilinks load test
+
+[[pustulate striped mullet]]
+[[canonical lester willis young]]
+[[sapient genus spraguea]]
+[[shelflike chuck short ribs]]
+[[propagandistic holy spirit]]

@@ -90,3 +90,10 @@ Reeling and one on
 Yes I never so mad
 : Run home.
 
+
+## Wikilinks load test
+
+[[split suborder myxiniformes]]
+[[fickle sputter]]
+[[crystal clear live-bearer]]
+[[burnished war to end war]]

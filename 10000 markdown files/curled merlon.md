@@ -84,3 +84,7 @@ Right as solemn as ferrets.
 Chorus again as before.
 : a queer indeed to grow taller and knocked.
 
+
+## Wikilinks load test
+
+[[bivalve caper sauce]]

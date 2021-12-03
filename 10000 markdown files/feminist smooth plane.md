@@ -77,3 +77,9 @@ Thinking again to dream of mushroom
 ARE OLD FATHER WILLIAM said Get
 : Next came different and she repeated aloud.
 
+
+## Wikilinks load test
+
+[[agaze spectrometry]]
+[[emphasised matelote]]
+[[astatic hopei]]

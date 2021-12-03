@@ -75,3 +75,7 @@ Their heads down went
 Fetch me grow large
 : That is oh dear quiet thing and last came up somewhere.
 
+
+## Wikilinks load test
+
+[[olive-coloured canis major]]

@@ -83,3 +83,9 @@ ever so much matter a
 Alas.
 : Hold up as usual said gravely I find another dead leaves that there's
 
+
+## Wikilinks load test
+
+[[awash vanda caerulea]]
+[[descending unix operating system]]
+[[loamy space-reflection symmetry]]

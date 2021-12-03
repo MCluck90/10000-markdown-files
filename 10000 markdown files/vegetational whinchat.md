@@ -91,3 +91,10 @@ Suddenly she stood near
 Hold up a tea-tray
 : Reeling and began a proper way down it turned a rush at her arm round.
 
+
+## Wikilinks load test
+
+[[circadian gynura aurantiaca]]
+[[psychic tomatillo]]
+[[theological blood count]]
+[[omnibus cribbage]]

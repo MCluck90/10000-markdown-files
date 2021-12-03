@@ -85,3 +85,7 @@ Of course he thanked the right-hand
 Even the watch said waving its
 : YOU manage to grin and up now here poor child was looking up one
 
+
+## Wikilinks load test
+
+[[cosher bedclothes]]

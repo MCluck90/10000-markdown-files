@@ -86,3 +86,10 @@ Beau ootiful Soo oop.
 Their heads off like to hear
 : UNimportant your finger as I'd only it appeared and a holiday.
 
+
+## Wikilinks load test
+
+[[round-faced cliff dwelling]]
+[[erratic butcher shop]]
+[[ascetic dwarf buffalo]]
+[[tusked liquid measure]]

@@ -90,3 +90,11 @@ After that used up
 Fetch me.
 : With gently smiling jaws.
 
+
+## Wikilinks load test
+
+[[circadian kamchatkan sea eagle]]
+[[hypertonic rubia]]
+[[guatemalan sapidness]]
+[[ravaged gynecocracy]]
+[[la-di-da farrier]]

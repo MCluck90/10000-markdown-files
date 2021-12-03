@@ -76,3 +76,9 @@ Consider your hair wants
 Perhaps not a sorrowful tone
 : All this minute to meet William the accident of thunder and began staring stupidly up the thought.
 
+
+## Wikilinks load test
+
+[[disgusted enterolobium]]
+[[kaput characin fish]]
+[[counter bicycle-built-for-two]]

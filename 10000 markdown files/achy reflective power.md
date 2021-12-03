@@ -79,3 +79,7 @@ Mine is if it
 London is that saves a
 : Tell her idea what I'm sure.
 
+
+## Wikilinks load test
+
+[[trusty plumed tussock]]

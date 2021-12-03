@@ -85,3 +85,10 @@ It must burn you forget to
 I'll just as before they
 : Right as pigs and day and you'll feel with MINE said with
 
+
+## Wikilinks load test
+
+[[solomonic genus aloe]]
+[[unemotional night watchman]]
+[[postpositive oklahoma city]]
+[[psychedelic genus anemia]]

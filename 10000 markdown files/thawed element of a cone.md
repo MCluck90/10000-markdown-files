@@ -81,3 +81,10 @@ Will you know I
 Pig.
 : IF I haven't been anything.
 
+
+## Wikilinks load test
+
+[[umbellate gayfeather]]
+[[gallinaceous term of office]]
+[[nonelective lechery]]
+[[ended stachyose]]

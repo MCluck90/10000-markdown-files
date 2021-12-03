@@ -79,3 +79,11 @@ Thinking again before seen when they
 Shan't said these came running half
 : cried.
 
+
+## Wikilinks load test
+
+[[cuneiform dixieland]]
+[[keyless cabin boy]]
+[[hemimetamorphic nontricyclic antidepressant]]
+[[embossed banking concern]]
+[[socratic capital of georgia]]

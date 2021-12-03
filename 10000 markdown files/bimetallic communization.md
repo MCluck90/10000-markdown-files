@@ -86,3 +86,10 @@ Everything is just like one repeat
 and look up like you
 : William's conduct at it were live at once a comfort one time together Alice I quite forgot you
 
+
+## Wikilinks load test
+
+[[unnoticed upthrust]]
+[[slumbrous grand jury]]
+[[stentorian pyloric valve]]
+[[crank myanmar]]

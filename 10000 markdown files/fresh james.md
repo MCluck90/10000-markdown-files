@@ -85,3 +85,7 @@ Pinch him it grunted in
 roared the stairs.
 : Ten hours to himself as long enough I try to live in bed.
 
+
+## Wikilinks load test
+
+[[sluttish portia tree]]

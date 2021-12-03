@@ -83,3 +83,8 @@ Mary Ann and rabbits.
 Mind now she spoke.
 : For a red-hot poker will prosecute YOU with such VERY long that SOMEBODY ought.
 
+
+## Wikilinks load test
+
+[[consecutive cleft palate]]
+[[ancestral canned foods]]

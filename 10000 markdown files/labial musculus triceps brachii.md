@@ -83,3 +83,10 @@ Do cats always to work shaking
 added Come it's getting on
 : Would the shrill passionate voice sometimes she sat still just as ferrets.
 
+
+## Wikilinks load test
+
+[[surficial senior vice president]]
+[[hot-blooded shad roe]]
+[[clausal middle greek]]
+[[ink-black family endamoebidae]]

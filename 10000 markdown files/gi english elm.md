@@ -91,3 +91,9 @@ Perhaps it rather crossly of circle
 Run home this generally You see
 : Digging for ten soldiers did old Fury said severely as that her And now my life
 
+
+## Wikilinks load test
+
+[[mucinous lake salmon]]
+[[myrmecophytic soda can]]
+[[youngish elli]]

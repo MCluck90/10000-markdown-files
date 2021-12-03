@@ -77,3 +77,11 @@ on in contemptuous tones of
 Nay I have got to worry
 : Serpent.
 
+
+## Wikilinks load test
+
+[[goaded jeanne antoinette poisson]]
+[[superficial rummage]]
+[[iritic seismology]]
+[[censorial humulus japonicus]]
+[[saccadic identification number]]

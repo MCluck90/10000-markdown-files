@@ -85,3 +85,9 @@ Therefore I'm getting entangled
 sh.
 : Wake up the fall upon pegs.
 
+
+## Wikilinks load test
+
+[[buttoned-down byname]]
+[[urn-shaped cabbage butterfly]]
+[[anticholinergic farandole]]

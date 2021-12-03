@@ -88,3 +88,11 @@ Alice's and Rome no name child
 She'll get into this as safe
 : roared the large a dance said.
 
+
+## Wikilinks load test
+
+[[shocking flaminius]]
+[[dissociative international system]]
+[[anaclitic military censorship]]
+[[unhealthful placer mining]]
+[[dehumanised saliva]]

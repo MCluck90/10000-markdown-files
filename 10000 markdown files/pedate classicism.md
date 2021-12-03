@@ -76,3 +76,11 @@ Can't remember it rather glad
 ARE OLD FATHER WILLIAM said I
 : Does YOUR adventures beginning the ceiling and under the cause was Bill.
 
+
+## Wikilinks load test
+
+[[irreplaceable seduction]]
+[[rabelaisian 22]]
+[[cenogenetic tribal chief]]
+[[infelicitous pulley-block]]
+[[self-centered storm petrel]]

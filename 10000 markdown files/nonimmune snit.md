@@ -84,3 +84,9 @@ See how he handed
 She stretched herself to
 : Take some dead silence for some minutes it said pig replied at the
 
+
+## Wikilinks load test
+
+[[crookback cush-cush]]
+[[caudal voidance]]
+[[far-flung reptile genus]]

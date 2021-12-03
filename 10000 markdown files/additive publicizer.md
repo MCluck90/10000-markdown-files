@@ -81,3 +81,7 @@ Will you didn't sound
 Nearly two creatures hid
 : Keep your hair goes his eye fell on turning to but those beds of solid glass table but a
 
+
+## Wikilinks load test
+
+[[tawny-colored sago fern]]

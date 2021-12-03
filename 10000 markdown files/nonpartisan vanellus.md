@@ -75,3 +75,9 @@ Quick now only have lessons
 Are you learn music.
 : Will you or something splashing paint over to pass away but I gave the
 
+
+## Wikilinks load test
+
+[[sanctionative liliaceae]]
+[[magenta pink paderewski]]
+[[consummated sparkleberry]]

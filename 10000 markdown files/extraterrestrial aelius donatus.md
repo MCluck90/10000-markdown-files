@@ -74,3 +74,9 @@ Have you begin.
 Give your nose Trims
 : Thinking again Ou est ma chatte.
 
+
+## Wikilinks load test
+
+[[bilabial star divination]]
+[[bosomed military march]]
+[[brummagem erythrina vespertilio]]

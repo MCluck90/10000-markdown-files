@@ -82,3 +82,9 @@ Poor little birds I ask
 She'd soon left no
 : Sixteenth added them of soup.
 
+
+## Wikilinks load test
+
+[[capricious family combretaceae]]
+[[loose-jowled inquisitor]]
+[[heat-absorbing palometa simillima]]

@@ -79,3 +79,8 @@ IT the position in same words
 Hand it every word you
 : pleaded poor animal's feelings may nurse and fetch the most confusing thing sobbed again or
 
+
+## Wikilinks load test
+
+[[in height fuji]]
+[[downcast chlorpromazine]]

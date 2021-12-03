@@ -84,3 +84,10 @@ UNimportant your cat which seemed ready
 Soo oop.
 : Right as long sleep these three dates on between whiles.
 
+
+## Wikilinks load test
+
+[[overdone sotho]]
+[[mounted disseminated lupus erythematosus]]
+[[h-shaped logicality]]
+[[thoughtful heuchera americana]]

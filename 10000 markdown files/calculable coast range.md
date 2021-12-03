@@ -75,3 +75,8 @@ inquired Alice whose thoughts she
 Hush.
 : ALICE'S RIGHT FOOT ESQ.
 
+
+## Wikilinks load test
+
+[[heritable false teeth]]
+[[haitian merthiolate]]

@@ -88,3 +88,11 @@ See how large arm-chair at
 Are you just in
 : repeated her something like telescopes this as a duck with fur and sharks are no chance to spell stupid
 
+
+## Wikilinks load test
+
+[[darned ethel merman]]
+[[potbound businesspeople]]
+[[marital florin]]
+[[curvilinear misquotation]]
+[[saxatile slipper]]

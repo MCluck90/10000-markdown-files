@@ -90,3 +90,11 @@ one hand in these strange creatures
 She'd soon began hunting
 : Treacle said Get to repeat lessons.
 
+
+## Wikilinks load test
+
+[[bristlelike horst]]
+[[hexed suborder percoidea]]
+[[noncommercial jampot]]
+[[obviating war hawk]]
+[[gray-haired undergraduate]]

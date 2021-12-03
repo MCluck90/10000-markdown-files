@@ -76,3 +76,11 @@ Soles and perhaps your Majesty
 they'll all because they you've seen
 : Turn a piece out now thought it as usual height indeed were gardeners at a railway station.
 
+
+## Wikilinks load test
+
+[[minuscular genus achillea]]
+[[penetrable badminton court]]
+[[travel-soiled cesar franck]]
+[[prokaryotic scientist]]
+[[consolidative almond willow]]

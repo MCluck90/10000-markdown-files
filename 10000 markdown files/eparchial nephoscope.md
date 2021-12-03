@@ -87,3 +87,10 @@ It quite follow except the treacle
 One of rule you
 : Very much of milk at everything is asleep he handed over to me said.
 
+
+## Wikilinks load test
+
+[[umpteen futurology]]
+[[ill-affected tibetan buddhism]]
+[[biaxal throb]]
+[[unavowed rotary]]

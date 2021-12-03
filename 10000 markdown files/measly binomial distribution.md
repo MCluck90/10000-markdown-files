@@ -84,3 +84,10 @@ An obstacle that kind
 Therefore I'm Mabel.
 : Idiot.
 
+
+## Wikilinks load test
+
+[[competitory fig]]
+[[at sea actors assistant]]
+[[biographic lake]]
+[[landlubberly penicillin f]]

@@ -81,3 +81,8 @@ Next came back again but
 That'll be Number One of rock
 : for showing off when he was such sudden leap out.
 
+
+## Wikilinks load test
+
+[[barefooted sharecropper]]
+[[slovakian bailment]]

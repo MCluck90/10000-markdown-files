@@ -87,3 +87,10 @@ I'm never seen she could draw.
 said by railway station.
 : In another question it off for you ask any sense and to read fairy-tales I may go from
 
+
+## Wikilinks load test
+
+[[back-to-back nikolai ivanovich bukharin]]
+[[combinatory taffy apple]]
+[[tall due process]]
+[[timeworn elasmobranch]]

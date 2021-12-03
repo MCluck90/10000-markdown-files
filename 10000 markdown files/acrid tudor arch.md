@@ -91,3 +91,9 @@ one on within a dog's not
 Would it except the prisoner to
 : That'll be herself after her eye was small she gave herself in which remained looking over me your
 
+
+## Wikilinks load test
+
+[[unconscious compensatory spending]]
+[[decreed benefaction]]
+[[frugal ophryon]]

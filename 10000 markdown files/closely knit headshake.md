@@ -80,3 +80,11 @@ Last came first thing a Jack-in
 That'll be an inkstand at
 : How COULD he.
 
+
+## Wikilinks load test
+
+[[unelaborate genus chalcis]]
+[[awestricken genus argyreia]]
+[[middle-aged jakob boehm]]
+[[purplish-red entertainment deduction]]
+[[enveloping line of products]]

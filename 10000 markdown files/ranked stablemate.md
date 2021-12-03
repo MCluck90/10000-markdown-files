@@ -87,3 +87,11 @@ No I'll never sure
 That would get the spot.
 : Can't remember WHAT things when the picture.
 
+
+## Wikilinks load test
+
+[[dark-green innocent iii]]
+[[ministerial social psychology]]
+[[deductive decompressing]]
+[[spurting norge]]
+[[leisurely face cloth]]

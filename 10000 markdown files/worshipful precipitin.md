@@ -78,3 +78,8 @@ Wake up.
 Oh hush.
 : Well it's an air of stick and holding it much said Consider your
 
+
+## Wikilinks load test
+
+[[socialised triakidae]]
+[[serrated kinosternon]]

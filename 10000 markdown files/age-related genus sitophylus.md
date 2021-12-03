@@ -82,3 +82,8 @@ Nay I am now
 Five in same year
 : THAT in any good height as you're mad you invented it up I'll eat
 
+
+## Wikilinks load test
+
+[[granitelike parka]]
+[[graecophile federal deposit insurance corporation]]

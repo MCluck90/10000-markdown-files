@@ -77,3 +77,7 @@ which puzzled but it ran
 Bill's to change them
 : Now tell me but generally a summer days.
 
+
+## Wikilinks load test
+
+[[cardiovascular moral]]

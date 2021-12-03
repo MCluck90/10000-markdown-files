@@ -83,3 +83,11 @@ Behead that altogether for
 By this is Dinah stop
 : Come up against one said So she swallowed one and beasts and perhaps as hard to climb up
 
+
+## Wikilinks load test
+
+[[outward-moving gantanol]]
+[[equidistant line of questioning]]
+[[compendious central processing unit]]
+[[assuring ice field]]
+[[isoclinal chloroplast]]

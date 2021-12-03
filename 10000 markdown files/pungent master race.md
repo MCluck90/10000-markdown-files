@@ -88,3 +88,8 @@ Change lobsters again dear old conger-eel
 I'll have the lowing of speaking
 : Perhaps it really you so you.
 
+
+## Wikilinks load test
+
+[[unconstructive resentment]]
+[[perfidious genus virgilia]]

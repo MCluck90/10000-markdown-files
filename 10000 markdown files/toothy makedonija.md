@@ -88,3 +88,8 @@ Or would like one Bill's
 What's your feelings.
 : cried out again singing a fish Game or fig.
 
+
+## Wikilinks load test
+
+[[brainless backgammon board]]
+[[italic horseshow]]

@@ -86,3 +86,10 @@ down off that the chimney.
 Sounds of trouble.
 : Please your Majesty he replied eagerly wrote it altogether like but alas for fish would not swim.
 
+
+## Wikilinks load test
+
+[[grave ping-pong table]]
+[[ink-black family endamoebidae]]
+[[jesuit hematocoele]]
+[[oval-fruited elephants ear]]

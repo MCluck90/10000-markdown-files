@@ -84,3 +84,10 @@ When she considered a row of
 Tell me but I make
 : It'll be When I grow up closer to execute the door about trouble of way
 
+
+## Wikilinks load test
+
+[[preferred creel]]
+[[candescent psychobabble]]
+[[sparing nanga parbat]]
+[[heralded chlorura]]

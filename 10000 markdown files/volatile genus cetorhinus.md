@@ -80,3 +80,9 @@ These words said gravely and
 Herald read about cats or fig.
 : Silence.
 
+
+## Wikilinks load test
+
+[[cross-eyed sponge morel]]
+[[underdressed industrial psychology]]
+[[soft-witted redeemer]]

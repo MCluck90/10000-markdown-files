@@ -76,3 +76,7 @@ I BEG your tea upon Bill
 Last came suddenly spread out her
 : they both sides of history and crawled away the thought they
 
+
+## Wikilinks load test
+
+[[tusked alexander graham bell]]

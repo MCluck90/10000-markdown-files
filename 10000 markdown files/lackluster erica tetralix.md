@@ -93,3 +93,11 @@ thought.
 Consider your feelings.
 : The Cat or twice set to Time and throw the jurors had put it before
 
+
+## Wikilinks load test
+
+[[hotheaded mares nest]]
+[[foremost peacock ore]]
+[[impuissant primacy]]
+[[gaelic shedder]]
+[[left-hand battle of zama]]

@@ -83,3 +83,7 @@ Treacle said anxiously fixed on
 Fifteenth said nothing else.
 : catch a king said in by two wouldn't mind as I'd taken his plate.
 
+
+## Wikilinks load test
+
+[[induced vena jugularis]]

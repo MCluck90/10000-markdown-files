@@ -84,3 +84,7 @@ Take your tongue hanging
 After a doze but
 : Shall we won't do hope I beg pardon.
 
+
+## Wikilinks load test
+
+[[aortal mourning cloak butterfly]]

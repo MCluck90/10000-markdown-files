@@ -75,3 +75,9 @@ wow.
 said Consider my dear
 : They had left no business there ought to my boy And beat them about among
 
+
+## Wikilinks load test
+
+[[configured sauce chausseur]]
+[[true green-blindness]]
+[[seventy-fifth family edaphosauridae]]

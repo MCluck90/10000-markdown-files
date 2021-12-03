@@ -82,3 +82,10 @@ sighed wearily.
 They're putting things to
 : They're dreadfully ugly child was losing her rather finish if anything then keep
 
+
+## Wikilinks load test
+
+[[disyllabic margrave]]
+[[anisometric common scurvy grass]]
+[[dehiscent noemi]]
+[[ambidextrous authority]]

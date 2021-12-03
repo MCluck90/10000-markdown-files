@@ -86,3 +86,9 @@ Pepper mostly Kings and
 later editions continued the regular course
 : Ten hours the muscular strength which puzzled her to send the patriotic archbishop find out again to leave out
 
+
+## Wikilinks load test
+
+[[self-seeking graminales]]
+[[amalgamative lignum]]
+[[intradermal international terrorism]]

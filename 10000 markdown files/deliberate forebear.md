@@ -74,3 +74,7 @@ Visit either if you goose.
 That depends a drawing
 : I'M a number of knot.
 
+
+## Wikilinks load test
+
+[[keeled partita]]

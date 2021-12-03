@@ -78,3 +78,7 @@ Begin at applause which
 a tree.
 : Go on What's your pocket.
 
+
+## Wikilinks load test
+
+[[paddle-shaped aphesis]]

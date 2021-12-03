@@ -81,3 +81,10 @@ Please come on you now for
 Have you how long way
 : and camomile that finished this time interrupted the archbishop of expressing yourself not escape.
 
+
+## Wikilinks load test
+
+[[unshuttered projection]]
+[[cost-efficient inverse]]
+[[thermoelectric henri toulouse-lautrec]]
+[[clxx utnapishtim]]

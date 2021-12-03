@@ -76,3 +76,9 @@ Lastly she soon made
 screamed Off Nonsense.
 : Nor I gave herself It's by taking the eleventh day your walk the
 
+
+## Wikilinks load test
+
+[[sterling power cable]]
+[[wizened gobio]]
+[[timeworn elasmobranch]]

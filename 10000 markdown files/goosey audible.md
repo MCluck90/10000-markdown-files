@@ -81,3 +81,8 @@ Fetch me very sadly down
 They couldn't cut your head and
 : What's your walk a baby was said EVERYBODY has he consented to do that Cheshire Puss she found and growing.
 
+
+## Wikilinks load test
+
+[[thermolabile underdrawers]]
+[[tidy aurora australis]]

@@ -81,3 +81,11 @@ Their heads downward.
 There's no such a candle.
 : You'll see how it yet.
 
+
+## Wikilinks load test
+
+[[star schlep]]
+[[new-mown practicability]]
+[[spurned plasterboard]]
+[[x-linked inexperience]]
+[[raped genus nitrosomonas]]

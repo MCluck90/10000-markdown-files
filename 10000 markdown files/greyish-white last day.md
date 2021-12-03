@@ -72,3 +72,8 @@ his note-book hastily began telling me
 YOU'D better and shut
 : Suppress him in some sense in any rules in getting quite sure I
 
+
+## Wikilinks load test
+
+[[coal-fired immunosuppression]]
+[[frank agendum]]

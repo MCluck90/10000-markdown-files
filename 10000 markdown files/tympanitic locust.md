@@ -80,3 +80,8 @@ Idiot.
 won't she carried the meeting
 : Back to fly Like a partner.
 
+
+## Wikilinks load test
+
+[[brownish-green family mantispidae]]
+[[projecting detonating device]]

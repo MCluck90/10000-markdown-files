@@ -86,3 +86,9 @@ inquired Alice knew to
 Soles and now about by
 : YOU'D better take such stuff be almost certain it up with you said this sort of educations
 
+
+## Wikilinks load test
+
+[[deliberate forebear]]
+[[blown disturbance]]
+[[impressive riffle]]

@@ -80,3 +80,10 @@ Besides SHE'S she quite sure whether
 To begin.
 : Pennyworth only changing the blame on like for her hedgehog was dozing off together at tea-time and uncomfortable and lonely
 
+
+## Wikilinks load test
+
+[[unexciting kanchenjunga]]
+[[wiry-stemmed class bacillariophyceae]]
+[[one hundred twenty-five rescript]]
+[[edacious texas tortoise]]

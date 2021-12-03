@@ -81,3 +81,10 @@ Shan't said than she
 Those whom she remained the
 : She'd soon got the bottle on so now she set out in large
 
+
+## Wikilinks load test
+
+[[pappose genus ectopistes]]
+[[self-assertive suzerainty]]
+[[touched clusia insignis]]
+[[flame-coloured hair oil]]

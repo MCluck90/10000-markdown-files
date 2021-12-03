@@ -73,3 +73,8 @@ See how is over other
 These words EAT ME
 : Idiot.
 
+
+## Wikilinks load test
+
+[[underclothed sparganium]]
+[[unlocated genus corokia]]

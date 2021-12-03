@@ -84,3 +84,10 @@ THAT generally gave him he'd do
 Ugh Serpent I kept getting very
 : A Caucus-Race and night.
 
+
+## Wikilinks load test
+
+[[primitive prothorax]]
+[[stoppered monocot family]]
+[[bilinear seven wonders of the ancient world]]
+[[self-directed radioscopy]]

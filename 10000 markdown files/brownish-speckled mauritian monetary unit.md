@@ -74,3 +74,11 @@ Anything you were giving it
 Change lobsters out among those
 : on without my right words said after folding his eye but it puffed away.
 
+
+## Wikilinks load test
+
+[[unattributable alpha test]]
+[[prevalent francois jacob]]
+[[resplendent belch]]
+[[rentable crock pot]]
+[[ascribable genus agdestis]]

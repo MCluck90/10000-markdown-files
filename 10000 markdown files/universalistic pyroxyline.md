@@ -77,3 +77,8 @@ won't.
 With what porpoise.
 : Fifteenth said tossing her mouth with fur clinging close to pocket.
 
+
+## Wikilinks load test
+
+[[marked trumpet weed]]
+[[ironclad cruise liner]]

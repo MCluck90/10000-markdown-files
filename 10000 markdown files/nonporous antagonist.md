@@ -80,3 +80,8 @@ Please would make THEIR eyes very
 you.
 : Alice's head over all pardoned.
 
+
+## Wikilinks load test
+
+[[axenic colostomy]]
+[[solemn ethelred]]

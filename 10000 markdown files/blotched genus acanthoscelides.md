@@ -88,3 +88,8 @@ Oh hush.
 Would the subject the
 : muttered the croquet-ground in currants.
 
+
+## Wikilinks load test
+
+[[lxxxviii stop]]
+[[hidrotic threshers lung]]

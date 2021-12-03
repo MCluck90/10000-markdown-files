@@ -77,3 +77,9 @@ Whoever lives there were silent.
 Beautiful beautiful Soup.
 : Sentence first.
 
+
+## Wikilinks load test
+
+[[inward-moving alienor]]
+[[sensible genus bowiea]]
+[[absorbing coccidia]]

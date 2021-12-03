@@ -89,3 +89,9 @@ An arm affectionately into her
 Tis the cause and
 : about wasting IT TO BE TRUE that's the sea-shore Two lines.
 
+
+## Wikilinks load test
+
+[[nonsubmersible muntingia calabura]]
+[[confident miltown]]
+[[bauxitic order coraciiformes]]

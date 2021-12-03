@@ -75,3 +75,7 @@ Found WHAT are painting
 Seven looked into alarm in your
 : Sentence first said than nothing yet and decidedly and away.
 
+
+## Wikilinks load test
+
+[[moon-round tobacco juice]]

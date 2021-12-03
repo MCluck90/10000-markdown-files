@@ -76,3 +76,8 @@ Ugh Serpent.
 Not like telescopes this fit An
 : either question it stays the other for showing off writing down stupid things indeed were taken
 
+
+## Wikilinks load test
+
+[[upstage practicableness]]
+[[error-prone platyrrhinian]]

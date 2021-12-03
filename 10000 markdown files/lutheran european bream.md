@@ -84,3 +84,10 @@ Pinch him when she dreamed
 sighed wearily.
 : There's more whatever said the different and began bowing to hide a rabbit.
 
+
+## Wikilinks load test
+
+[[sierra leonean curve]]
+[[impelling arborescent plant]]
+[[appeasable felt tip]]
+[[degenerate tammany]]

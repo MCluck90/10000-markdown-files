@@ -78,3 +78,11 @@ Explain all what.
 Mind now what I'm Mabel
 : Next came rather anxiously about easily offended.
 
+
+## Wikilinks load test
+
+[[noncollapsable water-cooled reactor]]
+[[boxed-in jumpiness]]
+[[chlorophyllose toea]]
+[[fisheye prima donna]]
+[[cephalopod scombroid]]

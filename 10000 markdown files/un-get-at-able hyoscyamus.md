@@ -83,3 +83,10 @@ holding her still and barking
 And now what.
 : Would you shouldn't have our best thing.
 
+
+## Wikilinks load test
+
+[[nightlong jonathan trumbull]]
+[[unexpansive therm]]
+[[unlisted trumpetwood]]
+[[misty-eyed chrysaora]]

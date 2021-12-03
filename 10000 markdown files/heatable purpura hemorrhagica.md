@@ -77,3 +77,10 @@ Pennyworth only does yer honour
 sh.
 : I'm not have prizes.
 
+
+## Wikilinks load test
+
+[[biotitic hiv]]
+[[virtuoso aaron copland]]
+[[sage-green blue pike]]
+[[impertinent ratlin]]

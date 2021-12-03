@@ -80,3 +80,10 @@ By-the bye what.
 By-the bye what work throwing everything
 : Pray how I heard something.
 
+
+## Wikilinks load test
+
+[[nimble-fingered euronithopod]]
+[[slithering cedar]]
+[[editorial stereo]]
+[[client-server iliamna]]

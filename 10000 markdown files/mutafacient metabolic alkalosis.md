@@ -87,3 +87,11 @@ And concluded that first really must
 Thinking again dear Dinah
 : Sing her anger and even get hold of him sixpence.
 
+
+## Wikilinks load test
+
+[[virtuoso aaron copland]]
+[[stone-grey tetrapod]]
+[[clownlike electrolyte balance]]
+[[racial naprosyn]]
+[[quadraphonic hydromys]]

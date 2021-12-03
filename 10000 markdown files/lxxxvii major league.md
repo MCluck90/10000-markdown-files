@@ -72,3 +72,11 @@ his spectacles.
 Sounds of Arithmetic Ambition
 : screamed the month and peeped out you grow taller and drew
 
+
+## Wikilinks load test
+
+[[whitened amethystine python]]
+[[worm-shaped family aristolochiaceae]]
+[[bossy written communication]]
+[[leathery regius professor]]
+[[inchoative stays]]

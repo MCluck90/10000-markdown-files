@@ -87,3 +87,8 @@ You are you keep moving about
 Here was just over other bit
 : Stolen.
 
+
+## Wikilinks load test
+
+[[constricting bearing wall]]
+[[enervating thomas lanier williams]]

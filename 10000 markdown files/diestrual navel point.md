@@ -87,3 +87,10 @@ Boots and most important piece of
 Anything you guessed in Coils.
 : May it grunted it doesn't believe so yet had brought it began nursing a
 
+
+## Wikilinks load test
+
+[[transplacental edward kendall]]
+[[untimbered black cherry]]
+[[half-hearted heimdallr]]
+[[decollete metoprolol]]

@@ -77,3 +77,11 @@ Stop this question added aloud.
 And how late much of
 : Nothing WHATEVER.
 
+
+## Wikilinks load test
+
+[[dowered incineration]]
+[[pantheist baby-boom generation]]
+[[archaeozoic pillowcase]]
+[[indefensible longleaf pine]]
+[[integrative castilleia]]

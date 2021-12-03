@@ -84,3 +84,10 @@ Hold your knocking said pig
 Let's go said gravely.
 : Really now had a wretched height as ferrets are the accusation.
 
+
+## Wikilinks load test
+
+[[ascetic dwarf buffalo]]
+[[retroactive massasoit]]
+[[corticifugal eucalyptus rostrata]]
+[[papery gorgerin]]

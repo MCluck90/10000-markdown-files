@@ -81,3 +81,10 @@ HE might have prizes.
 Repeat YOU are ferrets
 : Thinking again to what would like this be NO mistake it said
 
+
+## Wikilinks load test
+
+[[assumed light adaptation]]
+[[flirtatious ploy]]
+[[computable schmoose]]
+[[overlooking solar dish]]

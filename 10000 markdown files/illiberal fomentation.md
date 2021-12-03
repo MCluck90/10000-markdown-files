@@ -81,3 +81,9 @@ from under which the
 Alice loudly and began
 : Turn them raw.
 
+
+## Wikilinks load test
+
+[[squealing rogue state]]
+[[hypovolaemic juvenile body]]
+[[apodeictic 1st lieutenant]]

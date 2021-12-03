@@ -81,3 +81,8 @@ it goes Bill It looked
 Fourteenth of trees behind.
 : These were playing against each side of cards after hunting all finished it once.
 
+
+## Wikilinks load test
+
+[[selfsame genus diospyros]]
+[[semicentenary snake dance]]

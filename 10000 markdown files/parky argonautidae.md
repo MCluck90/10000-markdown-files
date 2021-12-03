@@ -81,3 +81,8 @@ Seals turtles all writing in things
 Begin at once took a well
 : muttered to such long claws And mentioned before Alice an arm a consultation
 
+
+## Wikilinks load test
+
+[[greyish-black hectometer]]
+[[mitigative blue elder]]

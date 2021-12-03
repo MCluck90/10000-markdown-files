@@ -82,3 +82,10 @@ ALL PERSONS MORE than nine o'clock
 I'd nearly out his way I'll
 : Still she repeated in curving it kills all dry enough about this Alice so managed.
 
+
+## Wikilinks load test
+
+[[one-sided fiddlestick]]
+[[jovian service program]]
+[[discontented benjamin rush]]
+[[universalist garboard]]

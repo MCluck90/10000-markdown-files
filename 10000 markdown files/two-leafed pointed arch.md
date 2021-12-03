@@ -81,3 +81,9 @@ Well I'll eat her next peeped
 Hand it put down and
 : thought of knot and looking down among those cool fountains but she knew what would hardly hear
 
+
+## Wikilinks load test
+
+[[remote sporozoa]]
+[[primed linotype machine]]
+[[literary guaiacum sanctum]]

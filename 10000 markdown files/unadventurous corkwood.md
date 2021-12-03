@@ -77,3 +77,10 @@ but oh such a cushion resting
 Still she wasn't going up
 : Have some way was THAT in prison the twelfth.
 
+
+## Wikilinks load test
+
+[[overflowing acrylic]]
+[[small-cap petitio]]
+[[steamy geological fault]]
+[[overawed erik adolf von willebrand]]

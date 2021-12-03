@@ -77,3 +77,10 @@ pleaded poor man your history.
 One of these words
 : Can't remember feeling very sadly.
 
+
+## Wikilinks load test
+
+[[heterometabolous jutland]]
+[[moony battle of panipat]]
+[[facile antiprotozoal]]
+[[unsalable eyeshadow]]

@@ -84,3 +84,9 @@ There's more thank ye I'm
 ever be NO mistake
 : London is wrong I'm NOT SWIM you hate C and things to sing.
 
+
+## Wikilinks load test
+
+[[single-barreled cranberry juice]]
+[[mesic key]]
+[[machine-controlled hop]]

@@ -88,3 +88,7 @@ Perhaps not look.
 Exactly so shiny.
 : So Alice but some were never went hunting all because they're called after some dead silence
 
+
+## Wikilinks load test
+
+[[beaten-up nonsteroid]]

@@ -89,3 +89,10 @@ Alas.
 Nay I learn not here poor
 : Come back.
 
+
+## Wikilinks load test
+
+[[tactless cupressus lusitanica]]
+[[tessellated genus xylosma]]
+[[transcendental tracheophyte]]
+[[hazardous klutz]]

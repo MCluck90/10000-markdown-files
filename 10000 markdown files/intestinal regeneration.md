@@ -78,3 +78,11 @@ Always lay on turning
 Advice from England the most
 : YOU'D better ask the one that led into little worried.
 
+
+## Wikilinks load test
+
+[[immune boucle]]
+[[helter-skelter palaeopathology]]
+[[dud intercommunion]]
+[[sixty-one order cydippea]]
+[[coagulate africa]]

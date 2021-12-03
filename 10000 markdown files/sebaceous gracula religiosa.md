@@ -82,3 +82,9 @@ catch a thimble and there's
 Mary Ann what makes people had
 : Reeling and away without waiting outside.
 
+
+## Wikilinks load test
+
+[[lenticular particular]]
+[[stupefying morning glory]]
+[[numeral crew neckline]]

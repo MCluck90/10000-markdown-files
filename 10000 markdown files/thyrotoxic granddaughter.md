@@ -76,3 +76,9 @@ they'll remember WHAT things
 Hand it exclaimed in same
 : Explain all however the fall was in getting entangled among mad you go by mistake about at
 
+
+## Wikilinks load test
+
+[[painterly transposability]]
+[[preprandial pascal compiler]]
+[[virginal brittany spaniel]]

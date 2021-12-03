@@ -82,3 +82,10 @@ Just at poor child.
 Quick now I'm quite jumped
 : Soo oop.
 
+
+## Wikilinks load test
+
+[[southernmost clockwork]]
+[[arcadian feldspar]]
+[[presumable vitamin b6]]
+[[stiff-branched dioxide]]

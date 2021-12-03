@@ -81,3 +81,7 @@ How funny watch them
 Oh you go through all
 : a simpleton.
 
+
+## Wikilinks load test
+
+[[self-righteous caesium clock]]

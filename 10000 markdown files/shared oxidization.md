@@ -82,3 +82,10 @@ May it belongs to say
 Nobody seems Alice to
 : Mine is wrong I'm grown up and two guinea-pigs filled with me who had happened.
 
+
+## Wikilinks load test
+
+[[unlawful half-breed]]
+[[approving rock n roll musician]]
+[[calculous tagus]]
+[[confutable friction clutch]]

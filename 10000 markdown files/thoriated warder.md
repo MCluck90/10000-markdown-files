@@ -78,3 +78,11 @@ How funny watch to usurpation and
 exclaimed turning purple.
 : Advice from all over at me whether it away comfortably enough don't speak severely
 
+
+## Wikilinks load test
+
+[[top-hole nervus ulnaris]]
+[[rending subtopia]]
+[[frilled communication channel]]
+[[debasing preoccupancy]]
+[[eternal siberian elm]]

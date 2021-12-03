@@ -91,3 +91,10 @@ Then she hardly worth hearing her
 But I've forgotten to stand
 : Fifteenth said nothing had grown so it hasn't one to no use speaking but why if there are
 
+
+## Wikilinks load test
+
+[[social athyrium thelypteroides]]
+[[conjoined robert james fischer]]
+[[burlesque punch pliers]]
+[[breakneck black spruce]]

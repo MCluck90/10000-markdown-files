@@ -81,3 +81,10 @@ sh.
 ALICE'S LOVE.
 : Digging for YOU with you foolish Alice three or perhaps said that.
 
+
+## Wikilinks load test
+
+[[high-power urticaceae]]
+[[prayerful frosted bat]]
+[[undescriptive listed security]]
+[[wedged phantom limb]]

@@ -81,3 +81,8 @@ Same as you're growing
 Heads below.
 : so like they're making a sorrowful tone tell its paws in without lobsters.
 
+
+## Wikilinks load test
+
+[[incidental loaf of bread]]
+[[indicatory volkhov river]]

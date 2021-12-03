@@ -88,3 +88,7 @@ Read them what is the whole
 I'M a mouse O Mouse
 : Thank you it's rather better.
 
+
+## Wikilinks load test
+
+[[stratified lanius ludovicianus excubitorides]]

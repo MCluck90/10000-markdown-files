@@ -77,3 +77,11 @@ Fourteenth of Mercia and Seven
 Two began staring at it
 : They're done.
 
+
+## Wikilinks load test
+
+[[undetectable equus hemionus]]
+[[awless vena facialis]]
+[[dumpy stumpknocker]]
+[[tapered grand river]]
+[[further vacuum gage]]

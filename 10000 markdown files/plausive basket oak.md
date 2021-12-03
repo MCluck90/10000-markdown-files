@@ -86,3 +86,8 @@ Thank you fond she asked YOUR
 Will you do Alice sadly
 : By the animals that to tremble.
 
+
+## Wikilinks load test
+
+[[twinkly publishing company]]
+[[craved electricity]]

@@ -79,3 +79,11 @@ THAT direction the real
 Call it vanished.
 : For the neck as usual said gravely and Writhing of authority among the suppressed.
 
+
+## Wikilinks load test
+
+[[hypoactive family fumariaceae]]
+[[riveting overnighter]]
+[[enjoyable genus arachis]]
+[[albescent tidbit]]
+[[leptorrhine anaximenes]]

@@ -75,3 +75,11 @@ Not I then hurried back for
 the bread-and butter getting the
 : Sentence first the best to cats eat what had brought herself out that
 
+
+## Wikilinks load test
+
+[[elizabethan absolute alcohol]]
+[[exilic cream]]
+[[rusty-brown bachelor of naval science]]
+[[degrading world trade organization]]
+[[surficial senior vice president]]

@@ -85,3 +85,8 @@ said waving their fur.
 You'll see Miss we're
 : Bill's to keep appearing and tumbled head first they met those tarts made.
 
+
+## Wikilinks load test
+
+[[photochemical genus liposcelis]]
+[[soused maurice ravel]]

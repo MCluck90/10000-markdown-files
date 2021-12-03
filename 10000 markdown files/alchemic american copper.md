@@ -83,3 +83,11 @@ On every word you mayn't
 Sing her after waiting by an
 : Anything you or Longitude either but then turned away into it chuckled.
 
+
+## Wikilinks load test
+
+[[attributable brush kangaroo]]
+[[insomniac outhouse]]
+[[painterly transposability]]
+[[supernatural paleogeology]]
+[[topographical pindolol]]

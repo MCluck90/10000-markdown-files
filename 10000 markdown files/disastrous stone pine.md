@@ -80,3 +80,11 @@ Soo oop.
 Next came first the locks I
 : Have some time for asking.
 
+
+## Wikilinks load test
+
+[[clxx utnapishtim]]
+[[brumal multiplicative inverse]]
+[[rancorous blister copper]]
+[[superficial break dance]]
+[[head-in-the-clouds hypochondriac]]

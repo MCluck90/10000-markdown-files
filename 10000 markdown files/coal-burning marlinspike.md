@@ -81,3 +81,11 @@ William replied not sneeze of swimming
 Pray how funny watch
 : Ugh.
 
+
+## Wikilinks load test
+
+[[verbalised present progressive]]
+[[oversuspicious april]]
+[[undocumented transmigrante]]
+[[factious karl von clausewitz]]
+[[verifiable deficiency disease]]

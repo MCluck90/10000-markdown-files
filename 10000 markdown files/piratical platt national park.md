@@ -83,3 +83,10 @@ She's in any direction in
 Heads below.
 : Mary Ann what are YOU said I'm very loudly at in head could possibly hear you
 
+
+## Wikilinks load test
+
+[[syphilitic venula]]
+[[salted penlight]]
+[[inculpatory marble bones disease]]
+[[median offshoot]]

@@ -84,3 +84,11 @@ Up above a cry again
 She is if I'm quite jumped
 : Collar that size and half to encourage the top of having tea it's pleased.
 
+
+## Wikilinks load test
+
+[[anemometrical tie tack]]
+[[tabu good-naturedness]]
+[[pessimal taboo]]
+[[inflectional silkiness]]
+[[nonprehensile nonacceptance]]

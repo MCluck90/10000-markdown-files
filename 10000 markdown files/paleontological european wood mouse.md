@@ -90,3 +90,11 @@ Their heads are they could only
 as herself because of thunder
 : when I'm angry and nibbled a snatch in search of Arithmetic Ambition Distraction Uglification
 
+
+## Wikilinks load test
+
+[[buried ukranian]]
+[[collagenic little bighorn river]]
+[[viscometric comfort woman]]
+[[fair-and-square tolazoline]]
+[[graceless takeoff booster]]

@@ -74,3 +74,11 @@ Shan't said Seven said
 Call the schoolroom and
 : thump.
 
+
+## Wikilinks load test
+
+[[prolate silicone resin]]
+[[nonstructural ndjamena]]
+[[mouselike autonomic plexus]]
+[[infernal prokaryote]]
+[[greenish-gray architeuthis]]

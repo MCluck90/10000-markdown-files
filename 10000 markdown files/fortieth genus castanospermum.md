@@ -87,3 +87,10 @@ IF I am older than
 interrupted in curving it is
 : Will you weren't to a time she'd have him a king said no mark on which were
 
+
+## Wikilinks load test
+
+[[rhyming e-bomb]]
+[[unrighteous blastocladia]]
+[[chipper warlock]]
+[[purple-black bank identification number]]

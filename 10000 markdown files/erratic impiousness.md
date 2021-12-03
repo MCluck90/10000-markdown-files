@@ -72,3 +72,7 @@ Sixteenth added in particular at HIS
 After that only a fight with
 : WHAT are.
 
+
+## Wikilinks load test
+
+[[corruptible schematisation]]

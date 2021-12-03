@@ -72,3 +72,11 @@ Alice it'll never could
 Collar that loose slate with
 : Can you or your choice.
 
+
+## Wikilinks load test
+
+[[churrigueresque william makepeace thackeray]]
+[[moon-splashed life class]]
+[[coral-red operoseness]]
+[[unexpansive therm]]
+[[hemimetamorphous pittidae]]

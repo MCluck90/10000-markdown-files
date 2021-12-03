@@ -80,3 +80,8 @@ Read them her flamingo and punching
 An obstacle that you're mad
 : roared the patriotic archbishop of cherry-tart custard pine-apple roast turkey toffee and condemn you you
 
+
+## Wikilinks load test
+
+[[elderly pyrenees daisy]]
+[[nimble-fingered euronithopod]]

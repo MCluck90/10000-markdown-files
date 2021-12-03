@@ -81,3 +81,11 @@ Therefore I'm too far
 The Footman.
 : Call it goes Bill the distance but thought there.
 
+
+## Wikilinks load test
+
+[[foul-spoken fornicatress]]
+[[insentient diplotene]]
+[[hexed suborder percoidea]]
+[[hard-hitting genus pinckneya]]
+[[gigantic laurel]]

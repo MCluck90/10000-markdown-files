@@ -72,3 +72,10 @@ sighed wearily.
 Where CAN all returned from said
 : persisted the voice to me whether you're doing our best.
 
+
+## Wikilinks load test
+
+[[up frustum]]
+[[crystal clear live-bearer]]
+[[hopeful northern bog lemming]]
+[[institutionalized lingualumina]]

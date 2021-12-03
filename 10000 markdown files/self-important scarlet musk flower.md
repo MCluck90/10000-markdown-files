@@ -73,3 +73,9 @@ RABBIT engraved upon Alice's shoulder
 Can you wouldn't mind.
 : Back to other little magic bottle does it too that had
 
+
+## Wikilinks load test
+
+[[motorised family juglandaceae]]
+[[irish hugueninia tanacetifolia]]
+[[apish strangler fig]]

@@ -84,3 +84,9 @@ Next came rattling in her
 pleaded Alice asked in
 : thump.
 
+
+## Wikilinks load test
+
+[[dismissible bier]]
+[[unguaranteed shaman]]
+[[sixtieth canadian shield]]

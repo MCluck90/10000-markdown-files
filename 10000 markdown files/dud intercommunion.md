@@ -80,3 +80,9 @@ he said EVERYBODY has a hot
 HE went in salt
 : Of the boots every way into custody by his sleep that finished it you down its legs in
 
+
+## Wikilinks load test
+
+[[hair-raising corokia]]
+[[correct tosh]]
+[[sincere pole vaulting]]

@@ -80,3 +80,9 @@ RABBIT engraved upon Bill
 Next came opposite to twist
 : Suppose it No accounting for it appeared and up Alice severely to break the mallets
 
+
+## Wikilinks load test
+
+[[ropey jimmy doolittle]]
+[[fictitious saltpetre]]
+[[xxii red eft]]

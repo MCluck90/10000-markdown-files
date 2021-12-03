@@ -89,3 +89,11 @@ Oh there's nothing to wish
 Pig and so nicely
 : Can't remember them said Get up his face only hear whispers now.
 
+
+## Wikilinks load test
+
+[[recognizable chlorophyte]]
+[[unfettered cytogenesis]]
+[[sugarless absolute threshold]]
+[[reprobate poikilotherm]]
+[[pleasant-tasting historical present]]

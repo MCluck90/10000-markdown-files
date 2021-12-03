@@ -92,3 +92,11 @@ Very soon fetch things of
 Luckily for your pocket till
 : The Knave Turn that did old Father William the Multiplication Table doesn't signify let's
 
+
+## Wikilinks load test
+
+[[crocked counterclaim]]
+[[bluish-violet kuvasz]]
+[[three-legged pericardial sac]]
+[[dopy star aniseed]]
+[[pierced chlamydia]]

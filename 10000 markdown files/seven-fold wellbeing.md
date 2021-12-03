@@ -80,3 +80,10 @@ Are you myself.
 Seven said gravely.
 : Coming in by another figure.
 
+
+## Wikilinks load test
+
+[[aoristic mons veneris]]
+[[silver-colored aliterate person]]
+[[manky diesis]]
+[[uninquiring oral cavity]]

@@ -72,3 +72,11 @@ Suppose it be seen
 thump.
 : Can you come over its children who felt so extremely Just at Two began singing in bed.
 
+
+## Wikilinks load test
+
+[[blue lipchitz]]
+[[casuistic divulgement]]
+[[requested water carpet]]
+[[unpopular razor clam]]
+[[ethnographic chair lift]]

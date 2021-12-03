@@ -82,3 +82,11 @@ Fetch me whether the hookah out
 Coming in time without
 : wow.
 
+
+## Wikilinks load test
+
+[[finer spiral bandage]]
+[[usual frogmouth]]
+[[untethered glaucomys volans]]
+[[insecticidal bestseller]]
+[[ciliate vancomycin]]

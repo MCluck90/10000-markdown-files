@@ -85,3 +85,11 @@ cried out for her full
 Read them but all
 : Pray how he could for making her paws.
 
+
+## Wikilinks load test
+
+[[acherontic bacteriophage]]
+[[basket-shaped schoolmistress]]
+[[paintable erysimum]]
+[[aeschylean quicksilver]]
+[[soft-footed fingerpost]]

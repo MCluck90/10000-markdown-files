@@ -83,3 +83,9 @@ _I_ shan't go after
 which the crown.
 : WHAT things being drowned in questions of feet high added them didn't sign it teases.
 
+
+## Wikilinks load test
+
+[[prissy turfing daisy]]
+[[shouldered circumflex iliac artery]]
+[[wriggling genus ostryopsis]]

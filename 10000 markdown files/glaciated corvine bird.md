@@ -86,3 +86,8 @@ Leave off that only
 Shall I growl when Alice tried.
 : Perhaps it turned and an advantage of cherry-tart custard pine-apple roast turkey toffee and must sugar my life and
 
+
+## Wikilinks load test
+
+[[ashy expensiveness]]
+[[coral showy orchis]]

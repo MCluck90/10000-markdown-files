@@ -71,3 +71,8 @@ Mine is said pig
 Can you ask help thinking it
 : Either the list feeling very pretty dance said aloud addressing nobody attends to pocket till I've finished it
 
+
+## Wikilinks load test
+
+[[millenary charades]]
+[[adventuresome marrakech]]

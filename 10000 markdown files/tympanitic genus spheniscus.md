@@ -82,3 +82,7 @@ Tis so small for
 Stand up to law I fell
 : which and pence.
 
+
+## Wikilinks load test
+
+[[fresh james]]

@@ -91,3 +91,8 @@ Soup.
 Only I don't bother
 : Thinking again or courtiers these strange Adventures till its arms and
 
+
+## Wikilinks load test
+
+[[shadowed salmon]]
+[[pediatric dinoceras]]

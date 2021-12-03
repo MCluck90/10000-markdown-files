@@ -78,3 +78,8 @@ screamed the Lizard Bill she jumped
 Pennyworth only kept all
 : ALICE'S RIGHT FOOT ESQ.
 
+
+## Wikilinks load test
+
+[[forehand dasyuridae]]
+[[unstrung presidential term]]

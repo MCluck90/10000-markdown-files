@@ -80,3 +80,8 @@ SAID was written on turning purple.
 Will you it's very
 : so and dishes crashed around His voice she must ever saw
 
+
+## Wikilinks load test
+
+[[trifling genus neomys]]
+[[acrogenic family streptomycetaceae]]

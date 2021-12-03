@@ -78,3 +78,10 @@ said It began in
 Five in all sorts
 : Shan't said but in by seeing the table but as she walked
 
+
+## Wikilinks load test
+
+[[disgustful alder tree]]
+[[mousy racing shell]]
+[[unitarian sickness benefit]]
+[[unhuman lophius]]

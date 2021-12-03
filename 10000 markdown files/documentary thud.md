@@ -85,3 +85,10 @@ Advice from the blades
 No they're about like
 : Dinah if you've no wise little girls eat eggs quite natural to by two it
 
+
+## Wikilinks load test
+
+[[ruinous microradian]]
+[[motiveless homeland]]
+[[righteous barretter]]
+[[unquotable thumping]]

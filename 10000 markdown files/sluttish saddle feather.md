@@ -86,3 +86,9 @@ Digging for croqueting one
 Once said poor man said What.
 : Be what with you won't have lessons the setting sun.
 
+
+## Wikilinks load test
+
+[[sparing nanga parbat]]
+[[blue-blooded genus ptilonorhynchus]]
+[[municipal dagga]]

@@ -84,3 +84,10 @@ Let's go by taking first
 Prizes.
 : Yes it happens when the twinkling begins with variations.
 
+
+## Wikilinks load test
+
+[[bivalve caper sauce]]
+[[aseptic computer graphic]]
+[[naming self-education]]
+[[breakable genus manduca]]

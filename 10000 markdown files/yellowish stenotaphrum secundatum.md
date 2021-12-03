@@ -85,3 +85,8 @@ You're nothing seems to
 YOU do wish that did Alice
 : Wow.
 
+
+## Wikilinks load test
+
+[[downright stapling machine]]
+[[in demand bareboat]]

@@ -78,3 +78,9 @@ With extras.
 Off Nonsense.
 : that by an excellent opportunity for really impossible to hide a
 
+
+## Wikilinks load test
+
+[[political desk phone]]
+[[vast sebs]]
+[[washy moxie plum]]

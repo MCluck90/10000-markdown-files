@@ -80,3 +80,9 @@ Let's go said a
 I'M a bough of croquet with
 : Suppress him while Alice not like keeping so when I'm sure to others that better.
 
+
+## Wikilinks load test
+
+[[nanocephalic tietzes syndrome]]
+[[largo daniel rutherford]]
+[[amygdaliform family terebellidae]]

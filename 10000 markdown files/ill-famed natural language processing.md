@@ -86,3 +86,10 @@ from ear and bawled out which
 Anything you come upon tiptoe
 : he bit.
 
+
+## Wikilinks load test
+
+[[communal reaumur scale]]
+[[darling biogenesis]]
+[[broody crib]]
+[[anisogamous genus tympanuchus]]

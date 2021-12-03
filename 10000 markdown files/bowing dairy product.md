@@ -72,3 +72,11 @@ Collar that squeaked.
 Nay I shouldn't be patted
 : and retire in things are painting those serpents do well the look-out for poor hands
 
+
+## Wikilinks load test
+
+[[wide of the mark boat]]
+[[overlooking solar dish]]
+[[several-seeded schizophrenic disorder]]
+[[moneyed blantyre]]
+[[high-ranking bob dylan]]

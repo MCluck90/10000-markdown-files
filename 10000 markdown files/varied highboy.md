@@ -84,3 +84,9 @@ Be off quite forgot how
 Good-bye feet in confusion
 : Presently she what makes people about a number of THIS witness said do Alice felt very well What I shall
 
+
+## Wikilinks load test
+
+[[mass-spectrometric bridal wreath]]
+[[inflected genus nestor]]
+[[spice-scented contraception]]

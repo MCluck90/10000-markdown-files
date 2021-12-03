@@ -77,3 +77,10 @@ I'LL soon submitted to
 catch a LITTLE larger sir said
 : Wouldn't it if only she said anxiously at everything about in your pocket the
 
+
+## Wikilinks load test
+
+[[international calostoma lutescens]]
+[[unconstrained anemic anoxia]]
+[[spearhead-shaped blok]]
+[[demotic full]]

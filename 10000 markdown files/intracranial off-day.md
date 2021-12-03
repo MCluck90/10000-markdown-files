@@ -81,3 +81,8 @@ Back to dull reality the
 Said cunning old fellow.
 : .
 
+
+## Wikilinks load test
+
+[[naturalized red bat]]
+[[sheepish neurosurgeon]]

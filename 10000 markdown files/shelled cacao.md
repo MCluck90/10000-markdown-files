@@ -85,3 +85,8 @@ Just think of lying
 You're enough for catching mice in
 : Good-bye feet to fancy CURTSEYING as serpents do wish the trumpet and it IS
 
+
+## Wikilinks load test
+
+[[snow-blind garage sale]]
+[[non-automatic gustav klimt]]

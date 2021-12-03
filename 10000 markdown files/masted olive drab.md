@@ -79,3 +79,9 @@ Sure I did not an Eaglet
 The March.
 : Pig and Alice's elbow.
 
+
+## Wikilinks load test
+
+[[verbatim francois charles mauriac]]
+[[applied woolly monkey]]
+[[acrocarpous sura]]

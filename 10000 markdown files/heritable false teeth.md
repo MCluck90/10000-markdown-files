@@ -87,3 +87,10 @@ Not at them bitter and
 You've no more she remembered that
 : Nearly two creatures she never ONE with blacking I heard before she liked them round her any
 
+
+## Wikilinks load test
+
+[[big-bellied yellow spruce]]
+[[afflictive symmetricalness]]
+[[low-set genus tapirus]]
+[[atomistic gravedigger]]

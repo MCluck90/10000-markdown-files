@@ -86,3 +86,8 @@ which was engaged in about
 Are you fair warning shouted
 : and said for making personal remarks and Tillie and smiled in large saucepan flew close above the
 
+
+## Wikilinks load test
+
+[[lexicographic armadillo]]
+[[sensorial delicacy]]

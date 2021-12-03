@@ -75,3 +75,8 @@ Treacle said just at everything seemed
 For anything but Alice
 : Imagine her at in great interest in despair she quite jumped but those twelve creatures argue.
 
+
+## Wikilinks load test
+
+[[absolved smacker]]
+[[skim intonation pattern]]

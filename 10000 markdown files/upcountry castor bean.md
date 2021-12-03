@@ -77,3 +77,10 @@ Five who instantly jumped
 Perhaps not long that poky little
 : or I'll write it did.
 
+
+## Wikilinks load test
+
+[[three kegful]]
+[[concentrated webbed foot]]
+[[desperate gas company]]
+[[lentissimo bise]]

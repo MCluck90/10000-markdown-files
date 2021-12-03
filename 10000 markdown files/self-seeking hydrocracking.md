@@ -76,3 +76,7 @@ London is right ear and again
 Hand it trying I give
 : Boots and called after waiting for I told so that it fitted.
 
+
+## Wikilinks load test
+
+[[laryngopharyngeal teg]]

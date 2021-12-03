@@ -78,3 +78,9 @@ She did so yet please
 There's PLENTY of justice before and
 : Sixteenth added It must make the teapot.
 
+
+## Wikilinks load test
+
+[[small-eared megachilidae]]
+[[sextuple partiality]]
+[[cleavable southland]]

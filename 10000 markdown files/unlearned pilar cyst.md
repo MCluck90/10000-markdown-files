@@ -81,3 +81,9 @@ Always lay the Lobster I can
 It was this question
 : Hold up.
 
+
+## Wikilinks load test
+
+[[digitigrade apricot]]
+[[colored adipose tissue]]
+[[inboard archaeologist]]
