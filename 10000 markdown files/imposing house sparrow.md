@@ -88,8 +88,5 @@ See how old it hasn't
 
 ## Wikilinks load test
 
-[[wormlike grandchild]]
-[[impromptu jamestown]]
-[[gimcrack enrollee]]
-[[tortuous family strombidae]]
-[[esophageal family comatulidae]]
+[[scurfy heather]]
+[[backlink load test]]

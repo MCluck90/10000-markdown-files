@@ -86,7 +86,6 @@ There's more simply Never mind about
 
 ## Wikilinks load test
 
-[[rifled raffaello sanzio]]
-[[pitiable cicatrix]]
-[[inexhaustible quartz battery]]
-[[pancake-style stock-in-trade]]
+[[deliberate forebear]]
+[[northbound surgical operation]]
+[[backlink load test]]

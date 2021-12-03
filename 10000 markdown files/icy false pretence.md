@@ -81,8 +81,5 @@ I'LL soon make out Sit down
 
 ## Wikilinks load test
 
-[[formal soleirolia soleirolii]]
-[[talented stalino]]
-[[sharp republic of ireland]]
-[[shady ken kesey]]
-[[extreme philibert delorme]]
+[[unforceful tricolor television tube]]
+[[backlink load test]]

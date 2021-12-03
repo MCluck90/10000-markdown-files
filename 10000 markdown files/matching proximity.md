@@ -86,5 +86,8 @@ exclaimed turning into this time round
 
 ## Wikilinks load test
 
-[[creditworthy porterhouse]]
-[[hatted genus smilax]]
+[[tabby infrared ray]]
+[[cogitative iditarod trail]]
+[[violet-flowered fatty acid]]
+[[rested hoodmould]]
+[[backlink load test]]

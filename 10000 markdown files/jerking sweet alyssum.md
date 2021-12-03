@@ -86,6 +86,8 @@ Ahem.
 
 ## Wikilinks load test
 
-[[tutelary chimonanthus praecox]]
-[[overindulgent diagnostic technique]]
-[[frivolous great-nephew]]
+[[denaturised blue baby]]
+[[braw zinc sulfide]]
+[[needlelike reflecting telescope]]
+[[flagging water on the knee]]
+[[backlink load test]]

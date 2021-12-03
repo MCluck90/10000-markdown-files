@@ -80,5 +80,5 @@ on.
 
 ## Wikilinks load test
 
-[[perturbing hymenopteron]]
-[[brownish-green family mantispidae]]
+[[interrogatory issue]]
+[[backlink load test]]

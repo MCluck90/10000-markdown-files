@@ -92,6 +92,8 @@ Thank you have nothing on each
 
 ## Wikilinks load test
 
-[[plumy bovril]]
-[[untroubled dogfish]]
-[[unchallenged aussie]]
+[[glacial polyuria]]
+[[thoughtful heuchera americana]]
+[[cymose viscidity]]
+[[schmaltzy morel]]
+[[backlink load test]]

@@ -85,7 +85,7 @@ they lessen from beginning
 
 ## Wikilinks load test
 
-[[inadmissible tea table]]
-[[falsetto nautical mile]]
-[[tall-stalked norway]]
-[[discreet capillary fracture]]
+[[sylphlike cecropia]]
+[[aseptic computer graphic]]
+[[resounding myanmar monetary unit]]
+[[backlink load test]]

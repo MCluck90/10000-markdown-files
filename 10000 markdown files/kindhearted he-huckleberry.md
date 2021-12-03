@@ -80,6 +80,6 @@ Beautiful beautiful Soup.
 
 ## Wikilinks load test
 
-[[inward-moving alienor]]
-[[sensible genus bowiea]]
-[[absorbing coccidia]]
+[[licenced loads]]
+[[maneuverable automatic washer]]
+[[backlink load test]]

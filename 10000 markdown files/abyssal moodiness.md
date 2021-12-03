@@ -84,8 +84,8 @@ Chorus again using the newspapers
 
 ## Wikilinks load test
 
-[[torturesome sympathetic strike]]
-[[laotian hotel desk clerk]]
-[[whole-wheat genus juglans]]
-[[silty neurotoxin]]
-[[autobiographical throat sweetbread]]
+[[caliche-topped armenian apostolic orthodox church]]
+[[advective pesticide]]
+[[tearless st. anselm]]
+[[nonfat athabaskan]]
+[[backlink load test]]

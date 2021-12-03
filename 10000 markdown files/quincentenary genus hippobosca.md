@@ -83,8 +83,6 @@ Tell her best cat Dinah I
 
 ## Wikilinks load test
 
-[[sodding test paper]]
-[[crownless wars of the roses]]
-[[decayed bowdleriser]]
-[[sheeplike commanding officer]]
-[[semiprivate statuette]]
+[[volant pennisetum setaceum]]
+[[cypriote sagittarius the archer]]
+[[backlink load test]]

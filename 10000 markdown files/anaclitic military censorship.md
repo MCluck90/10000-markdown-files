@@ -91,6 +91,5 @@ I'd have lived much more
 
 ## Wikilinks load test
 
-[[god-awful morceau]]
-[[anemometrical tie tack]]
-[[gamey chromatic scale]]
+[[arrant carissa plum]]
+[[backlink load test]]

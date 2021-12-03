@@ -92,6 +92,6 @@ Our family always get
 
 ## Wikilinks load test
 
-[[one hundred thirty punning]]
-[[mirky tack hammer]]
-[[pseudoperipteral symmetry]]
+[[bicylindrical ping-pong table]]
+[[rhapsodic freemason]]
+[[backlink load test]]

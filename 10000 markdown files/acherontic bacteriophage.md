@@ -87,8 +87,8 @@ Pepper For this same words were
 
 ## Wikilinks load test
 
-[[preponderating sinus coronarius]]
-[[maximum luggage carrousel]]
-[[greenish-brown parent]]
-[[uremic lubricator]]
-[[neuroanatomical erudition]]
+[[dexter full-wave rectifier]]
+[[clubbish horizontality]]
+[[litigious decentalisation]]
+[[frilly family phaethontidae]]
+[[backlink load test]]

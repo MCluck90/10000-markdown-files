@@ -82,8 +82,8 @@ To begin please sir just like
 
 ## Wikilinks load test
 
-[[one hundred fifty soiree]]
-[[cairned vestryman]]
-[[schematic vincenzo bellini]]
-[[jagged claptrap]]
-[[paradigmatic praetor]]
+[[argent drive-by killing]]
+[[asyndetic english lady crab]]
+[[supplicant norwegian]]
+[[self-pollinated louis the stammerer]]
+[[backlink load test]]

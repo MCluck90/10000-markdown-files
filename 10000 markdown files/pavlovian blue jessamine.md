@@ -88,5 +88,8 @@ Sing her at that size.
 
 ## Wikilinks load test
 
-[[disciplinary fall armyworm]]
-[[tipsy petticoat]]
+[[mnemonic dog racing]]
+[[nuts iris pallida]]
+[[precipitating mistletoe cactus]]
+[[luxemburger beef broth]]
+[[backlink load test]]

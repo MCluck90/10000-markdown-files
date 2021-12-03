@@ -90,8 +90,8 @@ Two days.
 
 ## Wikilinks load test
 
-[[bashful genus frankliniella]]
-[[euphoric capital of argentina]]
-[[sustained force majeure]]
-[[congenital austen]]
-[[inedible high church]]
+[[laotian hotel desk clerk]]
+[[bucked up latency period]]
+[[quadrupedal blastomyces]]
+[[abroach shell ginger]]
+[[backlink load test]]

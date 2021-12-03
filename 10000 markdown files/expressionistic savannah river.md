@@ -90,8 +90,5 @@ Twinkle twinkle twinkle and feebly stretching
 
 ## Wikilinks load test
 
-[[nonsocial genus carum]]
-[[jural saddler]]
-[[secretarial relevance]]
-[[epenthetic lobscuse]]
-[[internal invisibleness]]
+[[exciting indri brevicaudatus]]
+[[backlink load test]]

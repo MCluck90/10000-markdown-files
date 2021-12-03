@@ -88,8 +88,9 @@ Alice doubtfully it advisable
 
 ## Wikilinks load test
 
-[[unsupervised monkey nut]]
-[[hittite airman]]
-[[slow-moving qadhafi]]
-[[self-assertive suzerainty]]
-[[high-stepping acromikria]]
+[[perfect boding]]
+[[enlightened soupcon]]
+[[largish buckbean]]
+[[carbonyl seagull]]
+[[coarse-grained saber saw]]
+[[backlink load test]]

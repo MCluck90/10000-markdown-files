@@ -84,8 +84,8 @@ Down the Knave did
 
 ## Wikilinks load test
 
-[[furrowed cercopithecus talapoin]]
-[[mantled electric fan]]
-[[live holy day]]
-[[shrinkable clique]]
-[[supererogatory dispiritedness]]
+[[presumable vitamin b6]]
+[[nonsexual herbert marcuse]]
+[[unwedded mayacaceae]]
+[[gutless advanced research and development activity]]
+[[backlink load test]]

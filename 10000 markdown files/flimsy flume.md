@@ -89,8 +89,5 @@ Pat.
 
 ## Wikilinks load test
 
-[[victorious erigeron philadelphicus]]
-[[dissatisfied phoneme]]
-[[gaunt subphylum tunicata]]
-[[severed juvenile body]]
-[[debasing preoccupancy]]
+[[overambitious holiday]]
+[[backlink load test]]

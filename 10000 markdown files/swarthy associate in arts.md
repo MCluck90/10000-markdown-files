@@ -82,6 +82,6 @@ Nobody moved.
 
 ## Wikilinks load test
 
-[[brumal multiplicative inverse]]
-[[caesural mother theresa]]
-[[omnibus collard]]
+[[ashy lateral geniculate]]
+[[provoked pyridoxal]]
+[[backlink load test]]

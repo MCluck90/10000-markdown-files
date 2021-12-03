@@ -75,6 +75,7 @@ Prizes.
 
 ## Wikilinks load test
 
-[[scalic castor fiber]]
-[[imprecise genus calocarpum]]
-[[huffish genus commiphora]]
+[[spare cardiovascular system]]
+[[entertaining dayton axe]]
+[[roundish kaiser bill]]
+[[backlink load test]]

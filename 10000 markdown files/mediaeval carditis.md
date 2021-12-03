@@ -87,8 +87,6 @@ Behead that squeaked.
 
 ## Wikilinks load test
 
-[[lackluster erica tetralix]]
-[[naturalized light circuit]]
-[[lowbrowed soft-shell clam]]
-[[isolable pussys-paw]]
-[[mysophobic grand duchy of luxembourg]]
+[[heightening baldness]]
+[[chylifactive archangel]]
+[[backlink load test]]

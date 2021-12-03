@@ -80,6 +80,6 @@ Go on muttering over me alone.
 
 ## Wikilinks load test
 
-[[frigorific estrus]]
-[[slain short whist]]
-[[daring sawdust doll]]
+[[y2k compliant aviatress]]
+[[yugoslavian misreading]]
+[[backlink load test]]

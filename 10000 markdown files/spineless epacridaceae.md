@@ -92,6 +92,6 @@ Boots and shouting Off Nonsense.
 
 ## Wikilinks load test
 
-[[gradual tile]]
-[[hulking gladness]]
-[[squabby lunch meat]]
+[[pleasant-tasting hemiramphidae]]
+[[web-toed articulated lorry]]
+[[backlink load test]]

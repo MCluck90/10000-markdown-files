@@ -83,5 +83,6 @@ Two lines.
 
 ## Wikilinks load test
 
-[[tiger-striped task]]
-[[polydactyl osmundaceae]]
+[[affixal diplopoda]]
+[[zestful crepe fern]]
+[[backlink load test]]

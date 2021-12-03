@@ -80,5 +80,9 @@ Pig.
 
 ## Wikilinks load test
 
-[[supersensitized example]]
-[[internal invisibleness]]
+[[ferine easter cactus]]
+[[epicurean squint]]
+[[pockmarked stinging hair]]
+[[unprogressive davallia]]
+[[astringent pennycress]]
+[[backlink load test]]

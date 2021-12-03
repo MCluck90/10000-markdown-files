@@ -85,7 +85,5 @@ What's your pardon your
 
 ## Wikilinks load test
 
-[[ill-mannered curtain raiser]]
-[[inflatable disembodied spirit]]
-[[vedic belonidae]]
-[[irish hugueninia tanacetifolia]]
+[[even-tempered lagger]]
+[[backlink load test]]

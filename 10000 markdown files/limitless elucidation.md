@@ -94,8 +94,6 @@ Everything's got thrown out his sleep
 
 ## Wikilinks load test
 
-[[strapless rat chinchilla]]
-[[orthodontic birth]]
-[[exterminated great-nephew]]
-[[farseeing chincapin]]
-[[libyan lithuresis]]
+[[carved in stone bookmaker]]
+[[ovine sacrament of the eucharist]]
+[[backlink load test]]

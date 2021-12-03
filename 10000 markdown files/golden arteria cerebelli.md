@@ -76,5 +76,5 @@ An enormous puppy whereupon
 
 ## Wikilinks load test
 
-[[euphonic snow line]]
-[[mirky water-soluble vitamin]]
+[[checked resting potential]]
+[[backlink load test]]

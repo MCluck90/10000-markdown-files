@@ -82,8 +82,7 @@ Now you want YOU
 
 ## Wikilinks load test
 
-[[attacking hackelia]]
-[[unwarrantable moldovan monetary unit]]
-[[edentulate pulsatilla]]
-[[unsoundable liverleaf]]
-[[intergalactic accusal]]
+[[decorous speck]]
+[[close-hauled gordie howe]]
+[[vulpine overactivity]]
+[[backlink load test]]

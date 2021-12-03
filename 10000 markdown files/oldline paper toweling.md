@@ -79,7 +79,7 @@ I'd only ten minutes to set
 
 ## Wikilinks load test
 
-[[falsetto nautical mile]]
-[[aflare closing curtain]]
-[[fawn-coloured east wind]]
-[[hundred-and-twentieth milk sickness]]
+[[algebraical crowfoot family]]
+[[honduran garbage pickup]]
+[[bitty police officer]]
+[[backlink load test]]

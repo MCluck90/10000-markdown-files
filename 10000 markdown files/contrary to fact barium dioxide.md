@@ -84,6 +84,6 @@ An enormous puppy it made
 
 ## Wikilinks load test
 
-[[foiled lemon zest]]
-[[arrhythmic antique]]
-[[protozoal kilderkin]]
+[[delayed preceptor]]
+[[anglo-jewish alternanthera]]
+[[backlink load test]]

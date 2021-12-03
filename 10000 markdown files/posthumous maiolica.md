@@ -82,6 +82,8 @@ Same as for turns
 
 ## Wikilinks load test
 
-[[edentate drumlin]]
-[[petrous sterculia gum]]
-[[mediterranean drift ice]]
+[[spellbound jainism]]
+[[endozoic stirk]]
+[[biedermeier knight templar]]
+[[supraocular bladdernose]]
+[[backlink load test]]

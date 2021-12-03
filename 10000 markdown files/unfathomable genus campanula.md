@@ -90,8 +90,9 @@ catch a wretched Hatter were perfectly
 
 ## Wikilinks load test
 
-[[dyadic buddy]]
-[[mellifluous electronic mail]]
-[[demanding bill of particulars]]
-[[unspecific air medal]]
-[[sneering saccade]]
+[[unfettered cytogenesis]]
+[[biting redeye flight]]
+[[starving self-insurance]]
+[[livelong clergy]]
+[[self-effacing genus nepeta]]
+[[backlink load test]]

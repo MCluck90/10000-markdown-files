@@ -80,4 +80,5 @@ Really my dears.
 
 ## Wikilinks load test
 
-[[empty burrill bernard crohn]]
+[[undecipherable beaked whale]]
+[[backlink load test]]

@@ -87,6 +87,8 @@ CHORUS.
 
 ## Wikilinks load test
 
-[[paranormal casava]]
-[[caparisoned nonintervention]]
-[[offbeat yacca]]
+[[coral balarama]]
+[[warm-toned true marmoset]]
+[[terrene upstager]]
+[[empty salix alba sericea]]
+[[backlink load test]]

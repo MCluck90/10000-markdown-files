@@ -76,5 +76,5 @@ from.
 
 ## Wikilinks load test
 
-[[nepali tremor]]
-[[ineluctable phosphocreatine]]
+[[crisp hexanedioic acid]]
+[[backlink load test]]

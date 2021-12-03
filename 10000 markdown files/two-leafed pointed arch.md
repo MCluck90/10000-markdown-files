@@ -84,6 +84,9 @@ Hand it put down and
 
 ## Wikilinks load test
 
-[[remote sporozoa]]
-[[primed linotype machine]]
-[[literary guaiacum sanctum]]
+[[h-shaped logicality]]
+[[checked resting potential]]
+[[araceous phylogeny]]
+[[archaeozoic pillowcase]]
+[[ceaseless irrationality]]
+[[backlink load test]]

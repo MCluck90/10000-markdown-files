@@ -82,5 +82,7 @@ What's in reply it
 
 ## Wikilinks load test
 
-[[double-bedded passing shot]]
-[[wrinkleproof sir robert walpole]]
+[[perfect boding]]
+[[demolished electrical contact]]
+[[briton gudgeon pin]]
+[[backlink load test]]

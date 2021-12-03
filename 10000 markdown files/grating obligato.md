@@ -93,5 +93,6 @@ Stupid things that.
 
 ## Wikilinks load test
 
-[[hypertonic rubia]]
-[[undrinkable ngultrum]]
+[[volumetrical temporal gyrus]]
+[[postganglionic file cabinet]]
+[[backlink load test]]

@@ -82,5 +82,9 @@ Mind that better not stand
 
 ## Wikilinks load test
 
-[[brainy fern seed]]
-[[self-luminous the virgin]]
+[[reassuring dacryocystitis]]
+[[sabine inferior conjunction]]
+[[amidship pretence]]
+[[destructive guy fawkes]]
+[[hundred thousand cosmic microwave background radiation]]
+[[backlink load test]]

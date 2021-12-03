@@ -82,8 +82,6 @@ She'll get it while
 
 ## Wikilinks load test
 
-[[chanceful donatism]]
-[[pentavalent non-catholic]]
-[[wrapped refiner]]
-[[sleeved rubus chamaemorus]]
-[[overgreedy identity operator]]
+[[inured chamfer bit]]
+[[deadlocked phalaenopsis amabilis]]
+[[backlink load test]]

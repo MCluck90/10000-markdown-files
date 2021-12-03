@@ -80,7 +80,7 @@ Still she turned to ME.
 
 ## Wikilinks load test
 
-[[augean tourniquet]]
-[[monomaniacal supremacy]]
-[[roaring giorgio de chirico]]
-[[shrinkable clique]]
+[[seaborne physostegia virginiana]]
+[[peloponnesian ethmoid bone]]
+[[hatless matthew walker knot]]
+[[backlink load test]]

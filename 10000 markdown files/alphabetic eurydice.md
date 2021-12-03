@@ -82,8 +82,6 @@ IT DOES THE BOOTS AND WASHING
 
 ## Wikilinks load test
 
-[[trusty plumed tussock]]
-[[burnished war to end war]]
-[[homelike mattole]]
-[[geosynchronous hill myna]]
-[[lxxxii placer miner]]
+[[sure instruction manual]]
+[[awless bamboo palm]]
+[[backlink load test]]

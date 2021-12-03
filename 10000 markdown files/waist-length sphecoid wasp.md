@@ -94,8 +94,8 @@ Last came Oh it's coming.
 
 ## Wikilinks load test
 
-[[award-winning premature labour]]
-[[judaic display panel]]
-[[contrasty lounge lizard]]
-[[longanimous sphere of influence]]
-[[cubiform doctrine of analogy]]
+[[dutch pusher]]
+[[succulent saxifraga oppositifolia]]
+[[frilled communication channel]]
+[[elastic acetonemia]]
+[[backlink load test]]

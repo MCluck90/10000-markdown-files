@@ -79,5 +79,6 @@ Alas.
 
 ## Wikilinks load test
 
-[[mutilated zalcitabine]]
-[[censorial ethnic minority]]
+[[right-minded pepsi]]
+[[half-baked arctic moss]]
+[[backlink load test]]

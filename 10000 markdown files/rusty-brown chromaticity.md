@@ -84,8 +84,6 @@ Stolen.
 
 ## Wikilinks load test
 
-[[whacking le]]
-[[forked john the evangelist]]
-[[mandatory machinery]]
-[[postulational mickey spillane]]
-[[cool frontbencher]]
+[[umbilical muslimism]]
+[[self-directed radioscopy]]
+[[backlink load test]]

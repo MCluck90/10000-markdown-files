@@ -90,7 +90,5 @@ Edwin and marked with either.
 
 ## Wikilinks load test
 
-[[neuromotor holometabolism]]
-[[cost-efficient gunboat diplomacy]]
-[[contested republic of ghana]]
-[[two-wheeled spoilation]]
+[[babelike red giant star]]
+[[backlink load test]]

@@ -92,5 +92,8 @@ Have you like ears and his
 
 ## Wikilinks load test
 
-[[trusty plumed tussock]]
-[[electrostatic scleroderma]]
+[[crocked counterclaim]]
+[[opencut schreibers aster]]
+[[unalarming little spotted skunk]]
+[[inexplicit orientalism]]
+[[backlink load test]]

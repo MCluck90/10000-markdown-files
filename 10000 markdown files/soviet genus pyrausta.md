@@ -88,8 +88,7 @@ Luckily for any.
 
 ## Wikilinks load test
 
-[[re-entrant combat neurosis]]
-[[myrmecophytic satureja douglasii]]
-[[large-minded quarterstaff]]
-[[putrefiable hoofer]]
-[[denumerable alpine bearberry]]
+[[felicitous nicolson]]
+[[catachrestic higi]]
+[[intense henry the great]]
+[[backlink load test]]

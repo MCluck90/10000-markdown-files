@@ -83,8 +83,6 @@ How brave they'll remember where HAVE
 
 ## Wikilinks load test
 
-[[eldest electronic device]]
-[[loyal good authority]]
-[[glacial polyuria]]
-[[sublimated fishing net]]
-[[christlike baldness]]
+[[sericeous elephantiasis scroti]]
+[[polygamous amianthum]]
+[[backlink load test]]

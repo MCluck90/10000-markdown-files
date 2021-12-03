@@ -76,4 +76,8 @@ Repeat YOU.
 
 ## Wikilinks load test
 
-[[southwest spotted antbird]]
+[[amygdaliform freeway]]
+[[chaetognathous mucous membrane]]
+[[graceless genus rangifer]]
+[[absolved smacker]]
+[[backlink load test]]

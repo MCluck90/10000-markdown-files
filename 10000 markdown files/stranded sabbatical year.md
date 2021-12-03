@@ -87,8 +87,7 @@ Tis so grave and shouted
 
 ## Wikilinks load test
 
-[[decentralised brushing]]
-[[disconcerting lining]]
-[[sixty-fourth horseshoer]]
-[[ascetic dwarf buffalo]]
-[[polygynous fjord]]
+[[world-weary pinus contorta]]
+[[doubled circus]]
+[[fatherlike savings and loan association]]
+[[backlink load test]]

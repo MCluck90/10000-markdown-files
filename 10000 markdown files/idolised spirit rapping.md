@@ -85,7 +85,7 @@ Twinkle twinkle Here one
 
 ## Wikilinks load test
 
-[[pop genus sturnella]]
-[[percutaneous langue doil]]
-[[intact psycholinguist]]
-[[compatible indian pony]]
+[[suburbanized tylenchus tritici]]
+[[fancy-free lek]]
+[[inheritable green olive]]
+[[backlink load test]]

@@ -87,4 +87,6 @@ You'll get dry again You make
 
 ## Wikilinks load test
 
-[[amenorrhoeic coronilla]]
+[[comatose aeonium]]
+[[torn irish strawberry]]
+[[backlink load test]]

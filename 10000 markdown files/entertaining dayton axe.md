@@ -83,5 +83,5 @@ on.
 
 ## Wikilinks load test
 
-[[ready and waiting valvulotomy]]
-[[threadlike airburst]]
+[[juristic manioca]]
+[[backlink load test]]

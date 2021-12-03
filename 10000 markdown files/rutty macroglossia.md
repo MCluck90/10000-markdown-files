@@ -90,8 +90,7 @@ Pinch him How funny
 
 ## Wikilinks load test
 
-[[homophonic malayalam]]
-[[ice-cold conchology]]
-[[pent ph scale]]
-[[archaean ado]]
-[[cottony-white apanage]]
+[[dyslexic scrutinizer]]
+[[wrinkle-resistant ebullience]]
+[[institutionalized lingualumina]]
+[[backlink load test]]

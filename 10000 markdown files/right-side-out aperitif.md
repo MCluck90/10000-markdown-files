@@ -89,7 +89,9 @@ Next came ten soldiers
 
 ## Wikilinks load test
 
-[[adjunctive decor]]
-[[unsatisfactory animal foot]]
-[[annihilating caplin]]
-[[frank agendum]]
+[[spoon-shaped pepto-bismal]]
+[[goblet-shaped lodgment]]
+[[off-base genus sphaerocarpus]]
+[[run-on tetrapturus]]
+[[ready-made tranquillizer]]
+[[backlink load test]]

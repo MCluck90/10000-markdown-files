@@ -84,8 +84,6 @@ then he checked herself
 
 ## Wikilinks load test
 
-[[unbarrelled family schistosomatidae]]
-[[disclosed ectoproct]]
-[[off-colour thraldom]]
-[[cooperative sinecure]]
-[[hit-and-run numerical quantity]]
+[[devoid milky way]]
+[[christly kilowatt]]
+[[backlink load test]]

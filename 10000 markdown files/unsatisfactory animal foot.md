@@ -80,8 +80,7 @@ Can't remember where Dinn
 
 ## Wikilinks load test
 
-[[belittling parted leaf]]
-[[snakelike lean-to tent]]
-[[air-to-ground express luxury liner]]
-[[geometrical osteoblast]]
-[[crinoid purple boneset]]
+[[jerking sweet alyssum]]
+[[impoverished aloe family]]
+[[tainted adios]]
+[[backlink load test]]

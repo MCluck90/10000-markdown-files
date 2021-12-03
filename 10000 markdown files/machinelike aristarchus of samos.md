@@ -86,5 +86,5 @@ Well of that poky
 
 ## Wikilinks load test
 
-[[instinct computer dealer]]
-[[major noontide]]
+[[nonpasserine potato fern]]
+[[backlink load test]]

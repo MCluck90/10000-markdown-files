@@ -88,8 +88,6 @@ Beau ootiful Soo oop.
 
 ## Wikilinks load test
 
-[[distraught multiengine plane]]
-[[splayfoot genus melolontha]]
-[[long-distance dance of death]]
-[[obvious geranium]]
-[[nonmeaningful rocky mountain bristlecone pine]]
+[[two-channel output-to-input ratio]]
+[[capacious plectrophenax]]
+[[backlink load test]]

@@ -79,8 +79,5 @@ ALL PERSONS MORE THAN A
 
 ## Wikilinks load test
 
-[[unliveable granadillo]]
-[[monaural cadmium yellow]]
-[[calcitic superior rectus muscle]]
-[[chlorophyllose toea]]
-[[semidetached misrepresentation]]
+[[untraditional kauai]]
+[[backlink load test]]

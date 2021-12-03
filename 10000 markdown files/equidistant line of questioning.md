@@ -88,8 +88,8 @@ Next came ten courtiers or
 
 ## Wikilinks load test
 
-[[congenital clothier]]
-[[unnoticeable oreopteris]]
-[[strong-minded genus dolichotis]]
-[[unquestioning angle of view]]
-[[unchecked moustache]]
+[[galilaean genus gastrophryne]]
+[[sundried coryza]]
+[[churned-up shiftiness]]
+[[anaclitic military censorship]]
+[[backlink load test]]

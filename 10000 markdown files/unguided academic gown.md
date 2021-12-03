@@ -80,5 +80,6 @@ YOU'D better Alice crouched down.
 
 ## Wikilinks load test
 
-[[world-weary pinus contorta]]
-[[adenoid subtitle]]
+[[bohemian venerator]]
+[[hispid agave cantala]]
+[[backlink load test]]

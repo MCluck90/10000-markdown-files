@@ -77,8 +77,8 @@ Not like you been was too
 
 ## Wikilinks load test
 
-[[toupeed tenderizer]]
-[[colicky auto-changer]]
-[[mucky adansonia digitata]]
-[[red-lavender glycyrrhiza]]
-[[handless climbing maidenhair]]
+[[appellate spalacidae]]
+[[rifled raffaello sanzio]]
+[[bloodthirsty krzysztof kieslowski]]
+[[unstinting supplement]]
+[[backlink load test]]

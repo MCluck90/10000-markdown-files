@@ -88,7 +88,5 @@ Go on each case
 
 ## Wikilinks load test
 
-[[vermiform north american]]
-[[slippy genus araucaria]]
-[[self-seeking working party]]
-[[younger myelocytic leukemia]]
+[[cathodic gentleness]]
+[[backlink load test]]

@@ -76,6 +76,7 @@ There's PLENTY of cucumber-frames there could
 
 ## Wikilinks load test
 
-[[orphaned junco hyemalis]]
-[[childish gummed label]]
-[[blurred stud mare]]
+[[constructive-metabolic archaism]]
+[[monoestrous lymantriid]]
+[[proximal agrostemma]]
+[[backlink load test]]

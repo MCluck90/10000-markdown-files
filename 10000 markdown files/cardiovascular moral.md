@@ -83,7 +83,6 @@ muttered the effect of comfits
 
 ## Wikilinks load test
 
-[[bimestrial ranunculus flammula]]
-[[shopsoiled glossodynia exfoliativa]]
-[[moldovan ring rot fungus]]
-[[floury gigabit]]
+[[aphoristic ball of fire]]
+[[equilateral utilisation]]
+[[backlink load test]]

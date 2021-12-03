@@ -86,8 +86,6 @@ HEARTHRUG NEAR THE VOICE OF ITS
 
 ## Wikilinks load test
 
-[[impaired bush vetch]]
-[[fossil geometry teacher]]
-[[geographical element 115]]
-[[illusory caramel bun]]
-[[squinty arrow wood]]
+[[hired enchanters nightshade]]
+[[formidable puebla]]
+[[backlink load test]]

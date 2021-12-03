@@ -79,8 +79,8 @@ when suddenly thump.
 
 ## Wikilinks load test
 
-[[frothy ribes sativum]]
-[[blanched caterpillar]]
-[[affectional order aspergillales]]
-[[geosynchronous hill myna]]
-[[retributive septation]]
+[[teachable slapshot]]
+[[apostate partial eclipse]]
+[[discretional revolutionary justice organization]]
+[[veinal gimpiness]]
+[[backlink load test]]

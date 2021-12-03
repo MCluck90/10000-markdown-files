@@ -89,8 +89,8 @@ Consider my tail when
 
 ## Wikilinks load test
 
-[[accipitrine turing machine]]
-[[dull-white copartnership]]
-[[dabbled lawcourt]]
-[[self-disciplined archaebacterium]]
-[[unbent dale]]
+[[pole-handled divorce lawyer]]
+[[aflare closing curtain]]
+[[acherontic adolphe sax]]
+[[delayed read-only memory chip]]
+[[backlink load test]]

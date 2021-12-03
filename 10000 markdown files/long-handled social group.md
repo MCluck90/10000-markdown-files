@@ -88,6 +88,6 @@ Half-past one flapper across
 
 ## Wikilinks load test
 
-[[limbed rocket engineer]]
-[[chatty smoking compartment]]
-[[unionised awayness]]
+[[sedulous moneron]]
+[[right-side-up quidnunc]]
+[[backlink load test]]

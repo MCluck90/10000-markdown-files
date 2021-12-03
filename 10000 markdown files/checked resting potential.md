@@ -88,6 +88,5 @@ Give your places ALL RETURNED FROM
 
 ## Wikilinks load test
 
-[[unvulcanized arabidopsis thaliana]]
-[[coarse-textured leontocebus rosalia]]
-[[cubical honore daumier]]
+[[ungetatable st. dabeocs heath]]
+[[backlink load test]]

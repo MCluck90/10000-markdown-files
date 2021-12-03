@@ -85,8 +85,5 @@ Stupid things everything about stopping herself
 
 ## Wikilinks load test
 
-[[accustomed pingpong paddle]]
-[[wintery jerom bos]]
-[[disarrayed conservator]]
-[[cathedral family haliotidae]]
-[[exogenous anomalopteryx oweni]]
+[[overflowing acrylic]]
+[[backlink load test]]

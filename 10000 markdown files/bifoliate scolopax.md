@@ -86,8 +86,5 @@ She can't explain it hasn't
 
 ## Wikilinks load test
 
-[[ribbed firetrap]]
-[[wordless rapid]]
-[[anthophilous amide]]
-[[severed provo]]
-[[endocentric blue baby]]
+[[pastel lobelia dortmanna]]
+[[backlink load test]]

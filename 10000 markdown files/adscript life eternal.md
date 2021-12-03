@@ -84,5 +84,9 @@ Call the great disgust and
 
 ## Wikilinks load test
 
-[[morbilliform catnap]]
-[[covetous resurrection fern]]
+[[traitorous harpers ferry]]
+[[procaryotic parathyroid hormone]]
+[[cartesian no-brainer]]
+[[shopsoiled ticket booth]]
+[[curly-grained edward james muggeridge]]
+[[backlink load test]]

@@ -83,8 +83,6 @@ She's in Coils.
 
 ## Wikilinks load test
 
-[[undrinkable ngultrum]]
-[[hedged quercus wizlizenii]]
-[[myelic potassium iodide]]
-[[parasympathetic are]]
-[[nurturant spread eagle]]
+[[insincere rue]]
+[[calcitic superior rectus muscle]]
+[[backlink load test]]

@@ -78,6 +78,5 @@ they'll all came ten
 
 ## Wikilinks load test
 
-[[complex hernaria glabra]]
-[[bionomic high-vitamin diet]]
-[[accumulated mysoline]]
+[[in force coral reef]]
+[[backlink load test]]

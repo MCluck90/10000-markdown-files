@@ -90,8 +90,9 @@ Can't remember feeling at
 
 ## Wikilinks load test
 
-[[javanese giza]]
-[[unmodulated richardson ground squirrel]]
-[[hardbound sylvan]]
-[[real colon]]
-[[inflected genus nestor]]
+[[aeronautical family laniidae]]
+[[monandrous daniel morgan]]
+[[fiducial comoros]]
+[[upper-lower-class fipple]]
+[[piebald chopstick]]
+[[backlink load test]]

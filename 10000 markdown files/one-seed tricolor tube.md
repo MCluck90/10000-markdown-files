@@ -91,7 +91,8 @@ Beau ootiful Soo oop.
 
 ## Wikilinks load test
 
-[[freehearted black-headed snake]]
-[[vacillating hector hugh munro]]
-[[sharp-angled dominican mahogany]]
-[[curly-grained skim]]
+[[rateable tenability]]
+[[bacilliform harbor seal]]
+[[striking sheet iron]]
+[[valvular balloon]]
+[[backlink load test]]

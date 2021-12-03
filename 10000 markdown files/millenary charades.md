@@ -79,8 +79,6 @@ Sounds of em together
 
 ## Wikilinks load test
 
-[[moved pipistrellus subflavus]]
-[[unlamented huguenot]]
-[[gynaecological drippiness]]
-[[sterilised leucanthemum vulgare]]
-[[sterile order gentianales]]
+[[tabby infrared ray]]
+[[telephonic playfellow]]
+[[backlink load test]]

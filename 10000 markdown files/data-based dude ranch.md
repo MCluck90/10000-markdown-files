@@ -84,7 +84,9 @@ Thank you usually see
 
 ## Wikilinks load test
 
-[[axonal cocktail party]]
-[[anthropometrical adroitness]]
-[[curvilinear misquotation]]
-[[decentralised brushing]]
+[[prismatic amnesiac]]
+[[linnaean integrator]]
+[[untreated anosmia]]
+[[empty-headed bonesetter]]
+[[fictitious saltpetre]]
+[[backlink load test]]

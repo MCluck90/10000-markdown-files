@@ -80,4 +80,9 @@ They were down it tricks very
 
 ## Wikilinks load test
 
-[[diametric regulator]]
+[[pyrotechnical duchesse de valentinois]]
+[[interstellar percophidae]]
+[[horror-struck artfulness]]
+[[megascopic bilestone]]
+[[debased scutigera]]
+[[backlink load test]]

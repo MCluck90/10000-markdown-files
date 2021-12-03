@@ -80,8 +80,7 @@ As they were trying which
 
 ## Wikilinks load test
 
-[[levelheaded epigastric fossa]]
-[[cathodic learners dictionary]]
-[[seaborne downslope]]
-[[silky-haired bald eagle]]
-[[self-limited backlighting]]
+[[expiratory hyoscyamus muticus]]
+[[churned-up lath and plaster]]
+[[antipathetical pugilist]]
+[[backlink load test]]

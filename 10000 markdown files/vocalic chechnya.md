@@ -86,6 +86,6 @@ Go on hearing anything tougher
 
 ## Wikilinks load test
 
-[[illuminating salt lick]]
-[[soft-nosed genus myriophyllum]]
-[[bifoliate scolopax]]
+[[alleviated tiffany]]
+[[wily james joyce]]
+[[backlink load test]]

@@ -83,6 +83,7 @@ Visit either the Gryphon
 
 ## Wikilinks load test
 
-[[urbanised rufous rubber cup]]
-[[pharisaical postgraduate]]
-[[abyssal moodiness]]
+[[wonderworking bahasa melayu]]
+[[purpose-made cephalotus]]
+[[glaswegian upstage]]
+[[backlink load test]]

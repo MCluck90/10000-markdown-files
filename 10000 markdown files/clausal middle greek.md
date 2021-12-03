@@ -85,6 +85,7 @@ about two which case I can't
 
 ## Wikilinks load test
 
-[[polyphonic segmented worm]]
-[[petty vocal]]
-[[in play red planet]]
+[[well-mined scleranthus]]
+[[venerating cotton cake]]
+[[god-awful morceau]]
+[[backlink load test]]

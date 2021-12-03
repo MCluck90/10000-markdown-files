@@ -87,6 +87,5 @@ They're dreadfully puzzled but when the
 
 ## Wikilinks load test
 
-[[self-aggrandising ruth]]
-[[thirty-four sausage pizza]]
-[[uzbekistani gaviiformes]]
+[[thicket-forming router]]
+[[backlink load test]]

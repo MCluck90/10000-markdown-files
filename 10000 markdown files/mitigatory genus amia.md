@@ -93,7 +93,6 @@ pleaded poor hands on
 
 ## Wikilinks load test
 
-[[tusked liquid measure]]
-[[frugal ophryon]]
-[[pucka ball cartridge]]
-[[combat-ready navigator]]
+[[assigned coffee substitute]]
+[[apnoeic halaka]]
+[[backlink load test]]

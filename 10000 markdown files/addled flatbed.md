@@ -86,6 +86,6 @@ which the crown.
 
 ## Wikilinks load test
 
-[[prissy turfing daisy]]
-[[shouldered circumflex iliac artery]]
-[[wriggling genus ostryopsis]]
+[[submissive pamir mountains]]
+[[waterproofed polyneuritic psychosis]]
+[[backlink load test]]

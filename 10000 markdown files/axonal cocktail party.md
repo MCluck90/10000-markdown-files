@@ -79,8 +79,6 @@ An invitation from her own child-life
 
 ## Wikilinks load test
 
-[[unfattened tubeless]]
-[[blue-fruited star-duckweed]]
-[[acanthous gorge]]
-[[half-witted francois villon]]
-[[admirable self-organisation]]
+[[unattributable alpha test]]
+[[ongoing power meter]]
+[[backlink load test]]

@@ -90,6 +90,9 @@ for you liked so and came
 
 ## Wikilinks load test
 
-[[heralded chlorura]]
-[[genotypical erectile organ]]
-[[rabble-rousing birthroot]]
+[[perturbed water nymph]]
+[[unfashionable idiopathic disorder]]
+[[wasp-waisted registered security]]
+[[billiard sir alexander mackenzie]]
+[[resolved gadus]]
+[[backlink load test]]

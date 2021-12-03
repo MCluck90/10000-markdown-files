@@ -76,6 +76,9 @@ With what porpoise Keep back
 
 ## Wikilinks load test
 
-[[stereo nuthatch]]
-[[short-stalked martes americana]]
-[[sticky cathode-ray oscilloscope]]
+[[toothy fragrant water lily]]
+[[woolen beerbohm]]
+[[fortieth genus castanospermum]]
+[[marked-up megalobatrachus maximus]]
+[[ninety-eight arsenic]]
+[[backlink load test]]

@@ -76,8 +76,9 @@ Exactly so full size and
 
 ## Wikilinks load test
 
-[[whiny nuptials]]
-[[chlorophyllous venter]]
-[[nidicolous joseph conrad]]
-[[eclectic methanogen]]
-[[purple cleavers]]
+[[depilatory double saucepan]]
+[[digitigrade apricot]]
+[[underbred megalocephaly]]
+[[unexpansive therm]]
+[[cxxx dent corn]]
+[[backlink load test]]

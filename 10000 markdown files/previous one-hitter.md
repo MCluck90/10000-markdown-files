@@ -77,4 +77,9 @@ Explain all advance twice
 
 ## Wikilinks load test
 
-[[stopped antelope chipmunk]]
+[[dominical fast day]]
+[[dressed to the nines enflurane]]
+[[flesh-eating harlem renaissance]]
+[[superposable defecator]]
+[[goblet-shaped lodgment]]
+[[backlink load test]]

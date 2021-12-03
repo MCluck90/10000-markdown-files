@@ -81,8 +81,5 @@ was too weak For he
 
 ## Wikilinks load test
 
-[[static white mulberry]]
-[[greyed trafficator]]
-[[glamorous fissure of sylvius]]
-[[half-bound limen]]
-[[unheeded adenoid]]
+[[ordinary carphophis amoenus]]
+[[backlink load test]]

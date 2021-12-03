@@ -83,7 +83,9 @@ I won't.
 
 ## Wikilinks load test
 
-[[frail surface lift]]
-[[bardic devanagari script]]
-[[ascetic dwarf buffalo]]
-[[placed ranviers nodes]]
+[[cantering round kumquat]]
+[[subordinating bog asphodel]]
+[[psychoneurotic alundum]]
+[[closemouthed national rifle association]]
+[[publicised sciolist]]
+[[backlink load test]]

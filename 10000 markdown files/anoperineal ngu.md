@@ -86,7 +86,5 @@ ALICE'S RIGHT FOOT ESQ.
 
 ## Wikilinks load test
 
-[[nonoscillatory ankylosis]]
-[[daft creosote]]
-[[pollyannaish bastardy proceeding]]
-[[augean tourniquet]]
+[[brainwashed onion plant]]
+[[backlink load test]]

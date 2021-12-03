@@ -93,6 +93,8 @@ Thinking again you incessantly
 
 ## Wikilinks load test
 
-[[gandhian cataract canyon]]
-[[unfattened striate vein]]
-[[vexing bordello]]
+[[asphyxiated limping]]
+[[horn-rimmed lawmaking]]
+[[intense stelis]]
+[[downright stapling machine]]
+[[backlink load test]]

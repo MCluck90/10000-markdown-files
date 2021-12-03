@@ -81,8 +81,8 @@ later editions continued turning into the
 
 ## Wikilinks load test
 
-[[absorbable oil tycoon]]
-[[two-humped ornithischian]]
-[[sombre birds eye]]
-[[periodontal genus alopecurus]]
-[[honey-colored wailing]]
+[[dextral earphone]]
+[[contralateral cockcroft and walton voltage multiplier]]
+[[impressionist silvanus]]
+[[invitatory hamamelidaceae]]
+[[backlink load test]]

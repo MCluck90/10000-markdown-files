@@ -84,6 +84,9 @@ I'd hardly room.
 
 ## Wikilinks load test
 
-[[tired sustaining pedal]]
-[[godforsaken stropharia]]
-[[membranous indiscipline]]
+[[venerable pandanaceae]]
+[[mandibulate desmodium gyrans]]
+[[undatable tetanus]]
+[[unthoughtful claxon]]
+[[hypoactive tare]]
+[[backlink load test]]

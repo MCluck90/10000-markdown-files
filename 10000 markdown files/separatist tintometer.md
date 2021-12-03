@@ -78,5 +78,5 @@ Begin at having tea
 
 ## Wikilinks load test
 
-[[unpalatable mariposa tulip]]
-[[amidship pretence]]
+[[beltlike payables]]
+[[backlink load test]]

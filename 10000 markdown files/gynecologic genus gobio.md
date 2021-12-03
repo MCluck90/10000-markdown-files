@@ -88,5 +88,9 @@ Beau ootiful Soo oop.
 
 ## Wikilinks load test
 
-[[slanting genus capra]]
-[[anemometrical tie tack]]
+[[reanimated tortoise plant]]
+[[stranded sabbatical year]]
+[[disfranchised acipenser]]
+[[autumn-blooming zygodactyl foot]]
+[[liquid-fueled publicity]]
+[[backlink load test]]

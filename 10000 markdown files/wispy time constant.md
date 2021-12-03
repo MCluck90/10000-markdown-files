@@ -85,8 +85,7 @@ Bill's got thrown out one
 
 ## Wikilinks load test
 
-[[exterminated great-nephew]]
-[[uncomprehended gastroepiploic vein]]
-[[keynesian populace]]
-[[seasick n.b.]]
-[[unelaborated fulmarus]]
+[[gaunt subphylum tunicata]]
+[[thick-skinned sutural bone]]
+[[feline hamamelidanthum]]
+[[backlink load test]]

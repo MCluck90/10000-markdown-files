@@ -83,5 +83,7 @@ At last words Soo oop.
 
 ## Wikilinks load test
 
-[[seismological font cartridge]]
-[[tidy aurora australis]]
+[[ultramodern gum-lac]]
+[[unaided genus ptyas]]
+[[babelike red giant star]]
+[[backlink load test]]

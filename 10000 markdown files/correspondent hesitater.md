@@ -77,8 +77,5 @@ Change lobsters to avoid
 
 ## Wikilinks load test
 
-[[reiterative prison guard]]
-[[subordinating sprinter]]
-[[incitive accessory cephalic vein]]
-[[ideologic pen-and-ink]]
-[[off-the-shoulder barrows goldeneye]]
+[[pharmacologic toxostoma rufums]]
+[[backlink load test]]

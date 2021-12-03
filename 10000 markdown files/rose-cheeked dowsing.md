@@ -85,5 +85,5 @@ CHORUS.
 
 ## Wikilinks load test
 
-[[minimalist basal temperature]]
-[[inordinate towing rope]]
+[[knocked out wild spinach]]
+[[backlink load test]]

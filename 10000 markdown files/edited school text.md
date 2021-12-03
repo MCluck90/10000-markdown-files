@@ -83,7 +83,9 @@ Stuff and passed too
 
 ## Wikilinks load test
 
-[[die-hard richard e. smalley]]
-[[median offshoot]]
-[[right-minded pepsi]]
-[[trinidadian chew]]
+[[clear-eyed viperidae]]
+[[miserly chou en-lai]]
+[[burbling tianjin]]
+[[obstructive parachutist]]
+[[clawlike little giant]]
+[[backlink load test]]

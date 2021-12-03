@@ -87,8 +87,8 @@ Tell us up like to
 
 ## Wikilinks load test
 
-[[bioluminescent wildebeest]]
-[[amative commercial credit]]
-[[worried carpet grass]]
-[[stoppered lace making]]
-[[anoperineal ngu]]
+[[actuated albuginea]]
+[[aspectual quadruplet]]
+[[antisubmarine illiterate]]
+[[maxi prohibition era]]
+[[backlink load test]]

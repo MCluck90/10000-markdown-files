@@ -87,6 +87,6 @@ Serpent.
 
 ## Wikilinks load test
 
-[[neanderthalian periodical]]
-[[amphitheatrical three-seeded mercury]]
-[[cosmogonical teleologist]]
+[[fossil geometry teacher]]
+[[semantic bokmal]]
+[[backlink load test]]

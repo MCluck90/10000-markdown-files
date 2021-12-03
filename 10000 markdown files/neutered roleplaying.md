@@ -88,5 +88,5 @@ However he asked Alice
 
 ## Wikilinks load test
 
-[[anatomic plectorrhiza]]
-[[inured chamfer bit]]
+[[apomictical kilometer]]
+[[backlink load test]]

@@ -81,8 +81,6 @@ Idiot.
 
 ## Wikilinks load test
 
-[[unbiassed just the ticket]]
-[[eonian feminist]]
-[[baptized old style calendar]]
-[[glaucous green goddess]]
-[[leafy aristolochiaceae]]
+[[nomothetic pillar of islam]]
+[[ranked stablemate]]
+[[backlink load test]]

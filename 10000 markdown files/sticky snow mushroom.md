@@ -89,8 +89,7 @@ down all joined in hand and
 
 ## Wikilinks load test
 
-[[large-capitalisation drawing paper]]
-[[myrmecophilous parqueterie]]
-[[thoughtful troop carrier]]
-[[walking columbite-tantalite]]
-[[small-eared megachilidae]]
+[[unbordered cazique]]
+[[hyperbolic dark adaptation]]
+[[reply-paid nonsingular matrix]]
+[[backlink load test]]

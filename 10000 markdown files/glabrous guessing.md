@@ -88,5 +88,5 @@ Said cunning old conger-eel
 
 ## Wikilinks load test
 
-[[graecophile heyrovsky]]
-[[uncontested surveying]]
+[[fast-flying mexicano]]
+[[backlink load test]]

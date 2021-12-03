@@ -85,8 +85,9 @@ Quick now I GAVE
 
 ## Wikilinks load test
 
-[[canonised power user]]
-[[plane-polarized deceleration]]
-[[machine-controlled hop]]
-[[bracted shipwright]]
-[[spidery altitude sickness]]
+[[malawian baedeker]]
+[[across-the-board lithuresis]]
+[[telescopic chaim soutine]]
+[[umbelliform rorippa islandica]]
+[[creedal francoa ramosa]]
+[[backlink load test]]

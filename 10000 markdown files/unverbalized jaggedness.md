@@ -92,5 +92,6 @@ Get to taste theirs and
 
 ## Wikilinks load test
 
-[[downtown biohazard]]
-[[rh-positive hurler]]
+[[three-legged pericardial sac]]
+[[bone-idle nursing care]]
+[[backlink load test]]

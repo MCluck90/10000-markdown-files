@@ -81,7 +81,5 @@ Said the pie later.
 
 ## Wikilinks load test
 
-[[drum-like agglutinogen]]
-[[extralinguistic ponka]]
-[[conjugal correlational statistics]]
-[[roaring giorgio de chirico]]
+[[wobbling shawn]]
+[[backlink load test]]

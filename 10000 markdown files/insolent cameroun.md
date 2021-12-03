@@ -86,7 +86,6 @@ when you turned away the
 
 ## Wikilinks load test
 
-[[cinnamon-red perceptual experience]]
-[[splashy mournful widow]]
-[[circumscribed lepus californicus]]
-[[semiterrestrial drafting board]]
+[[unfilled l. monocytogenes]]
+[[acarpelous phalaropus]]
+[[backlink load test]]

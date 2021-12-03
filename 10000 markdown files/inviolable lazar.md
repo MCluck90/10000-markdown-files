@@ -80,6 +80,5 @@ Do bats I proceed said Five.
 
 ## Wikilinks load test
 
-[[absorbable oil tycoon]]
-[[psychic daucus carota sativa]]
-[[fancy-free archeology]]
+[[semantic bokmal]]
+[[backlink load test]]

@@ -88,7 +88,5 @@ Everybody says you're going to
 
 ## Wikilinks load test
 
-[[pyrogallic us military academy]]
-[[blue-sky suntan]]
-[[disintegrative oriental beetle]]
-[[jerkwater suillus albivelatus]]
+[[purpose-made cephalotus]]
+[[backlink load test]]

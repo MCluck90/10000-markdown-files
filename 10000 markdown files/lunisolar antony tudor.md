@@ -83,7 +83,5 @@ Who in at applause
 
 ## Wikilinks load test
 
-[[two-chambered tanoan language]]
-[[kaput characin fish]]
-[[enclosed luging]]
-[[pug-faced manidae]]
+[[bolometric tiresias]]
+[[backlink load test]]

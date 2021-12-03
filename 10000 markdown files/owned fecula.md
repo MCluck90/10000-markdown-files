@@ -86,5 +86,8 @@ inquired Alice it'll fetch
 
 ## Wikilinks load test
 
-[[billowy rate of inflation]]
-[[soggy caoutchouc tree]]
+[[amphoteric genus trichomonas]]
+[[scapulohumeral incline]]
+[[clubby magnesium carbonate]]
+[[dissolvable scarp]]
+[[backlink load test]]

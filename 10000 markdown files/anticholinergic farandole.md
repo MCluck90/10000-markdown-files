@@ -82,4 +82,8 @@ Of course he would die.
 
 ## Wikilinks load test
 
-[[palmlike bowleg]]
+[[uninsurable vitis vinifera]]
+[[mutilated zalcitabine]]
+[[detached warji]]
+[[lively kenning]]
+[[backlink load test]]

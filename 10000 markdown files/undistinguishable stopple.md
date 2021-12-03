@@ -90,7 +90,8 @@ Treacle said severely Who
 
 ## Wikilinks load test
 
-[[lincolnesque lapel]]
-[[nonextant swimming cap]]
-[[maximum gasmask]]
-[[gi english elm]]
+[[gold-coloured heritiera littoralis]]
+[[curative genus mytilus]]
+[[nonagenarian bellis]]
+[[windy new world beaver]]
+[[backlink load test]]

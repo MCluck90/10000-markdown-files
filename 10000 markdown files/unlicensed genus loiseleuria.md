@@ -83,5 +83,9 @@ Some of long words have everybody
 
 ## Wikilinks load test
 
-[[spaciotemporal sesame oil]]
-[[strikebound frost]]
+[[hooked genus lagothrix]]
+[[semiliterate commandery]]
+[[plodding nominalist]]
+[[obvious geranium]]
+[[indigent darwinism]]
+[[backlink load test]]

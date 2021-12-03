@@ -82,7 +82,9 @@ Tis so Alice waited.
 
 ## Wikilinks load test
 
-[[unaccessible rugby ball]]
-[[honest-to-god tony blair]]
-[[telescopic chaim soutine]]
-[[overlooking solar dish]]
+[[over-the-hill po]]
+[[underhung melanoblast]]
+[[quadrupedal blastomyces]]
+[[in the public eye disability check]]
+[[grey-brown bowmans capsule]]
+[[backlink load test]]

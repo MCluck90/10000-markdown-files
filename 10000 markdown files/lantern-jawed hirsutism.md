@@ -90,8 +90,6 @@ I'LL soon as serpents night and
 
 ## Wikilinks load test
 
-[[unforgiving velocipede]]
-[[featherless lens capsule]]
-[[silvery-blue chicle]]
-[[described fender]]
-[[slanting praya]]
+[[torn irish strawberry]]
+[[healing shirtdress]]
+[[backlink load test]]

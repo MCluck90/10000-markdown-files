@@ -78,8 +78,5 @@ After a sea as
 
 ## Wikilinks load test
 
-[[impetiginous swig]]
-[[pastel lobelia dortmanna]]
-[[salient dicotyledones]]
-[[timely anthrax pneumonia]]
-[[bell-bottom signal box]]
+[[qualitative paramilitary force]]
+[[backlink load test]]

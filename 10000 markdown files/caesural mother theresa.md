@@ -90,8 +90,7 @@ Did you ask.
 
 ## Wikilinks load test
 
-[[cosmetic toaster oven]]
-[[anticoagulative alca]]
-[[pastel-colored earthtongue]]
-[[deviant unsavoriness]]
-[[coccal air passage]]
+[[squeaking aphakic]]
+[[rejective european wood mouse]]
+[[prenuptial hesperiphona]]
+[[backlink load test]]

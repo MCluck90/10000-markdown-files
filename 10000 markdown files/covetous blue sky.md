@@ -77,8 +77,8 @@ Pat what's the watch
 
 ## Wikilinks load test
 
-[[agranulocytic cyclodestructive surgery]]
-[[olive-coloured canis major]]
-[[self-important scarlet musk flower]]
-[[taillike war dance]]
-[[tethered rigidifying]]
+[[vulcanized lukasiewicz notation]]
+[[distributive polish monetary unit]]
+[[toothy fragrant water lily]]
+[[metaphorical floor covering]]
+[[backlink load test]]

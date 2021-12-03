@@ -82,4 +82,6 @@ Some of croquet.
 
 ## Wikilinks load test
 
-[[large-minded quarterstaff]]
+[[juristic manioca]]
+[[calculating pop group]]
+[[backlink load test]]

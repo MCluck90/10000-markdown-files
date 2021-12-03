@@ -92,7 +92,9 @@ Treacle said Get to
 
 ## Wikilinks load test
 
-[[sickening cynoscion regalis]]
-[[permutable estrone]]
-[[frequent family elaeagnaceae]]
-[[best public service]]
+[[two-fold full stop]]
+[[kiln-dried suasion]]
+[[debonair luftwaffe]]
+[[gymnosophical mixology]]
+[[some other gravy holder]]
+[[backlink load test]]

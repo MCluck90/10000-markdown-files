@@ -84,8 +84,7 @@ All right I'm NOT a world
 
 ## Wikilinks load test
 
-[[assaultive levantine]]
-[[snow-blind garage sale]]
-[[divers suborder marginocephalia]]
-[[squinting family procyonidae]]
-[[half youngs modulus]]
+[[uncomprehended gastroepiploic vein]]
+[[paintable barbital]]
+[[archepiscopal firebreak]]
+[[backlink load test]]

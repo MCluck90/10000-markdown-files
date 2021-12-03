@@ -85,6 +85,8 @@ Perhaps it all like
 
 ## Wikilinks load test
 
-[[batter-fried pinniped]]
-[[lateral national geospatial-intelligence agency]]
-[[isosceles racquetball]]
+[[chalky detriment]]
+[[foremost hour]]
+[[nifty apsis]]
+[[squinty arrow wood]]
+[[backlink load test]]

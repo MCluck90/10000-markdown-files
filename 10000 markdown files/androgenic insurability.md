@@ -92,8 +92,6 @@ Suppress him deeply.
 
 ## Wikilinks load test
 
-[[differential uraninite]]
-[[unhealthful placer mining]]
-[[hyperboloidal golden cup]]
-[[stormproof tamarao]]
-[[disquieting battlefront]]
+[[blithe golden state]]
+[[gilbertian bowling]]
+[[backlink load test]]

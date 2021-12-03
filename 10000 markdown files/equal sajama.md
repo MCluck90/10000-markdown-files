@@ -79,8 +79,8 @@ HE was shut up
 
 ## Wikilinks load test
 
-[[avuncular self-sacrifice]]
-[[appellate spalacidae]]
-[[botswanan shyness]]
-[[practised channel catfish]]
-[[alleviative summer school]]
+[[bitty police officer]]
+[[overproud monk]]
+[[kazakhstani thermometrograph]]
+[[subjugable diapedesis]]
+[[backlink load test]]

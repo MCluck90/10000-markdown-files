@@ -85,8 +85,7 @@ They're dreadfully ugly child said
 
 ## Wikilinks load test
 
-[[close-hauled gordie howe]]
-[[microcrystalline cakehole]]
-[[olde worlde jewel orchid]]
-[[off-base genus sphaerocarpus]]
-[[mohammedan thievery]]
+[[snow-blind forest]]
+[[nonjudgmental tipulidae]]
+[[torturesome sympathetic strike]]
+[[backlink load test]]

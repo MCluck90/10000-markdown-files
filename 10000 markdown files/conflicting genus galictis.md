@@ -90,7 +90,7 @@ You've no jury asked triumphantly.
 
 ## Wikilinks load test
 
-[[opportunistic policeman bird]]
-[[unacknowledged record-holder]]
-[[psychic daucus carota sativa]]
-[[hemostatic novocaine]]
+[[nonhuman class ciliata]]
+[[bimodal birdsong]]
+[[porous alternative]]
+[[backlink load test]]

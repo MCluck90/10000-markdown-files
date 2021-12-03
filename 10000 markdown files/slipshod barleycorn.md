@@ -85,8 +85,6 @@ HE taught Laughing and he
 
 ## Wikilinks load test
 
-[[rodlike stench bomb]]
-[[entertained technician]]
-[[ornithological pine mouse]]
-[[unchangeable family dicranaceae]]
-[[briary tribal sheik]]
+[[fledgeless atomic number 93]]
+[[theistic principe]]
+[[backlink load test]]

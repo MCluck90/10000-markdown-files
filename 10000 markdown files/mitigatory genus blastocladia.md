@@ -79,7 +79,6 @@ Half-past one so thin and begged
 
 ## Wikilinks load test
 
-[[freaky brain coral]]
-[[travel-worn summer haw]]
-[[end-rhymed coquetry]]
-[[evident refectory]]
+[[strikebound frost]]
+[[bayesian cure]]
+[[backlink load test]]

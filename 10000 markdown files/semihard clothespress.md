@@ -77,4 +77,9 @@ Visit either.
 
 ## Wikilinks load test
 
-[[machine-controlled hop]]
+[[understaffed osage orange]]
+[[chafed banner]]
+[[hebdomadary phaeton]]
+[[semiskilled subclass phytomastigina]]
+[[awless logomach]]
+[[backlink load test]]

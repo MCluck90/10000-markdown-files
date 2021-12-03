@@ -85,7 +85,6 @@ Leave off quarrelling all
 
 ## Wikilinks load test
 
-[[strategic gentiana pneumonanthe]]
-[[lionhearted cytologic specimen]]
-[[fateful immotility]]
-[[ethnologic triumvir]]
+[[leery genus hipsurus]]
+[[metaphysical lake tana]]
+[[backlink load test]]

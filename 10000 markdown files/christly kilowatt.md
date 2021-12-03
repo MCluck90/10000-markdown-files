@@ -83,7 +83,8 @@ Or would change but out-of
 
 ## Wikilinks load test
 
-[[monatomic pulpit]]
-[[mephistophelean leptodactylid]]
-[[grey-headed succade]]
-[[stalinist indigestion]]
+[[evangelistic tickling]]
+[[noncarbonated half-moon]]
+[[resolute genus pteretis]]
+[[unconstructive shooting gallery]]
+[[backlink load test]]

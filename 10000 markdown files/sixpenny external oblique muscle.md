@@ -87,5 +87,8 @@ After a coaxing.
 
 ## Wikilinks load test
 
-[[unceremonial stovepipe iron]]
-[[sixpenny quakers]]
+[[fifty-one oosphere]]
+[[kaleidoscopic gesner]]
+[[foodless mountain anemone]]
+[[nonmagnetic jambeau]]
+[[backlink load test]]

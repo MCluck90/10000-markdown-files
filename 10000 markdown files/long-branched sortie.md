@@ -83,6 +83,8 @@ Up above a Little
 
 ## Wikilinks load test
 
-[[victimized naturopathy]]
-[[cookie-sized major surgery]]
-[[institutionalized lingualumina]]
+[[topographical pindolol]]
+[[bearish saint johns]]
+[[attentional hippoboscidae]]
+[[hatted genus smilax]]
+[[backlink load test]]

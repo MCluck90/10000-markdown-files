@@ -80,7 +80,7 @@ ALICE'S LOVE.
 
 ## Wikilinks load test
 
-[[winning genus capros]]
-[[bridal judiciary]]
-[[merging overgrowth]]
-[[semidetached phone bill]]
+[[tegular hermann joseph muller]]
+[[antarctic ferdinand]]
+[[centralised beggary]]
+[[backlink load test]]

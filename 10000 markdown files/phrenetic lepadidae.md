@@ -83,6 +83,9 @@ You've no tears.
 
 ## Wikilinks load test
 
-[[regimented cheval glass]]
-[[curving paleo-indian]]
-[[largish buckbean]]
+[[quincentenary yellow bugle]]
+[[chalybeate reason]]
+[[detested myrobalan]]
+[[accommodational picnic ground]]
+[[antitypical speed of light]]
+[[backlink load test]]

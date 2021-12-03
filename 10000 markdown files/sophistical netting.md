@@ -88,6 +88,6 @@ Nor I WAS when a sad
 
 ## Wikilinks load test
 
-[[dull-purple bangiaceae]]
-[[bifurcated astacus]]
-[[bumptious segno]]
+[[velvety-plumaged john updike]]
+[[neighbourly colpocele]]
+[[backlink load test]]

@@ -92,7 +92,5 @@ down went by wild beast
 
 ## Wikilinks load test
 
-[[goateed zero point]]
-[[incestuous dicumarol]]
-[[scatty round steak]]
-[[aeschylean quicksilver]]
+[[friendless florida key]]
+[[backlink load test]]

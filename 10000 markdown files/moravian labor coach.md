@@ -82,8 +82,8 @@ It's high added aloud addressing
 
 ## Wikilinks load test
 
-[[inlaid motor ataxia]]
-[[longish acupuncture]]
-[[lacerate triangulation]]
-[[bountiful pretext]]
-[[shifty filename]]
+[[wily james joyce]]
+[[oncologic south american indian]]
+[[clammy sitophylus]]
+[[gimcrack military campaign]]
+[[backlink load test]]

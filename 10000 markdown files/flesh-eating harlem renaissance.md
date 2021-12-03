@@ -83,7 +83,9 @@ sh.
 
 ## Wikilinks load test
 
-[[seagirt rickover]]
-[[downtown biohazard]]
-[[baptistic tasse]]
-[[spotless naucrates ductor]]
+[[snakelike lean-to tent]]
+[[amphibian worship of heavenly bodies]]
+[[grammatical agave sisalana]]
+[[cramped romance language]]
+[[meagre discharge pipe]]
+[[backlink load test]]

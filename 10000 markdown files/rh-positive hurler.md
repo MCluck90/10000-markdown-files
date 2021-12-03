@@ -87,8 +87,9 @@ IF I Oh PLEASE mind
 
 ## Wikilinks load test
 
-[[insusceptible fever pitch]]
-[[claustrophobic sky wave]]
-[[childless coprolalia]]
-[[diaphyseal subclass dilleniidae]]
-[[kod impartiality]]
+[[large-grained make-work]]
+[[white-ribbed romanian]]
+[[coupled tear duct]]
+[[unsupportable reciprocal]]
+[[apocryphal turkestan desert]]
+[[backlink load test]]

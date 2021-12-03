@@ -86,6 +86,6 @@ Soon her still it
 
 ## Wikilinks load test
 
-[[shabby blind person]]
-[[winded antigua]]
-[[siliceous atomic number 60]]
+[[disgustful alder tree]]
+[[receptive pilot balloon]]
+[[backlink load test]]

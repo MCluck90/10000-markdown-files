@@ -84,6 +84,5 @@ No more while finishing the goose
 
 ## Wikilinks load test
 
-[[pre-existing coughing]]
-[[magical common foxglove]]
-[[sunburned cold fish]]
+[[unrefined genus tanacetum]]
+[[backlink load test]]

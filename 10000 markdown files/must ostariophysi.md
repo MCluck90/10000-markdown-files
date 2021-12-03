@@ -85,7 +85,6 @@ So you can hardly
 
 ## Wikilinks load test
 
-[[detestable rotary motion]]
-[[middle-aged california laurel]]
-[[runic golfcart]]
-[[unlabeled mouth]]
+[[guyanese genus corydalus]]
+[[restrictive laurelwood]]
+[[backlink load test]]

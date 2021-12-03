@@ -88,6 +88,8 @@ HE was bristling all this mouse
 
 ## Wikilinks load test
 
-[[reclusive gerhard gerhards]]
-[[avocado ware]]
-[[chaldee leftfield]]
+[[diverse kwacha]]
+[[difficult singaporean]]
+[[expendable gamin]]
+[[lobeliaceous steinbeck]]
+[[backlink load test]]

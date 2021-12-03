@@ -82,8 +82,9 @@ UNimportant your eye fell
 
 ## Wikilinks load test
 
-[[wrinkleless vapours]]
-[[bankable capparis cynophallophora]]
-[[spacious liveborn infant]]
-[[trinuclear spirilla]]
-[[refractory-lined rack and pinion]]
+[[recursive israel strassberg]]
+[[ball-hawking diathermy machine]]
+[[ultramodern gum-lac]]
+[[anticipant haematocrit]]
+[[hulking gladness]]
+[[backlink load test]]

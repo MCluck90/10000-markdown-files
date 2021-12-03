@@ -88,6 +88,6 @@ Visit either.
 
 ## Wikilinks load test
 
-[[most-favored-nation work-clothing]]
-[[searing potassium chlorate]]
-[[thickspread phosphorus]]
+[[choosy hosiery]]
+[[joyless bird fancier]]
+[[backlink load test]]

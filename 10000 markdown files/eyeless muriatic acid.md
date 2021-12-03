@@ -85,6 +85,5 @@ Did you content now but
 
 ## Wikilinks load test
 
-[[sure instruction manual]]
-[[exegetical span loading]]
-[[asymptomatic throttler]]
+[[noncollapsible period of play]]
+[[backlink load test]]

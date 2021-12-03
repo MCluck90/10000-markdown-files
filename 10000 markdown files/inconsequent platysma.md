@@ -95,7 +95,8 @@ Consider my way out
 
 ## Wikilinks load test
 
-[[contemptuous 10000]]
-[[sempiternal sticking point]]
-[[plugged idol worshiper]]
-[[selfsame genus diospyros]]
+[[demon-ridden shingle oak]]
+[[uppity service break]]
+[[basal pouched mole]]
+[[life-sustaining allemande sauce]]
+[[backlink load test]]

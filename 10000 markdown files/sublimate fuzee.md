@@ -88,8 +88,8 @@ Once upon its share
 
 ## Wikilinks load test
 
-[[reposeful remise]]
-[[well-informed schenectady]]
-[[slanting praya]]
-[[irreproachable mountain fetterbush]]
-[[endovenous court of assize]]
+[[graecophile heyrovsky]]
+[[napped genus lavandula]]
+[[pediatric cassiopeia]]
+[[leptorrhine anaximenes]]
+[[backlink load test]]

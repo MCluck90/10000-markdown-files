@@ -79,5 +79,5 @@ After that into its
 
 ## Wikilinks load test
 
-[[empirical chimney swift]]
-[[quadruple electronic warfare-support measures]]
+[[singaporean circular plane]]
+[[backlink load test]]

@@ -88,4 +88,7 @@ Alice whose thoughts were
 
 ## Wikilinks load test
 
-[[stimulating apple nut]]
+[[low-grade xanthophyll]]
+[[crenulate witches broth]]
+[[tied up simoon]]
+[[backlink load test]]

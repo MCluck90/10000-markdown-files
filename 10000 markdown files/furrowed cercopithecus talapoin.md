@@ -85,7 +85,8 @@ Shy they sat for serpents do
 
 ## Wikilinks load test
 
-[[extraterrestrial aelius donatus]]
-[[six-pointed eugenia dicrana]]
-[[insusceptible fever pitch]]
-[[spiny-leafed meristem]]
+[[soft-spoken meliorist]]
+[[computable schmoose]]
+[[barefaced northumbria]]
+[[reflex garcia lorca]]
+[[backlink load test]]

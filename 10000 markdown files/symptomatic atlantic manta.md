@@ -80,6 +80,5 @@ Nor I wish the confused
 
 ## Wikilinks load test
 
-[[crazed shelduck]]
-[[uninitiate maurice ravel]]
-[[unredeemable paisa]]
+[[energizing calochortus elegans]]
+[[backlink load test]]

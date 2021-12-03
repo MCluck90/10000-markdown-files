@@ -87,6 +87,9 @@ Their heads are the teacups
 
 ## Wikilinks load test
 
-[[blue-eyed bill poster]]
-[[compatible indian pony]]
-[[intact psycholinguist]]
+[[buddhist skin-diver]]
+[[ripping kidney vetch]]
+[[knock-down-and-drag-out brain surgeon]]
+[[well-fed nature study]]
+[[sophistic genus desmodium]]
+[[backlink load test]]

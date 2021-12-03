@@ -88,5 +88,8 @@ CHORUS.
 
 ## Wikilinks load test
 
-[[ecumenical quantization]]
-[[burlesque punch pliers]]
+[[ministerial social psychology]]
+[[empiric soft corn]]
+[[sculptural rustling]]
+[[disputatious mashhad]]
+[[backlink load test]]

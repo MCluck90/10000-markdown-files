@@ -81,7 +81,8 @@ Stolen.
 
 ## Wikilinks load test
 
-[[sardonic bullhorn]]
-[[discarded ulmaceae]]
-[[center drosophyllum]]
-[[porous chamois cress]]
+[[animist trappist]]
+[[exploitative packing box]]
+[[oscine proteinuria]]
+[[cross-eyed esophagus]]
+[[backlink load test]]

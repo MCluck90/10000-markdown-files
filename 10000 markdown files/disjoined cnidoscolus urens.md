@@ -83,8 +83,9 @@ Fourteenth of of sight.
 
 ## Wikilinks load test
 
-[[nonhairy buspar]]
-[[seagirt rickover]]
-[[wash-and-wear snuff]]
-[[hydropathic nomenclature]]
-[[endocentric blue baby]]
+[[eponymic tetrodotoxin]]
+[[colonised foreshank]]
+[[fattening loiseleuria procumbens]]
+[[exterminated great-nephew]]
+[[adequate to helen]]
+[[backlink load test]]

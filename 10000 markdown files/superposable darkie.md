@@ -86,6 +86,5 @@ Even the balls were
 
 ## Wikilinks load test
 
-[[addable megalocyte]]
-[[undramatic genus scincus]]
-[[semiterrestrial drafting board]]
+[[bismuthic pleomorphism]]
+[[backlink load test]]

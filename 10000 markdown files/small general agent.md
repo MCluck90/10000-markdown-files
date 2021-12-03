@@ -81,7 +81,9 @@ his slate Oh you're so close
 
 ## Wikilinks load test
 
-[[stranded abwatt]]
-[[outrageous amyloid]]
-[[longish acupuncture]]
-[[rhodesian nuclear terrorism]]
+[[self-produced parnahiba]]
+[[bespectacled genus chamaeleo]]
+[[transactinide bullpen]]
+[[tetragonal schick test]]
+[[regressive huisache]]
+[[backlink load test]]

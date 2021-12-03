@@ -86,7 +86,5 @@ This of course had not
 
 ## Wikilinks load test
 
-[[uncrystallised tannia]]
-[[nonsweet hemoglobinuria]]
-[[erose john rock]]
-[[short-range bawler]]
+[[berrylike amorphous shape]]
+[[backlink load test]]

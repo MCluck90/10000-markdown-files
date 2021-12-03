@@ -82,4 +82,7 @@ Alas.
 
 ## Wikilinks load test
 
-[[nonbearing petrarch]]
+[[preternatural nub]]
+[[neuroanatomical erudition]]
+[[biddable anzac]]
+[[backlink load test]]

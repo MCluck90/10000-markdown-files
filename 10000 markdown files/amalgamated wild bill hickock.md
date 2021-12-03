@@ -84,6 +84,8 @@ ARE OLD FATHER WILLIAM to
 
 ## Wikilinks load test
 
-[[principal spassky]]
-[[unrighteous blastocladia]]
-[[byzantine anatidae]]
+[[katabolic potassium bromide]]
+[[unmodernized iridaceous plant]]
+[[tawdry camorra]]
+[[pilose cassette]]
+[[backlink load test]]

@@ -82,6 +82,5 @@ Stolen.
 
 ## Wikilinks load test
 
-[[friendless brachium]]
-[[nightly letter of intent]]
-[[unvulcanized arabidopsis thaliana]]
+[[movable homogyne]]
+[[backlink load test]]

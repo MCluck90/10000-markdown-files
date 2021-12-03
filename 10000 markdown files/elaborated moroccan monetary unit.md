@@ -83,8 +83,8 @@ Ten hours I didn't
 
 ## Wikilinks load test
 
-[[crinkly barn spider]]
-[[of the essence requirements contract]]
-[[oven-ready dollhouse]]
-[[noteworthy defrauder]]
-[[some other shanghai dialect]]
+[[unthoughtful claxon]]
+[[utility-grade genus peneus]]
+[[hair-shirt blackfriar]]
+[[neuroanatomical castle in the air]]
+[[backlink load test]]

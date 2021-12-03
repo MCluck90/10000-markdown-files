@@ -80,8 +80,6 @@ If any.
 
 ## Wikilinks load test
 
-[[protrusible talker identification]]
-[[incontestible garrison]]
-[[unnotched conferee]]
-[[pale-faced concavity]]
-[[port golgis cell]]
+[[nonimmune snit]]
+[[uraemic pyrausta]]
+[[backlink load test]]

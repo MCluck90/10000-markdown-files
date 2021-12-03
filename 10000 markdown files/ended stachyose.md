@@ -92,5 +92,5 @@ Alas.
 
 ## Wikilinks load test
 
-[[mortified knife blade]]
-[[unhurried greenskeeper]]
+[[inebriated reading teacher]]
+[[backlink load test]]

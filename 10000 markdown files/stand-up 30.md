@@ -85,6 +85,9 @@ about cats if people live.
 
 ## Wikilinks load test
 
-[[deuteranopic sea starwort]]
-[[cockeyed gatecrasher]]
-[[pretty 1 chronicles]]
+[[ambassadorial apalachicola]]
+[[garrulous coral vine]]
+[[bratty orlop]]
+[[operculate phylum pyrrophyta]]
+[[anemometrical boleyn]]
+[[backlink load test]]

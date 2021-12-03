@@ -82,6 +82,6 @@ Call it ran wildly
 
 ## Wikilinks load test
 
-[[bahamian wyeth]]
-[[single-lane atomic number 64]]
-[[verified troy pound]]
+[[niggling semitropics]]
+[[wacky nanus]]
+[[backlink load test]]

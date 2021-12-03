@@ -88,8 +88,6 @@ Stupid things and mustard isn't
 
 ## Wikilinks load test
 
-[[metrological wormseed mustard]]
-[[lamenting secret agent]]
-[[adonic manilla]]
-[[encyclopaedic totalisator]]
-[[mephistophelean leptodactylid]]
+[[untempered ventolin]]
+[[suppressive fenestration]]
+[[backlink load test]]

@@ -83,8 +83,8 @@ What's in which wasn't asleep and
 
 ## Wikilinks load test
 
-[[militant logistic assistance]]
-[[retributive septation]]
-[[anisometric common scurvy grass]]
-[[general-purpose vicia]]
-[[boring strut]]
+[[totalitarian zygomycotina]]
+[[dyslexic scrutinizer]]
+[[overlying bee sting]]
+[[flat-top writ of right]]
+[[backlink load test]]

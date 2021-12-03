@@ -78,5 +78,7 @@ For anything but Alice
 
 ## Wikilinks load test
 
-[[absolved smacker]]
-[[skim intonation pattern]]
+[[hi-tech birth certificate]]
+[[monthly genus gentiana]]
+[[southeast prince consort]]
+[[backlink load test]]

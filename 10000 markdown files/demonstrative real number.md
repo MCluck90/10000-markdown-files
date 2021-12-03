@@ -78,8 +78,8 @@ This did old Magpie
 
 ## Wikilinks load test
 
-[[saxatile slipper]]
-[[affectionate department of energy]]
-[[inordinate towing rope]]
-[[extracellular front end]]
-[[diffusing wire gage]]
+[[acherontic adolphe sax]]
+[[blue-blooded genus ptilonorhynchus]]
+[[hellenistical bennettitis]]
+[[arced hieracium venosum]]
+[[backlink load test]]

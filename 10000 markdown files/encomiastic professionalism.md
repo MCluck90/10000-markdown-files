@@ -89,6 +89,8 @@ so stingy about cats.
 
 ## Wikilinks load test
 
-[[undutiful cleome hassleriana]]
-[[ill-equipped paralithodes]]
-[[ambidextrous authority]]
+[[patriarchic brassica napus]]
+[[lettered vacuousness]]
+[[computer readable furbelow]]
+[[varicoloured guaiacum wood]]
+[[backlink load test]]

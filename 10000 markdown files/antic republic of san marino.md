@@ -79,8 +79,7 @@ I'd nearly out He's
 
 ## Wikilinks load test
 
-[[umbellate dungeon]]
-[[hundred-and-twentieth hillside]]
-[[kind genus chilomeniscus]]
-[[buggy western dewberry]]
-[[orthomolecular ash gray]]
+[[stalinist indigestion]]
+[[pubescent selling point]]
+[[conciliative colophony]]
+[[backlink load test]]

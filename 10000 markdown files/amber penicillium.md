@@ -83,5 +83,9 @@ then I'll get away
 
 ## Wikilinks load test
 
-[[calcifugous tuck shop]]
-[[glamorous claymore]]
+[[unaccessible proctalgia]]
+[[watery collectivist]]
+[[amalgamated malva neglecta]]
+[[iron-grey pedaliaceae]]
+[[inward-moving atrioventricular bundle]]
+[[backlink load test]]

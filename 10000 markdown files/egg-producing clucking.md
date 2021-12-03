@@ -81,5 +81,9 @@ Cheshire cats if you've had
 
 ## Wikilinks load test
 
-[[obvious geranium]]
-[[heraldic moderatism]]
+[[slav intima]]
+[[dermatologic genus ceratostomella]]
+[[state-supported myrmecophyte]]
+[[anthophilous amide]]
+[[wing-shaped apologia]]
+[[backlink load test]]

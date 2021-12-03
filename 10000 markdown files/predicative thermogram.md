@@ -80,6 +80,9 @@ Quick now which gave
 
 ## Wikilinks load test
 
-[[reportable cutting edge]]
-[[close set cleistocarp]]
-[[outdated recce]]
+[[teachable exodontics]]
+[[chafed defenestration]]
+[[humiliated drummer]]
+[[prerequisite luger]]
+[[awful hydroxymethyl]]
+[[backlink load test]]

@@ -88,6 +88,7 @@ Pinch him with blacking
 
 ## Wikilinks load test
 
-[[opening corneum]]
-[[candid slag code]]
-[[outstanding confederate jasmine]]
+[[fur-bearing wave]]
+[[mucky adansonia digitata]]
+[[semiskilled subclass phytomastigina]]
+[[backlink load test]]

@@ -87,6 +87,7 @@ you his shoulder with their paws
 
 ## Wikilinks load test
 
-[[phrenological linac]]
-[[rateable tenability]]
-[[kind genus chilomeniscus]]
+[[icelandic inside]]
+[[clammy sitophylus]]
+[[unaccustomed basic principle]]
+[[backlink load test]]

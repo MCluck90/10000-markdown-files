@@ -89,8 +89,7 @@ Bill's got used up
 
 ## Wikilinks load test
 
-[[supererogatory effusion]]
-[[scrofulous simarouba amara]]
-[[lengthened mrs. humphrey ward]]
-[[parasympathetic are]]
-[[ascetic dwarf buffalo]]
+[[then bush tit]]
+[[in operation ugandan shilling]]
+[[friendless brachium]]
+[[backlink load test]]

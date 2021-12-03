@@ -87,8 +87,9 @@ one only rustling in
 
 ## Wikilinks load test
 
-[[algid holding pattern]]
-[[ismaili modiste]]
-[[breathing australian sea lion]]
-[[recondite haemoproteus]]
-[[congenial tupungatito]]
+[[hymeneal panencephalitis]]
+[[supersonic morgen]]
+[[animist trappist]]
+[[drab uveoscleral pathway]]
+[[yellow-tinged hepatomegaly]]
+[[backlink load test]]

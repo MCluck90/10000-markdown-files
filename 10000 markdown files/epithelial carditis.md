@@ -95,8 +95,7 @@ Go on What fun.
 
 ## Wikilinks load test
 
-[[gray-green week from monday]]
-[[wholesale solidago bicolor]]
-[[deweyan matronymic]]
-[[close-hauled gordie howe]]
-[[piagetian mercilessness]]
+[[accessory genus aureolaria]]
+[[confutative running stitch]]
+[[direct equador laurel]]
+[[backlink load test]]

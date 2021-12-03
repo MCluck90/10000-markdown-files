@@ -88,8 +88,7 @@ interrupted.
 
 ## Wikilinks load test
 
-[[forty-eighth spanish oak]]
-[[liturgical ytterbium]]
-[[blackened communicativeness]]
-[[passionless streamer fly]]
-[[understood very high frequency]]
+[[swiss retention]]
+[[vague association for the advancement of retired persons]]
+[[plenary musical interval]]
+[[backlink load test]]

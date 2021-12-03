@@ -86,8 +86,8 @@ for dinner and turning
 
 ## Wikilinks load test
 
-[[fulgurant von braun]]
-[[semisoft rutabaga plant]]
-[[topographic free-for-all]]
-[[clownish galiella rufa]]
-[[nonelective lechery]]
+[[prohibitive hypoglossal nerve]]
+[[quiet landrys paralysis]]
+[[palaeolithic vertebral column]]
+[[permutable haloalkane]]
+[[backlink load test]]

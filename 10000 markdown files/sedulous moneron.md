@@ -88,7 +88,6 @@ Some of lamps hanging from his
 
 ## Wikilinks load test
 
-[[unfading integration]]
-[[groomed genus retrophyllum]]
-[[undefendable raptor]]
-[[commonsensical sick berth]]
+[[striking sheet iron]]
+[[cosher bedclothes]]
+[[backlink load test]]

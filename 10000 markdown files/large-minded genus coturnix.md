@@ -83,5 +83,5 @@ Cheshire cats nasty low
 
 ## Wikilinks load test
 
-[[clxx blechnum spicant]]
-[[awful hydroxymethyl]]
+[[tenuous yellow jessamine]]
+[[backlink load test]]

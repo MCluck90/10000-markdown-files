@@ -77,7 +77,7 @@ Consider my adventures first and
 
 ## Wikilinks load test
 
-[[unsatisfactory animal foot]]
-[[off-colour thraldom]]
-[[dour hair trigger]]
-[[isopteran repulse]]
+[[budgetary vice-presidency]]
+[[caloric consolation]]
+[[unheard-of counsel]]
+[[backlink load test]]

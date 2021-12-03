@@ -86,8 +86,5 @@ That'll be as steady as
 
 ## Wikilinks load test
 
-[[moravian maharashtra]]
-[[bulbaceous chloral hydrate]]
-[[vacillating pineus pinifoliae]]
-[[vested distemper]]
-[[recognisable cheekiness]]
+[[two-a-penny nycturia]]
+[[backlink load test]]

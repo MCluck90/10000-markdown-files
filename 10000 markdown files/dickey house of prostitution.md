@@ -81,8 +81,6 @@ Even the proposal.
 
 ## Wikilinks load test
 
-[[kinesthetic sickness]]
-[[personal nobody]]
-[[imbalanced railroad engineer]]
-[[circadian gynura aurantiaca]]
-[[above-mentioned cerise]]
+[[error-prone globefish]]
+[[drawn anal phase]]
+[[backlink load test]]

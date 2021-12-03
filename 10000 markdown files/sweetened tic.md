@@ -90,6 +90,6 @@ when it's generally takes some kind
 
 ## Wikilinks load test
 
-[[old-line blackboard]]
-[[boastful mbeya]]
-[[nonresilient nipple shield]]
+[[collegiate lemon meringue pie]]
+[[web-toed articulated lorry]]
+[[backlink load test]]

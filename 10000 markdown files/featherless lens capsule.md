@@ -86,8 +86,5 @@ for asking such VERY
 
 ## Wikilinks load test
 
-[[hotheaded mares nest]]
-[[taken for granted twilight vision]]
-[[waist-length sphecoid wasp]]
-[[categoric sterculia rupestris]]
-[[inspiring basidiomycotina]]
+[[frivolous great-nephew]]
+[[backlink load test]]

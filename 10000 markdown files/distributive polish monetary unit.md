@@ -93,7 +93,9 @@ Exactly as the trial's
 
 ## Wikilinks load test
 
-[[seething fringed gentian]]
-[[spanish anapest]]
-[[big-bellied yellow spruce]]
-[[debased illogicality]]
+[[bisulcate wrangle]]
+[[inaccurate gum olibanum]]
+[[trinidadian kashag]]
+[[air-dry calystegia sepium]]
+[[unavoidable bathyergus]]
+[[backlink load test]]

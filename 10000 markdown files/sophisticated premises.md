@@ -87,6 +87,9 @@ Just as its age it
 
 ## Wikilinks load test
 
-[[nuts iris pallida]]
-[[nonflammable linin]]
-[[jocose peoples party]]
+[[single-lane metal plating]]
+[[self-fertilised tone language]]
+[[mitigatory genus amia]]
+[[ajar urination]]
+[[projectile alluvion]]
+[[backlink load test]]

@@ -88,6 +88,7 @@ Imagine her waiting outside the last
 
 ## Wikilinks load test
 
-[[affectionate department of energy]]
-[[low-set genus tapirus]]
-[[cross-section somalian shilling]]
+[[unmovable genus anthus]]
+[[cleanable monocular vision]]
+[[pleasing scroll saw]]
+[[backlink load test]]

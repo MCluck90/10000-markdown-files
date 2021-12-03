@@ -86,7 +86,7 @@ With extras.
 
 ## Wikilinks load test
 
-[[photoconductive cocozelle]]
-[[silvery-blue chicle]]
-[[procaryotic parathyroid hormone]]
-[[gigantic laurel]]
+[[unhearing sweatbox]]
+[[synoptical credit account]]
+[[cheap white beech]]
+[[backlink load test]]

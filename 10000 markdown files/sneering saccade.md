@@ -79,5 +79,5 @@ Beau ootiful Soo oop of hands
 
 ## Wikilinks load test
 
-[[boisterous gardenia augusta]]
-[[beethovenian medium of exchange]]
+[[regional whirligig]]
+[[backlink load test]]

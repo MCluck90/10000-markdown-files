@@ -95,6 +95,5 @@ Everything's got burnt and
 
 ## Wikilinks load test
 
-[[triune olfactory nerve]]
-[[slovenly cyclorama]]
-[[nonmechanical moharram]]
+[[vulval tabor pipe]]
+[[backlink load test]]

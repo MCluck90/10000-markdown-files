@@ -87,6 +87,8 @@ as to guard him to his
 
 ## Wikilinks load test
 
-[[rabbinic lead tetraethyl]]
-[[minoan amphioxus]]
-[[eel-shaped sneezer]]
+[[begrimed delacroix]]
+[[ii omnidirectional range]]
+[[biaxal throb]]
+[[adust ginger]]
+[[backlink load test]]

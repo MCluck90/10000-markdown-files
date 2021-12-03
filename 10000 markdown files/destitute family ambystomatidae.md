@@ -76,7 +76,7 @@ I'll try the lap as
 
 ## Wikilinks load test
 
-[[purplish-brown andira]]
-[[literary stypsis]]
-[[rastafarian aphorism]]
-[[stopped up lymphocyte]]
+[[freaky brain coral]]
+[[spasmodic wye]]
+[[unalike tinkle]]
+[[backlink load test]]

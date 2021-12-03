@@ -79,8 +79,5 @@ Reeling and finding it what
 
 ## Wikilinks load test
 
-[[accomplished disjointedness]]
-[[poor-spirited carnegie]]
-[[additive publicizer]]
-[[limbed rocket engineer]]
-[[cespitose heterotrichales]]
+[[lunate bad block]]
+[[backlink load test]]

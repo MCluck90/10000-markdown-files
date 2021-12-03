@@ -84,8 +84,6 @@ Run home this short speech.
 
 ## Wikilinks load test
 
-[[geodesic igniter]]
-[[geodesic igniter]]
-[[sufferable calluna vulgaris]]
-[[plumy bovril]]
-[[cartesian homopteran]]
+[[anamorphic greybeard]]
+[[disgustful alder tree]]
+[[backlink load test]]

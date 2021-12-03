@@ -81,8 +81,8 @@ Either the creatures got to
 
 ## Wikilinks load test
 
-[[ascribable genus agdestis]]
-[[algonkian emesis]]
-[[tired of hmong language]]
-[[arbitral genus zalophus]]
-[[two-dimensional catling]]
+[[equinoctial high-warp loom]]
+[[percipient nanosecond]]
+[[coreferential saunter]]
+[[plenary centigrade thermometer]]
+[[backlink load test]]

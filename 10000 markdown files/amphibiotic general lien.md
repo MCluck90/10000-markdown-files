@@ -76,6 +76,7 @@ If there's an ignorant
 
 ## Wikilinks load test
 
-[[hair-raising corokia]]
-[[fleshed out tortuosity]]
-[[anacoluthic boeuf]]
+[[computable schmoose]]
+[[cephalopodan nuclear warhead]]
+[[irreducible mantilla]]
+[[backlink load test]]

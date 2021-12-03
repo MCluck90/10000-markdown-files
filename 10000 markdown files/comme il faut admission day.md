@@ -84,8 +84,7 @@ It WAS when they
 
 ## Wikilinks load test
 
-[[whiny nuptials]]
-[[collarless inferior epigastric vein]]
-[[lexicalised daniel patrick moynihan]]
-[[dire saddle oxford]]
-[[gold objective lens]]
+[[two-footed lepidopterist]]
+[[piscine leopard lizard]]
+[[nutritional battle of pharsalus]]
+[[backlink load test]]

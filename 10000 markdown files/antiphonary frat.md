@@ -95,4 +95,9 @@ You insult me see
 
 ## Wikilinks load test
 
-[[every chopstick]]
+[[edentulate pulsatilla]]
+[[tight-fitting mendelianism]]
+[[agronomic cheddar]]
+[[roman catholic helmet]]
+[[prewar sauterne]]
+[[backlink load test]]

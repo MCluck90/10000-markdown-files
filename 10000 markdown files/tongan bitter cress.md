@@ -81,8 +81,5 @@ This answer so long
 
 ## Wikilinks load test
 
-[[vexing bordello]]
-[[bimotored indian chocolate]]
-[[outraged penstemon linarioides]]
-[[testicular lever]]
-[[drooping oakleaf goosefoot]]
+[[glaswegian upstage]]
+[[backlink load test]]

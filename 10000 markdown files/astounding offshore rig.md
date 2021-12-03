@@ -91,8 +91,6 @@ ARE you coward.
 
 ## Wikilinks load test
 
-[[appressed calycanthus family]]
-[[agape barunduki]]
-[[unelaborate genus chalcis]]
-[[disparate fluorochrome]]
-[[unobservant harold pinter]]
+[[multiparous procavia capensis]]
+[[multivalent gavel]]
+[[backlink load test]]

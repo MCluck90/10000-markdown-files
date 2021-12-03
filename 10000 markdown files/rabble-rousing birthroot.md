@@ -78,8 +78,9 @@ Beautiful beauti FUL SOUP.
 
 ## Wikilinks load test
 
-[[laggard ephestia]]
-[[parturient geranium pratense]]
-[[unexpressed yellowness]]
-[[lancastrian numismatology]]
-[[workable family sulidae]]
+[[tabby infrared ray]]
+[[etymological beta-adrenoceptor]]
+[[grassy-leafed parietal placentation]]
+[[parisian softness]]
+[[gemmiferous zhou]]
+[[backlink load test]]

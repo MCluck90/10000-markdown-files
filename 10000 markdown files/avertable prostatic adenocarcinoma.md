@@ -85,7 +85,6 @@ Then you foolish Alice swallowing
 
 ## Wikilinks load test
 
-[[hypersensitized artistic style]]
-[[addable megalocyte]]
-[[trinuclear spirilla]]
-[[ready-to-wear supererogation]]
+[[claustrophobic sky wave]]
+[[anginose ogee]]
+[[backlink load test]]

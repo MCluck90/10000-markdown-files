@@ -83,8 +83,9 @@ Seven.
 
 ## Wikilinks load test
 
-[[benefic smith]]
-[[true foundry]]
-[[waggish seek]]
-[[geniculate baba]]
-[[slovenly iconoclast]]
+[[ferret-sized altar wine]]
+[[non-living formal garden]]
+[[receptive pilot balloon]]
+[[starlike flashflood]]
+[[foresighted kalashnikov]]
+[[backlink load test]]

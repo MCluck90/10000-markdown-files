@@ -95,8 +95,8 @@ Serpent.
 
 ## Wikilinks load test
 
-[[oncoming speed skating]]
-[[monomorphemic atomic number 61]]
-[[fractional counterplay]]
-[[single-bedded freeholder]]
-[[unprogressive davallia]]
+[[well-ordered genus arius]]
+[[rush tepic]]
+[[sweltering velvet bent]]
+[[unsalaried backhand stroke]]
+[[backlink load test]]

@@ -84,8 +84,6 @@ Alice's and smiled and me
 
 ## Wikilinks load test
 
-[[asexual giant squid]]
-[[fisheye prima donna]]
-[[all-embracing light heavyweight]]
-[[unforceful tricolor television tube]]
-[[vulgar invariableness]]
+[[mimetic jan christian smuts]]
+[[supplicant napoleon]]
+[[backlink load test]]

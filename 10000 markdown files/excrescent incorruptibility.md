@@ -84,6 +84,9 @@ Not yet please.
 
 ## Wikilinks load test
 
-[[chalybeate business sector]]
-[[duplicitous stare]]
-[[stimulating apple nut]]
+[[expressionless exponential curve]]
+[[reachable hallowmas]]
+[[two-fold full stop]]
+[[one hundred thirty-five arctiidae]]
+[[loose-jowled inquisitor]]
+[[backlink load test]]

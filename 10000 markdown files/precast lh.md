@@ -82,5 +82,6 @@ In a chorus of thunder and
 
 ## Wikilinks load test
 
-[[divalent bur oak]]
-[[precipitating mistletoe cactus]]
+[[safe pot liquor]]
+[[fictitious saltpetre]]
+[[backlink load test]]

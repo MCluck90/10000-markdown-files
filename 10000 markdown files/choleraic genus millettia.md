@@ -93,7 +93,5 @@ won't stand beating.
 
 ## Wikilinks load test
 
-[[cloven-hoofed chop shop]]
-[[porous chamois cress]]
-[[fineable black morel]]
-[[cosher herpetologist]]
+[[self-induced mantua]]
+[[backlink load test]]

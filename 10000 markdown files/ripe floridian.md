@@ -86,8 +86,5 @@ later editions continued turning
 
 ## Wikilinks load test
 
-[[disparate fluorochrome]]
-[[piagetian large-leaved aster]]
-[[imbalanced railroad engineer]]
-[[limitless janissary]]
-[[stuck with penicillin-resistant bacteria]]
+[[singaporean circular plane]]
+[[backlink load test]]

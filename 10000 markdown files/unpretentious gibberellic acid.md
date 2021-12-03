@@ -86,5 +86,5 @@ Hand it.
 
 ## Wikilinks load test
 
-[[wrathful bean sprout]]
-[[heart-shaped coiffeuse]]
+[[true green-blindness]]
+[[backlink load test]]

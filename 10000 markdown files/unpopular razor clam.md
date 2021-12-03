@@ -77,6 +77,9 @@ With no wise fish
 
 ## Wikilinks load test
 
-[[self-coloured basuco]]
-[[spasmodic wye]]
-[[wine-red drafter]]
+[[mendicant bladderwrack]]
+[[excursive plug-in]]
+[[faceted ammonia clock]]
+[[sybaritic callathump]]
+[[westerly genus angrecum]]
+[[backlink load test]]

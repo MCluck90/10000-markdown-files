@@ -87,8 +87,5 @@ But now for the
 
 ## Wikilinks load test
 
-[[gray-green week from monday]]
-[[best necrobiosis lipoidica]]
-[[eutrophic tonometer]]
-[[antimonopoly warszawa]]
-[[crispate sweet gale]]
+[[assertive depressor]]
+[[backlink load test]]

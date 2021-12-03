@@ -86,5 +86,5 @@ YOU'D better leave off in questions
 
 ## Wikilinks load test
 
-[[entertaining dayton axe]]
-[[katari priacanthus arenatus]]
+[[closely-held transvestitism]]
+[[backlink load test]]

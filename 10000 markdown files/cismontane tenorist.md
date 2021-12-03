@@ -83,8 +83,9 @@ Change lobsters to uglify is.
 
 ## Wikilinks load test
 
-[[christly kilowatt]]
-[[mountainous discovery]]
-[[tailored nymphaea alba]]
-[[cogitative iditarod trail]]
-[[monogynic wallah]]
+[[inherent acciaccatura]]
+[[small general agent]]
+[[high-energy passionflower]]
+[[diametric regulator]]
+[[dramatic pilot whale]]
+[[backlink load test]]

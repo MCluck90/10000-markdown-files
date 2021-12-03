@@ -86,7 +86,6 @@ ARE OLD FATHER WILLIAM said pig
 
 ## Wikilinks load test
 
-[[ratiocinative spermophilus]]
-[[jolting heliotropism]]
-[[namibian brosme brosme]]
-[[untethered glaucomys volans]]
+[[bare-knuckled stirrup pump]]
+[[testate hardening of the arteries]]
+[[backlink load test]]

@@ -87,8 +87,8 @@ Chorus again you got down
 
 ## Wikilinks load test
 
-[[spiderlike ecclesiastical calendar]]
-[[tessellated genus xylosma]]
-[[cranky naked option]]
-[[surmountable femtometer]]
-[[aryan bench mark]]
+[[palmlike bowleg]]
+[[competitory fig]]
+[[contracted crew member]]
+[[incumbent genus pavo]]
+[[backlink load test]]

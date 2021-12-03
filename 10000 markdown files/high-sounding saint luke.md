@@ -91,8 +91,5 @@ Prizes.
 
 ## Wikilinks load test
 
-[[roundish kaiser bill]]
-[[pinkish teacupful]]
-[[arboreal eliminator]]
-[[psychic tomatillo]]
-[[lecherous verst]]
+[[smooth-faced oddball]]
+[[backlink load test]]

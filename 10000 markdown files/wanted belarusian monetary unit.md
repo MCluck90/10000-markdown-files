@@ -80,4 +80,9 @@ Read them up to shrink any
 
 ## Wikilinks load test
 
-[[disgustful alder tree]]
+[[accordant radiigera]]
+[[scalic castor fiber]]
+[[hundredth isurus oxyrhincus]]
+[[supplemental castaway]]
+[[pharyngeal fleur-de-lis]]
+[[backlink load test]]

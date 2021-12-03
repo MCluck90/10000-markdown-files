@@ -85,7 +85,5 @@ Suppose we shall think
 
 ## Wikilinks load test
 
-[[moblike auditory image]]
-[[inmost straight arrow]]
-[[imploring toper]]
-[[indigo five-finger]]
+[[reorganised ordure]]
+[[backlink load test]]

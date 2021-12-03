@@ -84,8 +84,8 @@ Half-past one arm you fair warning
 
 ## Wikilinks load test
 
-[[mischievous panorama]]
-[[broad-leafed donald glaser]]
-[[o.k. immaculateness]]
-[[suppressed genus nephrolepis]]
-[[rachitic laugher]]
+[[supervised blastocyte]]
+[[sluttish stockholdings]]
+[[glabellar gasp]]
+[[edentulous kind]]
+[[backlink load test]]

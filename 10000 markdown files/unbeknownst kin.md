@@ -83,8 +83,7 @@ Stuff and perhaps.
 
 ## Wikilinks load test
 
-[[bullet-headed genus apium]]
-[[arabian waddler]]
-[[choky blueweed]]
-[[boeotian autograph album]]
-[[anaclitic military censorship]]
+[[yellowed al-qaida]]
+[[parallel storm lamp]]
+[[blood-filled knife thrust]]
+[[backlink load test]]

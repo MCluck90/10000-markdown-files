@@ -89,5 +89,8 @@ That'll be removed.
 
 ## Wikilinks load test
 
-[[feline hamamelidanthum]]
-[[several-seeded schizophrenic disorder]]
+[[lesbian felis pardalis]]
+[[conditioned screen door]]
+[[arteriovenous linear measure]]
+[[self-supporting factor viii]]
+[[backlink load test]]

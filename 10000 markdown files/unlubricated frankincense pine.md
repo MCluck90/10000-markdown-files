@@ -78,8 +78,6 @@ Everything's got to nurse and very
 
 ## Wikilinks load test
 
-[[astringent pennycress]]
-[[congenital elisha graves otis]]
-[[desperate gas company]]
-[[unattractive guy rope]]
-[[nonspatial swimmer]]
+[[compendious central processing unit]]
+[[flat-bottom bulwer-lytton]]
+[[backlink load test]]

@@ -79,8 +79,6 @@ so long hookah into
 
 ## Wikilinks load test
 
-[[autogenous james wyatt]]
-[[extralinguistic helvella acetabulum]]
-[[sneering saccade]]
-[[loth greek clover]]
-[[unimpassioned champion lode]]
+[[drug-addicted tablecloth]]
+[[intense honey eater]]
+[[backlink load test]]

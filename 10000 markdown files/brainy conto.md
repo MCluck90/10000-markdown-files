@@ -78,8 +78,8 @@ Suppress him while finding that begins
 
 ## Wikilinks load test
 
-[[roast playfulness]]
-[[quiet landrys paralysis]]
-[[indiscriminate thermos flask]]
-[[machiavellian television equipment]]
-[[occasional sydenham]]
+[[effervescing incremental cost]]
+[[tusked liquid measure]]
+[[reproductive lygus bug]]
+[[intracranial off-day]]
+[[backlink load test]]

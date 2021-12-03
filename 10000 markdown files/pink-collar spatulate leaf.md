@@ -91,7 +91,7 @@ ARE OLD FATHER WILLIAM to doubt
 
 ## Wikilinks load test
 
-[[double-breasted giant granadilla]]
-[[fineable black morel]]
-[[able-bodied automatic teller machine]]
-[[cordiform commodities exchange]]
+[[lamarckian philadelphus coronarius]]
+[[indiscreet frotteur]]
+[[downwind showy daisy]]
+[[backlink load test]]

@@ -88,6 +88,5 @@ Once upon the refreshments.
 
 ## Wikilinks load test
 
-[[regional whirligig]]
-[[fancy-free lek]]
-[[aquiferous oneill]]
+[[mauve-blue garden trowel]]
+[[backlink load test]]

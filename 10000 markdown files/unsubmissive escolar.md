@@ -87,6 +87,7 @@ I wonder.
 
 ## Wikilinks load test
 
-[[confutable friction clutch]]
-[[bullnecked adoration]]
-[[upstart magic bullet]]
+[[mint amaranthus graecizans]]
+[[destroyed peanut bar]]
+[[equal tailors chalk]]
+[[backlink load test]]

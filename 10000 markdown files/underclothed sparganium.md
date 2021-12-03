@@ -95,7 +95,9 @@ Pat.
 
 ## Wikilinks load test
 
-[[uncouth swan river everlasting]]
-[[shitless plasmablast]]
-[[earlyish suttee]]
-[[abroach shell ginger]]
+[[median offshoot]]
+[[snazzy furfural]]
+[[bicornate baldrick]]
+[[twinkling cager]]
+[[riskless jackknife]]
+[[backlink load test]]

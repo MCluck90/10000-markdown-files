@@ -85,6 +85,9 @@ But everything's curious creatures
 
 ## Wikilinks load test
 
-[[simian february 22]]
-[[nonplused trouble shooter]]
-[[abkhazian caucasoid race]]
+[[discoidal wine-makers yeast]]
+[[bossy written communication]]
+[[leathered arcellidae]]
+[[verticillated pseudoscorpiones]]
+[[idolised spirit rapping]]
+[[backlink load test]]

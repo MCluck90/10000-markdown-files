@@ -83,6 +83,9 @@ HE went in salt
 
 ## Wikilinks load test
 
-[[hair-raising corokia]]
-[[correct tosh]]
-[[sincere pole vaulting]]
+[[beady cystopteris montana]]
+[[dark-brown meteorite]]
+[[accident-prone golden calf]]
+[[clastic plait]]
+[[city-bred primrose]]
+[[backlink load test]]

@@ -82,8 +82,7 @@ but her listening so full
 
 ## Wikilinks load test
 
-[[leglike eau de cologne mint]]
-[[a posteriori corrigendum]]
-[[wysiwyg skateboard]]
-[[leibnitzian family chalcididae]]
-[[staunch st. ignatius]]
+[[stoppered monocot family]]
+[[adonic manilla]]
+[[dexter full-wave rectifier]]
+[[backlink load test]]

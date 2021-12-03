@@ -79,8 +79,9 @@ Can't remember the corners next.
 
 ## Wikilinks load test
 
-[[dismissive earthnut]]
-[[calcitic superior rectus muscle]]
-[[sensitizing genus tagetes]]
-[[buzzing chalk pit]]
-[[sinhala lamb-chop]]
+[[small general agent]]
+[[soused maurice ravel]]
+[[dulcet desert four oclock]]
+[[burned-over popular struggle front]]
+[[eight-sided wild madder]]
+[[backlink load test]]

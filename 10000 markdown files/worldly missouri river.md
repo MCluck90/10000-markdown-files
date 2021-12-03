@@ -86,6 +86,5 @@ Have some time and it'll fetch
 
 ## Wikilinks load test
 
-[[outmoded grant wood]]
-[[ungroomed french spinach]]
-[[most quota]]
+[[bullet-headed genus apium]]
+[[backlink load test]]

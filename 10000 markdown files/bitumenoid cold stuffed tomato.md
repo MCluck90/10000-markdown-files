@@ -82,7 +82,9 @@ Herald read as quickly as to
 
 ## Wikilinks load test
 
-[[well-balanced tune]]
-[[certain muscle system]]
-[[fisheye prima donna]]
-[[pantheist baby-boom generation]]
+[[treated cottonseed oil]]
+[[crannied edward young]]
+[[touching classical ballet]]
+[[impressive bothrops]]
+[[patelliform pavlov]]
+[[backlink load test]]

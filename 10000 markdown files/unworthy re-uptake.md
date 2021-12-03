@@ -85,5 +85,5 @@ Twinkle twinkle little girl or
 
 ## Wikilinks load test
 
-[[close together longbeard]]
-[[ostentatious vomitive]]
+[[cxx hairsplitter]]
+[[backlink load test]]

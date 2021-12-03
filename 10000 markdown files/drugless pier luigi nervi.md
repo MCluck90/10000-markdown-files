@@ -85,6 +85,7 @@ Seven said advance twice she
 
 ## Wikilinks load test
 
-[[fair zebra orchid]]
-[[eleven-sided japanese cherry]]
-[[tabby infrared ray]]
+[[minimum good luck]]
+[[sour first-rater]]
+[[exciting indri brevicaudatus]]
+[[backlink load test]]

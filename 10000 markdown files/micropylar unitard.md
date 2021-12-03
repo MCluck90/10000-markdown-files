@@ -92,8 +92,8 @@ later editions continued as curious
 
 ## Wikilinks load test
 
-[[fatherlike savings and loan association]]
-[[ukrainian fast reactor]]
-[[two-channel american falls]]
-[[descriptive quasiparticle]]
-[[heartsick classification]]
+[[stopped up pilot ladder]]
+[[fickle sputter]]
+[[fifty-one oosphere]]
+[[unfurrowed household linen]]
+[[backlink load test]]

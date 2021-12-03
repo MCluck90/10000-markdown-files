@@ -83,8 +83,9 @@ HEARTHRUG NEAR THE BOOTS
 
 ## Wikilinks load test
 
-[[self-willed limp]]
-[[vague gentianella amarella]]
-[[blue-fruited star-duckweed]]
-[[grainy boundary line]]
-[[metallike boucle]]
+[[plenary musical interval]]
+[[city-bred primrose]]
+[[thai hatbox]]
+[[holographical clematis baldwinii]]
+[[top-heavy comp]]
+[[backlink load test]]

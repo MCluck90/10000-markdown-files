@@ -89,8 +89,6 @@ Does YOUR table all mad.
 
 ## Wikilinks load test
 
-[[monthly genus gentiana]]
-[[isothermic intima]]
-[[impuissant william byrd]]
-[[anosmic hesperus]]
-[[tawny-colored sago fern]]
+[[end-to-end montan wax]]
+[[doltish orthoepy]]
+[[backlink load test]]

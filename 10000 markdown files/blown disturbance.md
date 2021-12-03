@@ -83,6 +83,6 @@ Call the unfortunate guests
 
 ## Wikilinks load test
 
-[[puppyish damourite]]
-[[unheard-of counsel]]
-[[resolved gadus]]
+[[buried ukranian]]
+[[reborn wonder]]
+[[backlink load test]]

@@ -86,8 +86,8 @@ Don't talk in her neck
 
 ## Wikilinks load test
 
-[[ingratiatory genus aneides]]
-[[syrian megaflop]]
-[[furrowed cercopithecus talapoin]]
-[[denigratory special effect]]
-[[consolable baht]]
+[[groping guadalupe mountains]]
+[[reprehensible ware]]
+[[untidy class anthoceropsida]]
+[[addlepated syllabus]]
+[[backlink load test]]

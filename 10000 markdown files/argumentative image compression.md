@@ -86,7 +86,5 @@ These were the poor hands
 
 ## Wikilinks load test
 
-[[libyan lithuresis]]
-[[breeched ginger beer]]
-[[garrulous bridge hand]]
-[[miraculous arctic archipelago]]
+[[catachrestic lars onsager]]
+[[backlink load test]]

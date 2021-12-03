@@ -90,7 +90,5 @@ Nearly two feet high said I
 
 ## Wikilinks load test
 
-[[missionary sorting algorithm]]
-[[incoherent volcan de colima]]
-[[monandrous noonans syndrome]]
-[[rentable crock pot]]
+[[ternary rate of growth]]
+[[backlink load test]]

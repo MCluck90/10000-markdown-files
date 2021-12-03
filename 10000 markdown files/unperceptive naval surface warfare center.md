@@ -76,8 +76,6 @@ Very true said Get
 
 ## Wikilinks load test
 
-[[cherubic british people]]
-[[norwegian alertness]]
-[[inexpedient cephalotaceae]]
-[[substandard south platte river]]
-[[frequent lee yuen kam]]
+[[filial capra hircus]]
+[[concretistic ipomoea quamoclit]]
+[[backlink load test]]

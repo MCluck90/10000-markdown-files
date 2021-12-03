@@ -86,6 +86,6 @@ It proves nothing but some
 
 ## Wikilinks load test
 
-[[flash family nymphalidae]]
-[[open-source inferiority complex]]
-[[terse bulnesia sarmienti]]
+[[burry brasenia]]
+[[umteen bunny rabbit]]
+[[backlink load test]]

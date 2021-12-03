@@ -90,8 +90,7 @@ Keep back with variations.
 
 ## Wikilinks load test
 
-[[milch pyrausta nubilalis]]
-[[macroeconomic ski resort]]
-[[reflexive priestess]]
-[[impassive transit line]]
-[[lipped os pisiforme]]
+[[choosy hosiery]]
+[[juristic manioca]]
+[[downtrodden faberge]]
+[[backlink load test]]

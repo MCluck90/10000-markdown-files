@@ -78,7 +78,9 @@ I'M a wondering very
 
 ## Wikilinks load test
 
-[[unsubtle untrustiness]]
-[[medial family dactylopiidae]]
-[[mindless defensive attitude]]
-[[compendious central processing unit]]
+[[entomophilous cedar nut]]
+[[westerly genus angrecum]]
+[[shocking flaminius]]
+[[addled flatbed]]
+[[ferret-sized altar wine]]
+[[backlink load test]]

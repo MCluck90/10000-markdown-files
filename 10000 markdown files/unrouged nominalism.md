@@ -78,6 +78,9 @@ and some were down
 
 ## Wikilinks load test
 
-[[ambagious temperateness]]
-[[uncoiled finishing]]
-[[apt columbus day]]
+[[unsubtle untrustiness]]
+[[pinnate-leafed blue cheese]]
+[[mundane life ring]]
+[[semiparasitic locus classicus]]
+[[semicentenary snake dance]]
+[[backlink load test]]

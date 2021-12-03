@@ -77,8 +77,9 @@ One two You see the
 
 ## Wikilinks load test
 
-[[unemployed money order]]
-[[unconvincing genus comatula]]
-[[early-flowering proboscidea]]
-[[tabu good-naturedness]]
-[[humanist countryside]]
+[[tartaric elastomer]]
+[[cognoscible vermiform process]]
+[[investigatory common good]]
+[[acicular attractiveness]]
+[[savourless swede]]
+[[backlink load test]]

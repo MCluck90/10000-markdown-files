@@ -89,5 +89,5 @@ Nothing whatever said but all
 
 ## Wikilinks load test
 
-[[avocado ware]]
-[[heavy-armed d region]]
+[[psycholinguistic congelation]]
+[[backlink load test]]

@@ -83,6 +83,7 @@ they'll do something now
 
 ## Wikilinks load test
 
-[[amoebous disease of the neuromuscular junction]]
-[[delimited reconnaissance]]
-[[victorious erigeron philadelphicus]]
+[[inedible high church]]
+[[flame-coloured hair oil]]
+[[intense genus solandra]]
+[[backlink load test]]

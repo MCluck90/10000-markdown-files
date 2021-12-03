@@ -89,5 +89,9 @@ Alas.
 
 ## Wikilinks load test
 
-[[apposable pretorium]]
-[[fine causation]]
+[[hypnoid notebook entry]]
+[[watertight capsicum frutescens]]
+[[changeless quadrangular prism]]
+[[discourteous dapsang]]
+[[neural rasta]]
+[[backlink load test]]

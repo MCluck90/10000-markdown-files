@@ -78,8 +78,6 @@ thump.
 
 ## Wikilinks load test
 
-[[lean sable]]
-[[knowable aquilegia scopulorum calcarea]]
-[[accoutred stephen spender]]
-[[ophthalmic arterial pressure]]
-[[unpaired cursorius cursor]]
+[[tied up bel and the dragon]]
+[[boughless northern cross]]
+[[backlink load test]]

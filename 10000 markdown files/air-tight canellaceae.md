@@ -86,7 +86,6 @@ IT TO YOU sing.
 
 ## Wikilinks load test
 
-[[uninvited cucking stool]]
-[[ferial loather]]
-[[raisable resistor]]
-[[latitudinarian plasticine]]
+[[receivable unjustness]]
+[[discredited lake ilmen]]
+[[backlink load test]]

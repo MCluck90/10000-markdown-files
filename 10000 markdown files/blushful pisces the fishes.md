@@ -88,6 +88,5 @@ Nearly two or any one
 
 ## Wikilinks load test
 
-[[regional whirligig]]
-[[discredited lake ilmen]]
-[[loosely knit neglecter]]
+[[nonflammable linin]]
+[[backlink load test]]

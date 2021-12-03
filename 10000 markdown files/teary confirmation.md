@@ -85,4 +85,8 @@ THAT direction it happens
 
 ## Wikilinks load test
 
-[[distorted nipr]]
+[[pelagic zymurgy]]
+[[white-lipped spiny anteater]]
+[[violet-streaked two-base hit]]
+[[up-to-date mount logan]]
+[[backlink load test]]

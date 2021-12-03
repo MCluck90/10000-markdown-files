@@ -83,7 +83,6 @@ Either the mushroom said EVERYBODY has
 
 ## Wikilinks load test
 
-[[white-lipped funny]]
-[[unanimated elymus hispidus]]
-[[tedious cheese tray]]
-[[achlamydeous windshield wiper]]
+[[baseborn galvanic cell]]
+[[anamorphic greybeard]]
+[[backlink load test]]

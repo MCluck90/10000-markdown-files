@@ -88,8 +88,5 @@ It'll be quite enough don't bother
 
 ## Wikilinks load test
 
-[[astrophysical setter]]
-[[ok groundwork]]
-[[squeezable pocket knife]]
-[[unpublishable make-work]]
-[[involucrate differential calculus]]
+[[pentasyllabic dwarf elder]]
+[[backlink load test]]

@@ -87,8 +87,7 @@ she turned to fix on puzzling
 
 ## Wikilinks load test
 
-[[bicentenary tolkien]]
-[[analeptic ambage]]
-[[grecian genus negaprion]]
-[[courteous washingtons birthday]]
-[[talky threshold element]]
+[[geosynchronous howard]]
+[[avascular star of the veldt]]
+[[antitypical speed of light]]
+[[backlink load test]]

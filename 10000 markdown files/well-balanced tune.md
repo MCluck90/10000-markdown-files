@@ -88,7 +88,6 @@ You're wrong from.
 
 ## Wikilinks load test
 
-[[allophonic phalacrocorax]]
-[[flip imperfect tense]]
-[[dramatic haggis]]
-[[nonmetamorphic ok]]
+[[unassured southern beech]]
+[[curling mousse]]
+[[backlink load test]]

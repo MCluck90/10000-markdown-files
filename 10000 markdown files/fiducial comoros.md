@@ -83,7 +83,5 @@ Suppress him when Alice as she
 
 ## Wikilinks load test
 
-[[watered id al-fitr]]
-[[antenatal ethnic slur]]
-[[faithless regicide]]
-[[nighted witchery]]
+[[funky 2]]
+[[backlink load test]]

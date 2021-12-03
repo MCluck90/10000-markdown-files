@@ -83,8 +83,9 @@ from here I deny it further.
 
 ## Wikilinks load test
 
-[[awnless surveyors instrument]]
-[[immortal electrical power]]
-[[no-win microcytic anaemia]]
-[[knocked out wild spinach]]
-[[inexterminable covered option]]
+[[disenfranchised sack coat]]
+[[christly kilowatt]]
+[[lapsed klinefelter syndrome]]
+[[for sale chlorophyte]]
+[[fast-flying negative muon]]
+[[backlink load test]]

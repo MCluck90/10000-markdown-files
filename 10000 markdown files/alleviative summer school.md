@@ -86,5 +86,9 @@ Pray how he hasn't got
 
 ## Wikilinks load test
 
-[[dislikable genus abudefduf]]
-[[carthaginian tufted pansy]]
+[[empty-headed infamy]]
+[[self-willed kabbalist]]
+[[acrophobic negative reinforcer]]
+[[adaptative eye socket]]
+[[solemn ethelred]]
+[[backlink load test]]

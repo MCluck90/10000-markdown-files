@@ -80,8 +80,7 @@ Suddenly she looked at
 
 ## Wikilinks load test
 
-[[saxatile slipper]]
-[[politic baldy]]
-[[incident stereotype]]
-[[tedious cheese tray]]
-[[long-branched sortie]]
+[[obliging pouched mole]]
+[[goblet-shaped lodgment]]
+[[competitory naumachy]]
+[[backlink load test]]

@@ -77,4 +77,7 @@ Same as before them
 
 ## Wikilinks load test
 
-[[pet pitchman]]
+[[undisguised mylitta]]
+[[low-sudsing gavia]]
+[[violet-tinged hollo]]
+[[backlink load test]]

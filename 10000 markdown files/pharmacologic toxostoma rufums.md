@@ -87,7 +87,5 @@ Tell me but I make
 
 ## Wikilinks load test
 
-[[preferred creel]]
-[[candescent psychobabble]]
-[[sparing nanga parbat]]
-[[heralded chlorura]]
+[[knock-kneed hen party]]
+[[backlink load test]]

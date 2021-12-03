@@ -83,5 +83,5 @@ persisted.
 
 ## Wikilinks load test
 
-[[rhizoidal startle response]]
-[[educative avocado pear]]
+[[hyperthermal firefly]]
+[[backlink load test]]

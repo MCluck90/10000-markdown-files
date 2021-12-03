@@ -83,6 +83,6 @@ Nay I hardly suppose
 
 ## Wikilinks load test
 
-[[fuggy gregory pincus]]
-[[allogamous hired gun]]
-[[distressful deservingness]]
+[[worshipful precipitin]]
+[[awash vanda caerulea]]
+[[backlink load test]]

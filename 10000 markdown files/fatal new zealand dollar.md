@@ -89,8 +89,7 @@ Sing her way to about
 
 ## Wikilinks load test
 
-[[repand beech fern]]
-[[upstream duke university]]
-[[heterodox genus cotoneaster]]
-[[topless john wickliffe]]
-[[loquacious straightedge]]
+[[nonhairy buspar]]
+[[asyndetic bowling league]]
+[[specialized genus hypopachus]]
+[[backlink load test]]

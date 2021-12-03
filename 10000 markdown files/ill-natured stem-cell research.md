@@ -88,8 +88,7 @@ Five in reply it something about
 
 ## Wikilinks load test
 
-[[carpal quicksand]]
-[[correct tosh]]
-[[bumbling felis tigrina]]
-[[satisfying recoil]]
-[[computable schmoose]]
+[[conceptual rosa eglanteria]]
+[[foul actinidia chinensis]]
+[[unprocessed winch]]
+[[backlink load test]]

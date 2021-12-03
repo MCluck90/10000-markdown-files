@@ -84,7 +84,7 @@ here and I'll write this
 
 ## Wikilinks load test
 
-[[starless ummah]]
-[[politically correct swirl]]
-[[translucent knights service]]
-[[unbloody coast lily]]
+[[intralobular tibetan mastiff]]
+[[straw-coloured crown colony]]
+[[onomatopoetic sweet-birch oil]]
+[[backlink load test]]

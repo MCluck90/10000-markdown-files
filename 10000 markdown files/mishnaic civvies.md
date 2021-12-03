@@ -87,8 +87,9 @@ I wouldn't say things between
 
 ## Wikilinks load test
 
-[[patrilinear paedophile]]
-[[adored callirhoe involucrata]]
-[[pyrochemical nowness]]
-[[disyllabic margrave]]
-[[tusked alexander graham bell]]
+[[niggling semitropics]]
+[[rejected sexuality]]
+[[fifty-five land mine]]
+[[collagenic little bighorn river]]
+[[disadvantageous anasazi]]
+[[backlink load test]]

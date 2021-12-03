@@ -89,7 +89,7 @@ Beautiful Soup of cherry-tart custard
 
 ## Wikilinks load test
 
-[[postpositive oklahoma city]]
-[[defunct emerald creeper]]
-[[floaty veil]]
-[[out of true leucotomy]]
+[[inherent curse word]]
+[[aimless ranee]]
+[[animist trappist]]
+[[backlink load test]]

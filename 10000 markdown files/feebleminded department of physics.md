@@ -93,6 +93,9 @@ here.
 
 ## Wikilinks load test
 
-[[cloudy rheum palmatum]]
-[[monetary british labour party]]
-[[showery clockwise rotation]]
+[[square-jawed serkin]]
+[[baptized old style calendar]]
+[[cramped romance language]]
+[[unfathomable genus campanula]]
+[[wiry-stemmed class bacillariophyceae]]
+[[backlink load test]]

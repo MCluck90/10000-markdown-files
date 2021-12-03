@@ -86,6 +86,7 @@ or other unpleasant things
 
 ## Wikilinks load test
 
-[[olive-colored seal of approval]]
-[[scarlet-pink autofluorescence]]
-[[heart-healthy earpiece]]
+[[carthaginian tufted pansy]]
+[[spasmodic wye]]
+[[anapaestic herniated disc]]
+[[backlink load test]]

@@ -93,7 +93,9 @@ Can't remember WHAT things indeed
 
 ## Wikilinks load test
 
-[[hedonic yogi berra]]
-[[slanted bombus]]
-[[serial hippo regius]]
-[[calced moolah]]
+[[sonant norvasc]]
+[[corymbose waterlessness]]
+[[extraterrestrial bob woodward]]
+[[phenotypical genus pinicola]]
+[[anal morbilli]]
+[[backlink load test]]

@@ -94,8 +94,9 @@ Pig.
 
 ## Wikilinks load test
 
-[[forty-eighth spanish oak]]
-[[nostalgic plasminogen]]
-[[awless logomach]]
-[[bearish j. c. maxwell]]
-[[squared frisia]]
+[[full-page encephalon]]
+[[mischievous panorama]]
+[[jewish stovepipe iron]]
+[[appreciable grad]]
+[[case-hardened lotus]]
+[[backlink load test]]

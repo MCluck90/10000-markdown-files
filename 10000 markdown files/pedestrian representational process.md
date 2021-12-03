@@ -82,8 +82,9 @@ Of the capital of him deeply
 
 ## Wikilinks load test
 
-[[tricked-out mirish]]
-[[laborsaving visual modality]]
-[[nontoxic hessian]]
-[[captious buffalo indian]]
-[[saccadic identification number]]
+[[censorial parthenium argentatum]]
+[[decreed benefaction]]
+[[spellbinding impinging]]
+[[antemortem cub]]
+[[verticillated pseudoscorpiones]]
+[[backlink load test]]

@@ -84,8 +84,6 @@ Your Majesty the crowd
 
 ## Wikilinks load test
 
-[[delectable wood tar]]
-[[souffle-like entanglement]]
-[[bastioned weltanschauung]]
-[[underdressed industrial psychology]]
-[[overdelicate state capitalism]]
+[[australopithecine stenopelmatus fuscus]]
+[[bioluminescent wildebeest]]
+[[backlink load test]]

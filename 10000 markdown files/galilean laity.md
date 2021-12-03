@@ -81,7 +81,6 @@ CHORUS.
 
 ## Wikilinks load test
 
-[[seagirt hepaticae]]
-[[polychromic defeat]]
-[[bicylindrical selenium]]
-[[peruvian animal psychology]]
+[[pinkish-lavender huntingdon elm]]
+[[nonmetallic jamestown]]
+[[backlink load test]]

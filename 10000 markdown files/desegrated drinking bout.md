@@ -84,7 +84,7 @@ Get up again dear
 
 ## Wikilinks load test
 
-[[senegalese stocking stuffer]]
-[[inopportune maclura pomifera]]
-[[ambiguous homepage]]
-[[warmhearted genus elymus]]
+[[all-time cervical disc syndrome]]
+[[wrathful bean sprout]]
+[[trifoliate nubbiness]]
+[[backlink load test]]

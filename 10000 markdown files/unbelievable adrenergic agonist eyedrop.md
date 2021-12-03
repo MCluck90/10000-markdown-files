@@ -87,8 +87,5 @@ In a look for yourself
 
 ## Wikilinks load test
 
-[[gaunt subphylum tunicata]]
-[[reasoning friesian]]
-[[single-barreled cranberry juice]]
-[[endogamic micrometer]]
-[[inheritable green olive]]
+[[outdated recce]]
+[[backlink load test]]

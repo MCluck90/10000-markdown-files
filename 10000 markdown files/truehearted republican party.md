@@ -77,8 +77,9 @@ Reeling and no label
 
 ## Wikilinks load test
 
-[[devious false goatsbeard]]
-[[unending japanese red army]]
-[[uneconomical naval tactical data system]]
-[[hydrocephalic morchellaceae]]
-[[glamorous claymore]]
+[[lively cloud seeder]]
+[[cognitive libertine]]
+[[constricting grouch]]
+[[histologic water wheel]]
+[[deadened pitocin]]
+[[backlink load test]]

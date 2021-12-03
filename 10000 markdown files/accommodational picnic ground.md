@@ -90,8 +90,9 @@ ever heard of more puzzled but
 
 ## Wikilinks load test
 
-[[combat-ready navigator]]
-[[felicitous nicolson]]
-[[implicit living will]]
-[[infernal prokaryote]]
-[[verminous docility]]
+[[single-bedded freeholder]]
+[[trained vodka]]
+[[client-server iliamna]]
+[[sullen acetic acid]]
+[[odoriferous riverbed]]
+[[backlink load test]]

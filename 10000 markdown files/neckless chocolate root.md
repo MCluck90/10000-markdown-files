@@ -88,5 +88,5 @@ That's none Why should learn lessons
 
 ## Wikilinks load test
 
-[[box-shaped sciurus carolinensis]]
-[[unappealable nitrogen oxide]]
+[[impetiginous swig]]
+[[backlink load test]]

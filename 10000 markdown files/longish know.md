@@ -87,7 +87,7 @@ they do very sorry you've cleared
 
 ## Wikilinks load test
 
-[[fossilized apollinaire]]
-[[unlawful sight]]
-[[anagrammatical tacamahac]]
-[[unshaded title of respect]]
+[[alphabetic disfigurement]]
+[[amalgamative burthen]]
+[[unfading integration]]
+[[backlink load test]]

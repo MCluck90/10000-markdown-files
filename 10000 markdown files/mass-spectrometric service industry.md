@@ -74,5 +74,9 @@ thump.
 
 ## Wikilinks load test
 
-[[polydactyl osmundaceae]]
-[[woebegone cooler]]
+[[corticifugal eucalyptus rostrata]]
+[[nonfat hare wallaby]]
+[[mind-blowing woodshed]]
+[[velvety litmus test]]
+[[recursive israel strassberg]]
+[[backlink load test]]

@@ -82,7 +82,7 @@ Stupid things I went
 
 ## Wikilinks load test
 
-[[southbound spatangoida]]
-[[non compos mentis edison]]
-[[wasp-waisted registered security]]
-[[terse bulnesia sarmienti]]
+[[feminist smooth plane]]
+[[anisometric common scurvy grass]]
+[[collarless inferior epigastric vein]]
+[[backlink load test]]

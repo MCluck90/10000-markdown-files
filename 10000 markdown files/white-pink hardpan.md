@@ -87,8 +87,5 @@ One of meaning in
 
 ## Wikilinks load test
 
-[[incompatible genus aspis]]
-[[receptive pilot balloon]]
-[[cxxx titanium oxide]]
-[[seven-fold garand]]
-[[unperturbed katmai national park]]
+[[communal reaumur scale]]
+[[backlink load test]]

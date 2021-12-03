@@ -88,8 +88,6 @@ muttered to box Allow
 
 ## Wikilinks load test
 
-[[formulary phenobarbital]]
-[[dioecian barbados cherry]]
-[[maxillomandibular apolune]]
-[[amerindic decalitre]]
-[[monotonic gospels]]
+[[apomictical kilometer]]
+[[young-bearing sodium hypochlorite]]
+[[backlink load test]]

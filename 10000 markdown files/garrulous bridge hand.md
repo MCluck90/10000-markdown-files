@@ -87,5 +87,6 @@ First however it rather
 
 ## Wikilinks load test
 
-[[altruistic sphyrna]]
-[[awful relativity]]
+[[atheistical teaching aid]]
+[[showery paragrapher]]
+[[backlink load test]]

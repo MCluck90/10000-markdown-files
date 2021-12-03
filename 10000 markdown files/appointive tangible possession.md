@@ -88,5 +88,5 @@ or perhaps I can listen
 
 ## Wikilinks load test
 
-[[unlifelike turning point]]
-[[metallurgical false indigo]]
+[[disciplined information age]]
+[[backlink load test]]

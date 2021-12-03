@@ -81,6 +81,5 @@ I've nothing to write it just
 
 ## Wikilinks load test
 
-[[virtuoso aaron copland]]
-[[copper-bottomed sorceress]]
-[[on the hook straight arrow]]
+[[sagittiform slit lamp]]
+[[backlink load test]]

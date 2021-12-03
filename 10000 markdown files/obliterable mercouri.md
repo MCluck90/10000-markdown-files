@@ -86,8 +86,5 @@ Everybody says it's sure.
 
 ## Wikilinks load test
 
-[[membranous indiscipline]]
-[[formalistic cargo cult]]
-[[detached warji]]
-[[sex-linked plant substance]]
-[[grayish-white ferber]]
+[[covetous cesare borgia]]
+[[backlink load test]]

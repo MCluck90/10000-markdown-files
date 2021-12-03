@@ -85,8 +85,6 @@ Alas.
 
 ## Wikilinks load test
 
-[[off-white control circuit]]
-[[boxed-in jumpiness]]
-[[nidicolous joseph conrad]]
-[[consultatory anthemis arvensis]]
-[[active absoluteness]]
+[[apish strangler fig]]
+[[iranian cow pie]]
+[[backlink load test]]

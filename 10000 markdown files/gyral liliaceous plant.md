@@ -90,6 +90,9 @@ Ahem.
 
 ## Wikilinks load test
 
-[[aided funk]]
-[[ill-humored goncalo alves]]
-[[umbellate gayfeather]]
+[[ottoman detonating fuse]]
+[[mesial saone]]
+[[napoleonic bullock block]]
+[[smooth-spoken git]]
+[[straightarrow malt whisky]]
+[[backlink load test]]

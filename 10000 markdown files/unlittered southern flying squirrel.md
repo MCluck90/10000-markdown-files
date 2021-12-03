@@ -86,5 +86,5 @@ Visit either.
 
 ## Wikilinks load test
 
-[[mexican stellers sea lion]]
-[[glib casework]]
+[[discoidal wine-makers yeast]]
+[[backlink load test]]

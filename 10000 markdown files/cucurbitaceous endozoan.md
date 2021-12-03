@@ -87,8 +87,5 @@ Here.
 
 ## Wikilinks load test
 
-[[favourite pancytopenia]]
-[[seaborne physostegia virginiana]]
-[[desk-bound christs resurrection]]
-[[yeatsian vocal band]]
-[[fruity quantum physics]]
+[[adjuvant africander]]
+[[backlink load test]]

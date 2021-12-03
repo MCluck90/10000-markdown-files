@@ -74,7 +74,5 @@ Write that do you know What
 
 ## Wikilinks load test
 
-[[isoclinal accusative]]
-[[clever sceptic]]
-[[close-packed exoderm]]
-[[superordinate calochortus albus]]
+[[uncorrected red silk cotton]]
+[[backlink load test]]

@@ -78,6 +78,7 @@ Pat.
 
 ## Wikilinks load test
 
-[[puppyish damourite]]
-[[single-humped catchment basin]]
-[[diverse beech marten]]
+[[shadowed salmon]]
+[[mechanized numbat]]
+[[inflectional euarctos]]
+[[backlink load test]]

@@ -87,6 +87,9 @@ Good-bye feet in confusion
 
 ## Wikilinks load test
 
-[[mass-spectrometric bridal wreath]]
-[[inflected genus nestor]]
-[[spice-scented contraception]]
+[[smashing luster]]
+[[filial capra hircus]]
+[[renowned dolichos lablab]]
+[[arabian waddler]]
+[[untroubled dogfish]]
+[[backlink load test]]

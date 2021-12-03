@@ -88,4 +88,9 @@ Sentence first and such long
 
 ## Wikilinks load test
 
-[[seeded osmunda cinnamonea]]
+[[fulgurant von braun]]
+[[anglo-saxon slope]]
+[[double-bedded passing shot]]
+[[self-assertive suzerainty]]
+[[upside-down beefeater]]
+[[backlink load test]]

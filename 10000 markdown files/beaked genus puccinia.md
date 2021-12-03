@@ -81,6 +81,5 @@ I'd only she checked herself
 
 ## Wikilinks load test
 
-[[threadlike airburst]]
-[[satiated arteria mesenterica]]
-[[endozoic stirk]]
+[[prognosticative klick]]
+[[backlink load test]]

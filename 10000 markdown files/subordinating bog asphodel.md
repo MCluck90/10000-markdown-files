@@ -85,4 +85,6 @@ Soup of croquet.
 
 ## Wikilinks load test
 
-[[isosceles racquetball]]
+[[eerie kahlua]]
+[[twiglike nyasaland]]
+[[backlink load test]]

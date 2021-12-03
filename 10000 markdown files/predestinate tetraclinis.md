@@ -79,5 +79,5 @@ on very deep or courtiers or
 
 ## Wikilinks load test
 
-[[awake ward-heeler]]
-[[prongy firing squad]]
+[[frequent lee yuen kam]]
+[[backlink load test]]

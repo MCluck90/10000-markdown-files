@@ -91,8 +91,7 @@ I learn not as
 
 ## Wikilinks load test
 
-[[homeostatic junkie]]
-[[direct equador laurel]]
-[[mail-clad pomoxis nigromaculatus]]
-[[antenatal ethnic slur]]
-[[archangelical cyanophyta]]
+[[embonpoint dijon]]
+[[snake-haired aldehyde]]
+[[bicameral jersey knapweed]]
+[[backlink load test]]

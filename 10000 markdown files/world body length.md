@@ -86,8 +86,9 @@ It looked puzzled.
 
 ## Wikilinks load test
 
-[[adaptative homeopath]]
-[[disquieted dad]]
-[[briefless contingency procedure]]
-[[utterable honeycreeper]]
-[[definite red bat]]
+[[lx belittling]]
+[[synovial servomechanism]]
+[[supersaturated characin fish]]
+[[absorbefacient trap]]
+[[rusty-brown chromaticity]]
+[[backlink load test]]

@@ -86,8 +86,9 @@ about wasting IT TO YOU
 
 ## Wikilinks load test
 
-[[weak dekagram]]
-[[two-pronged galliformes]]
-[[fortieth genus castanospermum]]
-[[heuristic bonnet macaque]]
-[[jellied refined sugar]]
+[[brasslike refractivity]]
+[[repulsive moirae]]
+[[concrete lepiota naucina]]
+[[ignited color property]]
+[[trifoliolate cyclohexanol phthalate]]
+[[backlink load test]]

@@ -91,6 +91,6 @@ You insult me but
 
 ## Wikilinks load test
 
-[[calculable bulblet]]
-[[pussy actinidia polygama]]
-[[abkhazian opcw]]
+[[welcome gridiron-tailed lizard]]
+[[patronymic hungarian grass]]
+[[backlink load test]]

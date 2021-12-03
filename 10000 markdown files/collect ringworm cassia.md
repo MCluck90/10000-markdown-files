@@ -91,8 +91,6 @@ WHAT things and not growling
 
 ## Wikilinks load test
 
-[[adulterine tracer bullet]]
-[[bareback fruit grower]]
-[[cross-eyed sponge morel]]
-[[exogamous maltese]]
-[[strong-smelling tramway]]
+[[familiar systeme international dunites]]
+[[participating kentuckian]]
+[[backlink load test]]

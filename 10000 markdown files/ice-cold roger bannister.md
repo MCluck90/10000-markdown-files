@@ -92,5 +92,5 @@ Digging for yourself not
 
 ## Wikilinks load test
 
-[[broadloom belles-lettres]]
-[[miserable family typhlopidae]]
+[[deistic gravel pit]]
+[[backlink load test]]

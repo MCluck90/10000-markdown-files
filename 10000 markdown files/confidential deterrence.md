@@ -85,8 +85,6 @@ UNimportant your tea not
 
 ## Wikilinks load test
 
-[[lesbian felis pardalis]]
-[[noncommercial jampot]]
-[[inextirpable beefwood]]
-[[catechetic moral principle]]
-[[matching proximity]]
+[[illusory caramel bun]]
+[[secular twenty-one]]
+[[backlink load test]]

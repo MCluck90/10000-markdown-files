@@ -89,6 +89,5 @@ I've something important as yet what
 
 ## Wikilinks load test
 
-[[precordial orthomorphic projection]]
-[[nonimmune snit]]
-[[psychotherapeutic lyon]]
+[[rhinal superscript]]
+[[backlink load test]]

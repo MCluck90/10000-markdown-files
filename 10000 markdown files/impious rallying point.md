@@ -87,5 +87,6 @@ Read them out her
 
 ## Wikilinks load test
 
-[[educated striped skunk]]
-[[upcurved mccarthy]]
+[[vixenish bearer of the sword]]
+[[disyllabic margrave]]
+[[backlink load test]]

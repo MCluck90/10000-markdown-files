@@ -76,6 +76,7 @@ That's none of executions
 
 ## Wikilinks load test
 
-[[crural dead language]]
-[[tiny gender]]
-[[out-of-pocket spectrophotometer]]
+[[plucky sanguinary ant]]
+[[acherontic adolphe sax]]
+[[ultraviolet visible balance]]
+[[backlink load test]]

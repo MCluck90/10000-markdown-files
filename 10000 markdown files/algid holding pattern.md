@@ -92,5 +92,9 @@ then I can't swim in
 
 ## Wikilinks load test
 
-[[heated up greater scaup]]
-[[unbeloved sensorineural hearing loss]]
+[[uppity service break]]
+[[eased horse-head]]
+[[peregrine estonian]]
+[[slipshod disturbance]]
+[[facetious orris]]
+[[backlink load test]]

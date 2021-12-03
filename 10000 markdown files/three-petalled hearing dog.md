@@ -79,8 +79,8 @@ If I eat cats.
 
 ## Wikilinks load test
 
-[[denunciatory west africa]]
-[[in series eye-lotion]]
-[[pushful jury mast]]
-[[horn-shaped breakwater]]
-[[gimcrack enrollee]]
+[[self-restraining champagne flute]]
+[[non-poisonous glucotrol]]
+[[rhyming e-bomb]]
+[[existentialist four-card monte]]
+[[backlink load test]]

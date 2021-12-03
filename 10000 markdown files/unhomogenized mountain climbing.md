@@ -94,5 +94,9 @@ Only I don't bother
 
 ## Wikilinks load test
 
-[[shadowed salmon]]
-[[pediatric dinoceras]]
+[[burnished war to end war]]
+[[fledgling horus]]
+[[disintegrable bombycid moth]]
+[[delirious gene]]
+[[wise boswellia carteri]]
+[[backlink load test]]

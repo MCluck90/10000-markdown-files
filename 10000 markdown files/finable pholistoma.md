@@ -88,8 +88,6 @@ inquired Alice living at
 
 ## Wikilinks load test
 
-[[matutinal marine iguana]]
-[[clastic hottentot fig]]
-[[nonmetamorphic ok]]
-[[tapered grand river]]
-[[off her guard interbrain]]
+[[moderating futurism]]
+[[pervious natal]]
+[[backlink load test]]

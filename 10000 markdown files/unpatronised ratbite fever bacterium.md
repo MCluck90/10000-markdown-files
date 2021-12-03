@@ -86,7 +86,9 @@ Hadn't time of present.
 
 ## Wikilinks load test
 
-[[fledgeless vigna]]
-[[isolable pussys-paw]]
-[[wound glyptography]]
-[[heuristic bonnet macaque]]
+[[psychogenic archeopteryx]]
+[[frightful endothelial myeloma]]
+[[miserly chou en-lai]]
+[[enraged atomic number 12]]
+[[secular twenty-one]]
+[[backlink load test]]

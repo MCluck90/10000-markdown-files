@@ -88,8 +88,9 @@ Soles and put down one
 
 ## Wikilinks load test
 
-[[holographical clematis baldwinii]]
-[[rhenish likeliness]]
-[[adsorbable ionian sea]]
-[[c pit-run gravel]]
-[[self-respecting seljuk]]
+[[niggardly foreign service]]
+[[calculous maui]]
+[[velvety litmus test]]
+[[absentminded barbette]]
+[[indicatory volkhov river]]
+[[backlink load test]]

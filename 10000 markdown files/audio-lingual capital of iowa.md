@@ -89,5 +89,8 @@ as far as safe to
 
 ## Wikilinks load test
 
-[[self-contradictory black mulberry]]
-[[lanky ngwee]]
+[[dissolvable scarp]]
+[[emollient quarter mile]]
+[[scaley overture]]
+[[hispid agave cantala]]
+[[backlink load test]]

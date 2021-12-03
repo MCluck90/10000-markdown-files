@@ -82,4 +82,9 @@ ALL.
 
 ## Wikilinks load test
 
-[[self-pollinated louis the stammerer]]
+[[unshaped cowman]]
+[[unlamented huguenot]]
+[[impure louis iv]]
+[[corporeal centrocercus]]
+[[consummated sparkleberry]]
+[[backlink load test]]

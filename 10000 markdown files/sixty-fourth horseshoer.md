@@ -82,6 +82,9 @@ That would in but
 
 ## Wikilinks load test
 
-[[sierra leonean moustache]]
-[[greenish-grey very light]]
-[[abreast princeton university]]
+[[plagioclastic doorstopper]]
+[[prospective purple sanicle]]
+[[aeronautical hagiolatry]]
+[[scarey drawing lots]]
+[[pandurate blister rust]]
+[[backlink load test]]

@@ -89,8 +89,7 @@ See how small for about
 
 ## Wikilinks load test
 
-[[curvilinear misquotation]]
-[[malodorous genus commiphora]]
-[[travel-soiled cesar franck]]
-[[self-righteous caesium clock]]
-[[procaryotic billy mitchell]]
+[[catamenial anisoptera]]
+[[violet-flowered indian millet]]
+[[bygone genus allium]]
+[[backlink load test]]

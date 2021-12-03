@@ -86,5 +86,5 @@ but tea.
 
 ## Wikilinks load test
 
-[[rhizoidal startle response]]
-[[undigested octopodidae]]
+[[tai soothing syrup]]
+[[backlink load test]]

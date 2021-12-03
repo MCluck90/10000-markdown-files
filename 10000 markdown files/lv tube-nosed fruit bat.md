@@ -84,5 +84,5 @@ Wow.
 
 ## Wikilinks load test
 
-[[paradisaic parsec]]
-[[dusky-coloured babys dummy]]
+[[unhopeful murmuration]]
+[[backlink load test]]

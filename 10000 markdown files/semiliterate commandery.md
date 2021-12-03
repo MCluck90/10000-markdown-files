@@ -90,8 +90,8 @@ either.
 
 ## Wikilinks load test
 
-[[nazi interchangeability]]
-[[cottony-white apanage]]
-[[fire-resisting deep middle cerebral vein]]
-[[wiped out charles frederick menninger]]
-[[livelong clergy]]
+[[fishy tremella lutescens]]
+[[allegorical deluge]]
+[[high-velocity jobbery]]
+[[christlike baldness]]
+[[backlink load test]]

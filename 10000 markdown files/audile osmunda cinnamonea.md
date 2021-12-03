@@ -90,8 +90,7 @@ Tis so closely against the pig-baby
 
 ## Wikilinks load test
 
-[[upscale gallinago]]
-[[amygdaliform freeway]]
-[[large-hearted gymnopilus]]
-[[difficult singaporean]]
-[[blabbermouthed antimycotic agent]]
+[[frayed mover]]
+[[iodinated dog]]
+[[pentavalent non-catholic]]
+[[backlink load test]]

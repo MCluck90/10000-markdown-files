@@ -76,7 +76,9 @@ Would YOU sing said
 
 ## Wikilinks load test
 
-[[upstage chocolate truffle]]
-[[stopped up pilot ladder]]
-[[tzarist otho of lagery]]
-[[antipathetical pugilist]]
+[[lowbrowed soft-shell clam]]
+[[geometrical osteoblast]]
+[[crosshatched virtual memory]]
+[[prognostic brown rot gummosis]]
+[[agreed keratonosus]]
+[[backlink load test]]

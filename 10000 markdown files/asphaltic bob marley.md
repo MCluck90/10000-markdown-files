@@ -81,8 +81,6 @@ Wow.
 
 ## Wikilinks load test
 
-[[isothermal acacia melanoxylon]]
-[[analeptic ambage]]
-[[inordinate towing rope]]
-[[auriculoventricular meprin]]
-[[apothecial pteropogon humboltianum]]
+[[prostrate ziziphus jujuba]]
+[[nidicolous lobsterback]]
+[[backlink load test]]

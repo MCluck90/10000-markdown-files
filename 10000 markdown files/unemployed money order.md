@@ -85,6 +85,9 @@ UNimportant of hands up closer
 
 ## Wikilinks load test
 
-[[fifty red tide]]
-[[stiff-haired microcomputer]]
-[[hyperboloidal golden cup]]
+[[extraterrestrial aelius donatus]]
+[[hurried calochortus macrocarpus]]
+[[outbound murder suspect]]
+[[alone double first]]
+[[computer readable furbelow]]
+[[backlink load test]]

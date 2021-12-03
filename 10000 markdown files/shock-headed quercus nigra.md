@@ -91,5 +91,6 @@ Lastly she quite strange tale was
 
 ## Wikilinks load test
 
-[[toneless felt fungus]]
-[[institutionalized lingualumina]]
+[[crescent-shaped paella]]
+[[trompe-loeil monodontidae]]
+[[backlink load test]]

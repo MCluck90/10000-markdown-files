@@ -75,8 +75,6 @@ IT.
 
 ## Wikilinks load test
 
-[[corroboratory whiting]]
-[[ic red carpet]]
-[[arching cassia fistula]]
-[[fistular georges cuvier]]
-[[structural bahraini]]
+[[latvian platelayer]]
+[[curtained marina]]
+[[backlink load test]]

@@ -86,7 +86,9 @@ For a Lobster I went as
 
 ## Wikilinks load test
 
-[[nonpurulent siren song]]
-[[scratchy work shoe]]
-[[owned fecula]]
-[[sleepy-eyed ashur]]
+[[pakistani isn]]
+[[card-playing genus mesembryanthemum]]
+[[clockwise place setting]]
+[[autochthonal needle blight]]
+[[uncorrected dunkirk]]
+[[backlink load test]]

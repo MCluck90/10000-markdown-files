@@ -83,6 +83,8 @@ Go on just now Don't
 
 ## Wikilinks load test
 
-[[permutable estrone]]
-[[hedged quercus wizlizenii]]
-[[electrostatic scleroderma]]
+[[statutory burhinus oedicnemus]]
+[[publicised dandyism]]
+[[bestubbled hoof-mark]]
+[[crabwise pavo]]
+[[backlink load test]]

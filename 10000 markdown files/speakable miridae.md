@@ -87,8 +87,6 @@ Suppose it here with all
 
 ## Wikilinks load test
 
-[[eyed garbage heap]]
-[[purple-blue equal opportunity]]
-[[tied up bel and the dragon]]
-[[spherical sisyrinchium]]
-[[universalist quercus prinoides]]
+[[kittenish ancistrodon]]
+[[brittle kingdom of god]]
+[[backlink load test]]

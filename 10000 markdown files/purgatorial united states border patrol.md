@@ -88,8 +88,7 @@ I've got up closer
 
 ## Wikilinks load test
 
-[[jammed general staff]]
-[[coarse life form]]
-[[structural modified american plan]]
-[[unpolished systematics]]
-[[unpopular razor clam]]
+[[flattering loxodonta]]
+[[remote sporozoa]]
+[[freehearted black-headed snake]]
+[[backlink load test]]

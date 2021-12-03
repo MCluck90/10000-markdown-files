@@ -85,6 +85,9 @@ so large one place
 
 ## Wikilinks load test
 
-[[amalgamative burthen]]
-[[gratuitous nordic]]
-[[lantern-jawed hirsutism]]
+[[prerequisite luger]]
+[[overawed pseudoscorpiones]]
+[[rusty-red diamond]]
+[[agamic samphire]]
+[[cosmogenic foetometry]]
+[[backlink load test]]

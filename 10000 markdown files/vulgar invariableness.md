@@ -74,5 +74,9 @@ Serpent.
 
 ## Wikilinks load test
 
-[[vicarious hadith]]
-[[dextrorse maitre d]]
+[[hairsplitting brown bent]]
+[[unsounded napoleon bonaparte]]
+[[ionian daisywheel printer]]
+[[unadventurous corkwood]]
+[[gyral liliaceous plant]]
+[[backlink load test]]

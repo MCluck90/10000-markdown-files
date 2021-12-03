@@ -80,5 +80,5 @@ holding it they wouldn't squeeze
 
 ## Wikilinks load test
 
-[[undiscerning cucumis sativus]]
-[[neo-lamarckian gantry]]
+[[stolid cupric acetate]]
+[[backlink load test]]

@@ -77,6 +77,8 @@ Be off to another shore and
 
 ## Wikilinks load test
 
-[[semi-evergreen raffia farinifera]]
-[[fried tornillo]]
-[[numeric bhagavad-gita]]
+[[globose personal income]]
+[[unreachable yugoslavian]]
+[[mishnaic civvies]]
+[[unreduced contact action]]
+[[backlink load test]]

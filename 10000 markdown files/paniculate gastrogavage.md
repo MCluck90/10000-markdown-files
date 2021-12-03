@@ -86,8 +86,6 @@ and animals and as well
 
 ## Wikilinks load test
 
-[[simultaneous structural steel]]
-[[energy-absorbing r-2]]
-[[unequalized acanthisitta chloris]]
-[[publicised concert piano]]
-[[obovate geophysicist]]
+[[pugilistic betatron]]
+[[vociferous effluent]]
+[[backlink load test]]

@@ -83,7 +83,6 @@ CHORUS.
 
 ## Wikilinks load test
 
-[[cosmogonical sou-west]]
-[[uncreative writings]]
-[[causative presentiment]]
-[[animistic domain name]]
+[[common or garden gigo]]
+[[bowfront apolemia]]
+[[backlink load test]]

@@ -85,7 +85,8 @@ Up lazy thing the ten inches
 
 ## Wikilinks load test
 
-[[zygomatic apetalous flower]]
-[[swordlike staffordshire bull terrier]]
-[[positivist uintatherium]]
-[[allophonic phalacrocorax]]
+[[fifty-six subclass euascomycetes]]
+[[forbearing restfulness]]
+[[three kegful]]
+[[bronchial oysterfish]]
+[[backlink load test]]

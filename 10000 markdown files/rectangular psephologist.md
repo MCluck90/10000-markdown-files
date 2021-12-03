@@ -90,4 +90,8 @@ Even the picture.
 
 ## Wikilinks load test
 
-[[sleepy-eyed ashur]]
+[[hydraulic cmbr]]
+[[shortsighted manikin]]
+[[dextrorotary collapsible shelter]]
+[[crowning say hey kid]]
+[[backlink load test]]

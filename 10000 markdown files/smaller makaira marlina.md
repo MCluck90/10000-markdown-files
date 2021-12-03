@@ -89,4 +89,7 @@ Good-bye feet on messages for
 
 ## Wikilinks load test
 
-[[basifixed valvula]]
+[[sinewy lustre]]
+[[descriptive quasiparticle]]
+[[carousing turbojet]]
+[[backlink load test]]

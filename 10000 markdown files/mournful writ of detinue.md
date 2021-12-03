@@ -82,7 +82,7 @@ Mary Ann.
 
 ## Wikilinks load test
 
-[[sinhalese genus delphinapterus]]
-[[callous effulgence]]
-[[hemodynamic genus delichon]]
-[[wearisome demolishing]]
+[[scaley overture]]
+[[cuneiform dixieland]]
+[[encomiastic professionalism]]
+[[backlink load test]]

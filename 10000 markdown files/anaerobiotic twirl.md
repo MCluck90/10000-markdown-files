@@ -85,8 +85,5 @@ fetch me alone.
 
 ## Wikilinks load test
 
-[[naturistic austronesia]]
-[[intoxicated millivoltmeter]]
-[[sinhala arrester hook]]
-[[magnified muharram]]
-[[truncated anarchist]]
+[[acidimetric pricker]]
+[[backlink load test]]

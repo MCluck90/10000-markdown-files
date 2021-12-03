@@ -85,4 +85,5 @@ Suddenly she left foot that
 
 ## Wikilinks load test
 
-[[kod impartiality]]
+[[interdependent endurance]]
+[[backlink load test]]

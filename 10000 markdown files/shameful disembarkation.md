@@ -90,5 +90,5 @@ Poor Alice it'll seem to
 
 ## Wikilinks load test
 
-[[sufferable calluna vulgaris]]
-[[elegiac cobitidae]]
+[[sitting mama]]
+[[backlink load test]]

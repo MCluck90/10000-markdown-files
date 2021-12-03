@@ -89,7 +89,6 @@ Her first but hurriedly left alone.
 
 ## Wikilinks load test
 
-[[mediatorial solitary wave]]
-[[immortal electrical power]]
-[[expressionless exponential curve]]
-[[well-favoured indigo]]
+[[erect genus ephippiorhynchus]]
+[[eldest electronic device]]
+[[backlink load test]]

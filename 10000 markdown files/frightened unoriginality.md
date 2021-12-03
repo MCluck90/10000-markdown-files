@@ -87,8 +87,7 @@ _I_ don't remember remarked till
 
 ## Wikilinks load test
 
-[[laced middlebrow]]
-[[molal orology]]
-[[lunisolar antony tudor]]
-[[far-off machine language]]
-[[sabbatical gypsywort]]
+[[closed-door xxy-syndrome]]
+[[dud intercommunion]]
+[[consensual application-oriented language]]
+[[backlink load test]]

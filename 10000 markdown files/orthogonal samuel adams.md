@@ -83,8 +83,7 @@ Nor I took pie-crust
 
 ## Wikilinks load test
 
-[[unwoven genus weigela]]
-[[prerecorded fortune teller]]
-[[l pelter]]
-[[chemisorptive genus conilurus]]
-[[grapelike anaclisis]]
+[[blue lipchitz]]
+[[trimmed lacrimation]]
+[[weensy white lead]]
+[[backlink load test]]

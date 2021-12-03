@@ -89,6 +89,9 @@ Seals turtles salmon and yawned once
 
 ## Wikilinks load test
 
-[[close-hauled gordie howe]]
-[[centralist strawberry haemangioma]]
-[[lentissimo bise]]
+[[palaeolithic vertebral column]]
+[[consoling indian rhododendron]]
+[[candy-scented theoterrorism]]
+[[consensual royal flush]]
+[[manipulative bilharziasis]]
+[[backlink load test]]

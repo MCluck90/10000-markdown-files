@@ -87,4 +87,5 @@ Dinah if nothing seems Alice and
 
 ## Wikilinks load test
 
-[[contemptuous 10000]]
+[[sensationalistic shrimp-fish]]
+[[backlink load test]]

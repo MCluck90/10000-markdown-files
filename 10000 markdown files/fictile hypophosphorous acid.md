@@ -78,4 +78,9 @@ Do as prizes.
 
 ## Wikilinks load test
 
-[[undutiful cleome hassleriana]]
+[[mustached birdseed]]
+[[theistic principe]]
+[[abroad chocolate]]
+[[deuteranopic sea starwort]]
+[[oncologic south american indian]]
+[[backlink load test]]

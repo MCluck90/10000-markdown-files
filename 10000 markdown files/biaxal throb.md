@@ -82,8 +82,6 @@ Silence all wrong.
 
 ## Wikilinks load test
 
-[[stouthearted reentrant angle]]
-[[frightful endothelial myeloma]]
-[[inherent curse word]]
-[[ecumenical quantization]]
-[[meshuggener epacris]]
+[[drupaceous meitnerium]]
+[[rabble-rousing birthroot]]
+[[backlink load test]]

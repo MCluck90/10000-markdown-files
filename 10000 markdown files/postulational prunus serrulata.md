@@ -80,5 +80,8 @@ Therefore I'm getting very lonely
 
 ## Wikilinks load test
 
-[[homocentric invocation]]
-[[in the public eye forceps]]
+[[rose-red menotti]]
+[[curving paleo-indian]]
+[[dissatisfied phoneme]]
+[[unsalable eyeshadow]]
+[[backlink load test]]

@@ -88,7 +88,5 @@ I'll just as before they
 
 ## Wikilinks load test
 
-[[solomonic genus aloe]]
-[[unemotional night watchman]]
-[[postpositive oklahoma city]]
-[[psychedelic genus anemia]]
+[[intact psycholinguist]]
+[[backlink load test]]

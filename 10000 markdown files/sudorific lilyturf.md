@@ -80,5 +80,5 @@ Sentence first thing she couldn't see
 
 ## Wikilinks load test
 
-[[trilobed jimenez de cisneros]]
-[[libidinal demythologization]]
+[[naming self-education]]
+[[backlink load test]]

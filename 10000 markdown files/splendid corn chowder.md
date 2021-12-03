@@ -91,8 +91,9 @@ Wouldn't it altogether like it
 
 ## Wikilinks load test
 
-[[inaccessible jules emile frederic massenet]]
-[[unimpassioned champion lode]]
-[[paneled margin of profit]]
-[[sword-shaped opinion poll]]
-[[supplicant norwegian]]
+[[earned whispering]]
+[[dark-blue republic of ghana]]
+[[upcurved psychological state]]
+[[cranial mass rapid transit]]
+[[aged bell captain]]
+[[backlink load test]]

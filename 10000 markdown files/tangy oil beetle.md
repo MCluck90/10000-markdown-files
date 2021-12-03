@@ -79,6 +79,8 @@ ever eat one listening
 
 ## Wikilinks load test
 
-[[scrofulous simarouba amara]]
-[[ex post facto variorum edition]]
-[[angelical akaryocyte]]
+[[diestrual navel point]]
+[[futurist portable computer]]
+[[regretful commonage]]
+[[romansh positioner]]
+[[backlink load test]]

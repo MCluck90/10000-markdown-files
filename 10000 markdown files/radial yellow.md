@@ -86,6 +86,6 @@ _I_ shan't.
 
 ## Wikilinks load test
 
-[[hoarse fluidounce]]
-[[fastened the star-spangled banner]]
-[[debauched tartar sauce]]
+[[spick cognovit judgement]]
+[[numbing aversion therapy]]
+[[backlink load test]]

@@ -87,6 +87,6 @@ Nor I to double themselves flat
 
 ## Wikilinks load test
 
-[[fearsome sporangium]]
-[[overbearing serif]]
-[[neuralgic quartz crystal]]
+[[prognostic camosh]]
+[[umbellate gayfeather]]
+[[backlink load test]]

@@ -77,8 +77,8 @@ The other parts of
 
 ## Wikilinks load test
 
-[[subtractive vaccinium myrsinites]]
-[[unbigoted genus lastreopsis]]
-[[mass-spectrometric bridal wreath]]
-[[flawless natural action]]
-[[anthropophagous ruddle]]
+[[symptomless saudi]]
+[[crisscross jargon]]
+[[yeatsian vocal band]]
+[[overmuch book of haggai]]
+[[backlink load test]]

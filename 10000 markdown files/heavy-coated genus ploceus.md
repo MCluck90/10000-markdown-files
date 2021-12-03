@@ -92,6 +92,5 @@ which Seven said nothing else
 
 ## Wikilinks load test
 
-[[bare-ass roman type]]
-[[allegorical deluge]]
-[[clip-on stocktaking]]
+[[traumatic joliot]]
+[[backlink load test]]

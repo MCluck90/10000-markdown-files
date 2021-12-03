@@ -82,8 +82,6 @@ Fourteenth of that were clasped
 
 ## Wikilinks load test
 
-[[disorganised organ of corti]]
-[[empirical catoptrics]]
-[[longish know]]
-[[light-tight ordinal]]
-[[conical lifting device]]
+[[springy baked potato]]
+[[epithelial carditis]]
+[[backlink load test]]

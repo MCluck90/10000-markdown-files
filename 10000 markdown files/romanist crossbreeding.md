@@ -87,8 +87,7 @@ Dinah was addressed to
 
 ## Wikilinks load test
 
-[[endoscopic horseshoe vetch]]
-[[tempest-swept expedition]]
-[[dogmatical dinner theater]]
-[[unneeded chickpea]]
-[[wholesale solidago bicolor]]
+[[calculated department of computer science]]
+[[reflecting habitant]]
+[[colicky auto-changer]]
+[[backlink load test]]

@@ -80,8 +80,7 @@ they'll all directions tumbling up eagerly.
 
 ## Wikilinks load test
 
-[[desirous elective course]]
-[[hornlike french leave]]
-[[quartan recessional march]]
-[[closemouthed national rifle association]]
-[[churned-up shiftiness]]
+[[nonmechanical jotunn]]
+[[addlebrained refrigerator car]]
+[[overgenerous entomophthoraceae]]
+[[backlink load test]]

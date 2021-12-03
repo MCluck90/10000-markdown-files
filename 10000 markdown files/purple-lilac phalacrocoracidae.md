@@ -87,4 +87,9 @@ but said very nearly
 
 ## Wikilinks load test
 
-[[rhymeless putting surface]]
+[[ignoble myogram]]
+[[cross-banded stewpan]]
+[[genotypic chaldaea]]
+[[liplike balloon flower]]
+[[preliterate currency]]
+[[backlink load test]]

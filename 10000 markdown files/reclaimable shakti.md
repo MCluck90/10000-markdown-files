@@ -74,6 +74,5 @@ ALL PERSONS MORE than his belt
 
 ## Wikilinks load test
 
-[[centralising modernization]]
-[[unrighteous william hazlitt]]
-[[contractual personal letter]]
+[[peanut tamerlane]]
+[[backlink load test]]

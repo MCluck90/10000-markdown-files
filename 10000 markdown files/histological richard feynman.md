@@ -88,7 +88,6 @@ Ugh.
 
 ## Wikilinks load test
 
-[[exhausting cape horn]]
-[[blindfolded calluna]]
-[[behavioural acer]]
-[[etiologic breakaway]]
+[[wily james joyce]]
+[[bicentenary tolkien]]
+[[backlink load test]]

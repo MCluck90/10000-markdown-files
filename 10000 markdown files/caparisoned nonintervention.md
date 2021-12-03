@@ -90,7 +90,7 @@ Soup is narrow escape
 
 ## Wikilinks load test
 
-[[threescore gargantua]]
-[[parted bagpipe]]
-[[uninformed wheelchair]]
-[[turgid lutist]]
+[[burked schrodinger wave equation]]
+[[ill-humored goncalo alves]]
+[[dignifying hopper]]
+[[backlink load test]]

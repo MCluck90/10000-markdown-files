@@ -78,8 +78,6 @@ These were filled with the soldiers
 
 ## Wikilinks load test
 
-[[upside-down beefeater]]
-[[true rolling paper]]
-[[abreast princeton university]]
-[[combinatory taffy apple]]
-[[physicochemical weathervane]]
+[[inward-moving alienor]]
+[[unconventional class war]]
+[[backlink load test]]

@@ -86,7 +86,6 @@ Well of beheading people live hedgehogs
 
 ## Wikilinks load test
 
-[[bats genus chelonia]]
-[[balsamy tillage]]
-[[elicited solute]]
-[[farthest mandelamine]]
+[[homonymic acedia]]
+[[biggish corkscrew]]
+[[backlink load test]]

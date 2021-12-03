@@ -80,7 +80,9 @@ Would not that wherever you
 
 ## Wikilinks load test
 
-[[unsensational genus andricus]]
-[[tied up bel and the dragon]]
-[[sneak alcoholic beverage]]
-[[hematologic citizenry]]
+[[aweigh health check]]
+[[paradigmatic praetor]]
+[[armour-plated shooting star]]
+[[cut up lampridae]]
+[[uncoordinated black calla]]
+[[backlink load test]]

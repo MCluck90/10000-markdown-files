@@ -84,8 +84,6 @@ Last came very absurd
 
 ## Wikilinks load test
 
-[[unfavourable kitchen island]]
-[[thirty-sixth philatelist]]
-[[guided cubit]]
-[[undigested octopodidae]]
-[[spacious liveborn infant]]
+[[newsy family characidae]]
+[[day-old gasterophilidae]]
+[[backlink load test]]

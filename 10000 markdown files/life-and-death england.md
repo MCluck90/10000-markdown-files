@@ -87,5 +87,5 @@ that to one shilling the prizes.
 
 ## Wikilinks load test
 
-[[linear hitler]]
-[[indiscrete szent-gyorgyi]]
+[[intensified avoidance]]
+[[backlink load test]]

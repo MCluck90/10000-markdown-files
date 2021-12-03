@@ -74,6 +74,9 @@ And what with fur clinging close
 
 ## Wikilinks load test
 
-[[praetorial genus boletellus]]
-[[go-as-you-please straight shooter]]
-[[rock-inhabiting greensand]]
+[[plumb night jessamine]]
+[[contralateral cockcroft and walton voltage multiplier]]
+[[upper-lower-class fipple]]
+[[homesick vina del mar]]
+[[publicised dandyism]]
+[[backlink load test]]

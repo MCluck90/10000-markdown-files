@@ -84,6 +84,9 @@ as before as it pop
 
 ## Wikilinks load test
 
-[[zesty subdivision zygomycota]]
-[[nonflammable linin]]
-[[shopsoiled glossodynia exfoliativa]]
+[[nontaxable theology]]
+[[predatory giant schnauzer]]
+[[overbearing serif]]
+[[sour-tasting landowska]]
+[[grade-appropriate fragaria virginiana]]
+[[backlink load test]]

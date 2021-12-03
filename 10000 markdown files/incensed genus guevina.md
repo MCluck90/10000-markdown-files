@@ -89,8 +89,7 @@ IF I hope it'll seem to
 
 ## Wikilinks load test
 
-[[albanian sir john frederick william herschel]]
-[[elaborated moroccan monetary unit]]
-[[perked up spit and polish]]
-[[nonspherical atriplex]]
-[[unpalatable mariposa tulip]]
+[[smart harness]]
+[[mutative rip-off]]
+[[viceregal colobus monkey]]
+[[backlink load test]]

@@ -88,7 +88,5 @@ Digging for the first
 
 ## Wikilinks load test
 
-[[cloven-hoofed chop shop]]
-[[enlightening henrik johan ibsen]]
-[[endometrial right ventricle]]
-[[unthawed edward jean steichen]]
+[[unsupervised monkey nut]]
+[[backlink load test]]

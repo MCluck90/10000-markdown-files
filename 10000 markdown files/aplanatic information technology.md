@@ -85,6 +85,6 @@ She'll get into his friends shared
 
 ## Wikilinks load test
 
-[[adverbial downy poplar]]
-[[statistical blackfoot]]
-[[side pseudovariola]]
+[[swank footfault]]
+[[tipsy petticoat]]
+[[backlink load test]]

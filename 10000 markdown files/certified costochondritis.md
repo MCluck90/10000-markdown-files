@@ -74,4 +74,6 @@ Wake up with fur and while
 
 ## Wikilinks load test
 
-[[dulled bismarck archipelago]]
+[[dextrorse maitre d]]
+[[manual bionic man]]
+[[backlink load test]]

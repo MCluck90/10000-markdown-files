@@ -80,5 +80,6 @@ Some of the edge
 
 ## Wikilinks load test
 
-[[warmhearted genus elymus]]
-[[cesarian e.s.p.]]
+[[semantic bokmal]]
+[[well-favoured indigo]]
+[[backlink load test]]

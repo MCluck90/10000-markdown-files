@@ -87,5 +87,8 @@ muttered the bright idea
 
 ## Wikilinks load test
 
-[[pinkish-lavender huntingdon elm]]
-[[unacquainted with climbing birds nest fern]]
+[[razor-sharp mexican spanish]]
+[[bossy mark antony]]
+[[mohammedan thievery]]
+[[prayerful frosted bat]]
+[[backlink load test]]

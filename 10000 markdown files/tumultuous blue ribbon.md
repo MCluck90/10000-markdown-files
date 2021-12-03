@@ -78,4 +78,8 @@ Suppose we try to
 
 ## Wikilinks load test
 
-[[trilobed jimenez de cisneros]]
+[[brief paleo-amerind]]
+[[divided genus equus]]
+[[revitalizing sphagnum moss]]
+[[boughless saint benedict]]
+[[backlink load test]]

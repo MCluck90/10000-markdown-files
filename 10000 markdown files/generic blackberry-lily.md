@@ -91,4 +91,9 @@ Two.
 
 ## Wikilinks load test
 
-[[vacillating pineus pinifoliae]]
+[[paleoanthropological gold dust]]
+[[neo-lamarckian yagi]]
+[[offhanded premature ejaculation]]
+[[confutable waffle]]
+[[undetected cider]]
+[[backlink load test]]

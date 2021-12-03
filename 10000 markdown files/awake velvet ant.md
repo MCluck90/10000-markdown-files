@@ -81,6 +81,8 @@ As she wandered about.
 
 ## Wikilinks load test
 
-[[childish gummed label]]
-[[mitral tunnel vision]]
-[[antipathetic ophthalmoscope]]
+[[one hundred five waxycap]]
+[[put-up tuscaloosa]]
+[[red-violet poinciana]]
+[[bifurcated astacus]]
+[[backlink load test]]

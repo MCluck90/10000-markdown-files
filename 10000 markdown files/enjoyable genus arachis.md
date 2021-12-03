@@ -78,8 +78,6 @@ Alice's head Do come wrong
 
 ## Wikilinks load test
 
-[[flightless polo shirt]]
-[[interlaced sods law]]
-[[shod lady tulip]]
-[[nonporous antagonist]]
-[[discombobulated whimsy]]
+[[preliterate currency]]
+[[fanatical sporangiophore]]
+[[backlink load test]]

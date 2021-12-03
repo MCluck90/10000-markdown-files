@@ -91,5 +91,7 @@ Get up again singing in asking
 
 ## Wikilinks load test
 
-[[ampullary herculius]]
-[[belted thorstein bunde veblen]]
+[[lutheran chinch bug]]
+[[fermentable omphalus]]
+[[rousing vittariaceae]]
+[[backlink load test]]

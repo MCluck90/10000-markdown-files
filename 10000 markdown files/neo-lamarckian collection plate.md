@@ -82,5 +82,5 @@ Read them back to stoop to
 
 ## Wikilinks load test
 
-[[snuggled adelie penguin]]
-[[inverted sports section]]
+[[lordless mental synthesis]]
+[[backlink load test]]

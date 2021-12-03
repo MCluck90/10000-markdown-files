@@ -85,8 +85,6 @@ quite dry me help
 
 ## Wikilinks load test
 
-[[double-bedded delectation]]
-[[unsilenced judas]]
-[[compendious central processing unit]]
-[[untreated anosmia]]
-[[brownish-grey legislator]]
+[[positive nystan]]
+[[semiconscious direct quotation]]
+[[backlink load test]]

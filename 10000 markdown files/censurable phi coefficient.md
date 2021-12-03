@@ -92,7 +92,5 @@ on where it WOULD always
 
 ## Wikilinks load test
 
-[[amateurish bagger]]
-[[cyclothymic rhubarb plant]]
-[[unsupported carnal knowledge]]
-[[white-edged afferent fiber]]
+[[low-grade plaster of paris]]
+[[backlink load test]]

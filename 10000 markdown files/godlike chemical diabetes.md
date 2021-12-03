@@ -86,8 +86,6 @@ Be what an end
 
 ## Wikilinks load test
 
-[[statuesque throughput]]
-[[weak dekagram]]
-[[synaptic zeno]]
-[[nonfat hare wallaby]]
-[[tousled warhorse]]
+[[personal nobody]]
+[[battlemented genus lewisia]]
+[[backlink load test]]

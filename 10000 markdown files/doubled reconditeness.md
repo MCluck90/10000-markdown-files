@@ -82,5 +82,5 @@ fetch the top with wonder
 
 ## Wikilinks load test
 
-[[galwegian margasivsa]]
-[[hit-and-run numerical quantity]]
+[[long-shanked bris]]
+[[backlink load test]]

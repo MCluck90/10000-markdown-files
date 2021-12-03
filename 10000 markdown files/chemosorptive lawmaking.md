@@ -76,4 +76,8 @@ Nobody moved.
 
 ## Wikilinks load test
 
-[[in-chief circulating decimal]]
+[[erosive reshuffle]]
+[[tangential samuel rawson gardiner]]
+[[undeserving canterbury bell]]
+[[in sight doublethink]]
+[[backlink load test]]

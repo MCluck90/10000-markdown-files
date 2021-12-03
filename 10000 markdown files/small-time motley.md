@@ -87,6 +87,5 @@ for instance suppose they won't walk
 
 ## Wikilinks load test
 
-[[vatical tacheometer]]
-[[uninquiring oral cavity]]
-[[corpuscular tobias george smollett]]
+[[bittersweet cost ledger]]
+[[backlink load test]]

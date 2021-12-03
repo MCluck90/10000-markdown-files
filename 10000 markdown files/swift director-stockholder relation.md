@@ -78,8 +78,9 @@ Is that queer to fly
 
 ## Wikilinks load test
 
-[[italic horseshow]]
-[[intraspecific blepharitis]]
-[[ataraxic trespass de bonis asportatis]]
-[[euphonic snow line]]
-[[unelaborate genus chalcis]]
+[[modular hydroplane]]
+[[meritable genus encyclia]]
+[[nonwoody delphinus delphis]]
+[[indivisible by mycoplasma]]
+[[perplexing protester]]
+[[backlink load test]]

@@ -81,7 +81,7 @@ I hope they'll do next day
 
 ## Wikilinks load test
 
-[[in question altazimuth]]
-[[acidulent rana clamitans]]
-[[held brakeman]]
-[[cinnamon colored telecast]]
+[[twenty-seventh croton oil]]
+[[lxviii wellington boot]]
+[[sulphuric trioxide]]
+[[backlink load test]]

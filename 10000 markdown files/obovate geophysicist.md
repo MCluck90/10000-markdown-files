@@ -81,8 +81,8 @@ That WAS no arches.
 
 ## Wikilinks load test
 
-[[overmuch book of haggai]]
-[[prefaded sialadenitis]]
-[[beginning echidnophaga]]
-[[apprehensible alec guinness]]
-[[psychogenic archeopteryx]]
+[[arthropodous creatine phosphate]]
+[[brazen eero saarinen]]
+[[stertorous war correspondent]]
+[[excited capital of benin]]
+[[backlink load test]]

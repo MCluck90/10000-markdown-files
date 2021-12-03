@@ -87,7 +87,9 @@ I'M a clean cup interrupted.
 
 ## Wikilinks load test
 
-[[living smoking car]]
-[[exotic sausage pizza]]
-[[hyperboloidal golden cup]]
-[[cogitative iditarod trail]]
+[[rutty macroglossia]]
+[[in effect burns]]
+[[glabrous guessing]]
+[[rash nervous prostration]]
+[[apparitional boob tube]]
+[[backlink load test]]

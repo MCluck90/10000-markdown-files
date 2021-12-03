@@ -84,8 +84,9 @@ Ugh.
 
 ## Wikilinks load test
 
-[[mutative rip-off]]
-[[semiterrestrial drafting board]]
-[[antifertility gangrene]]
-[[flickering ice storm]]
-[[more buttocks]]
+[[nitrogen-bearing mammalian]]
+[[obedient cortaderia selloana]]
+[[vague gentianella amarella]]
+[[alienated aldol reaction]]
+[[spineless maple family]]
+[[backlink load test]]

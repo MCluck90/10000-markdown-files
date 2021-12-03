@@ -88,5 +88,9 @@ By-the bye what porpoise close
 
 ## Wikilinks load test
 
-[[pink-purple landing net]]
-[[ebracteate mandola]]
+[[swollen vernix caseosa]]
+[[lumpy hooded seal]]
+[[climbable compunction]]
+[[soft-footed fingerpost]]
+[[canonical lester willis young]]
+[[backlink load test]]

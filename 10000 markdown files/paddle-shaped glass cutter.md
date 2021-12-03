@@ -84,6 +84,5 @@ then I'm mad people that looked
 
 ## Wikilinks load test
 
-[[blowsy kaffir corn]]
-[[consonantal family tachyglossidae]]
-[[acapnotic republic of finland]]
+[[aflare closing curtain]]
+[[backlink load test]]

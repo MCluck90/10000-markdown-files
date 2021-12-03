@@ -88,8 +88,5 @@ repeated aloud addressing nobody spoke
 
 ## Wikilinks load test
 
-[[pustulate striped mullet]]
-[[scots stud finder]]
-[[palladian write up]]
-[[antiphonary frat]]
-[[disciplinary fall armyworm]]
+[[cultivatable autosomal recessive disease]]
+[[backlink load test]]

@@ -86,8 +86,8 @@ which case with a serpent I
 
 ## Wikilinks load test
 
-[[unsoluble yellow bunting]]
-[[vivacious estate of the realm]]
-[[end-rhymed maternity ward]]
-[[goaded command language]]
-[[equidistant line of questioning]]
+[[cosmogonical teleologist]]
+[[humped lords-and-ladies]]
+[[moravian labor coach]]
+[[insular wahabism]]
+[[backlink load test]]

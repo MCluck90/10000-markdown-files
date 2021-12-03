@@ -80,6 +80,6 @@ Stolen.
 
 ## Wikilinks load test
 
-[[secretarial vasodilative]]
-[[inflectional silkiness]]
-[[gandhian pekan]]
+[[cum laude actaea rubra]]
+[[supporting archbishop]]
+[[backlink load test]]

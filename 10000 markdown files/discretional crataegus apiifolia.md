@@ -80,8 +80,9 @@ There's no label this
 
 ## Wikilinks load test
 
-[[unseasoned felis manul]]
-[[disadvantageous anasazi]]
-[[babelike red giant star]]
-[[mesoblastic scleroprotein]]
-[[propitiatory bolshevism]]
+[[undefended genus capreolus]]
+[[overwrought natural resources]]
+[[outbound folding]]
+[[optional marseilles fever]]
+[[aecial turkish lira]]
+[[backlink load test]]

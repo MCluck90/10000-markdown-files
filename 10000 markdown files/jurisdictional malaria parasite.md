@@ -88,6 +88,9 @@ roared the crowd assembled on
 
 ## Wikilinks load test
 
-[[tref defiance]]
-[[dicey 24-karat gold]]
-[[sheltered oahu]]
+[[animate conscientious objector]]
+[[unspent cladoniaceae]]
+[[error-prone platyrrhinian]]
+[[unfettered cytogenesis]]
+[[licit y chromosome]]
+[[backlink load test]]

@@ -88,8 +88,9 @@ Pray don't keep them to offer
 
 ## Wikilinks load test
 
-[[almond-scented bloodstock]]
-[[moblike laryngitis]]
-[[sri lankan basketball]]
-[[anthophilous amide]]
-[[basidial bitt]]
+[[second-sighted cynodontia]]
+[[tritanopic entric]]
+[[dilute quercus wislizenii]]
+[[labor-intensive cold feet]]
+[[edentate drumlin]]
+[[backlink load test]]

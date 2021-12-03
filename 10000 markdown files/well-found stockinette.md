@@ -86,5 +86,5 @@ Behead that is to-day.
 
 ## Wikilinks load test
 
-[[innovational maglev]]
-[[endoscopic megacycle per second]]
+[[disinterested woodworker]]
+[[backlink load test]]

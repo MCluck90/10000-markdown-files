@@ -86,8 +86,9 @@ IT.
 
 ## Wikilinks load test
 
-[[tuberculoid aalborg]]
-[[walloping noun]]
-[[fucked-up tritheist]]
-[[honduran nitrogen trichloride]]
-[[synoptic threnody]]
+[[noncollapsable water-cooled reactor]]
+[[heraldic microprocessor]]
+[[valent genus pithecellobium]]
+[[jumbo bed sheet]]
+[[auxiliary common stinkhorn]]
+[[backlink load test]]

@@ -86,7 +86,8 @@ First it woke up
 
 ## Wikilinks load test
 
-[[antler-like simhat torah]]
-[[high-sudsing sedum]]
-[[heatable purpura hemorrhagica]]
-[[punk brass]]
+[[recursive israel strassberg]]
+[[teachable slapshot]]
+[[unvitrified autogeny]]
+[[cambial muffle]]
+[[backlink load test]]

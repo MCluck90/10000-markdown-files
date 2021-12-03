@@ -80,7 +80,7 @@ Stuff and D she meant some
 
 ## Wikilinks load test
 
-[[capsulate dinornis giganteus]]
-[[treble cupressus arizonica]]
-[[cost-efficient gunboat diplomacy]]
-[[brownish-speckled mauritian monetary unit]]
+[[bounderish judy garland]]
+[[noteworthy kalahari]]
+[[twee scatter rug]]
+[[backlink load test]]

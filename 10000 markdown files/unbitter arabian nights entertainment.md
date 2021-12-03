@@ -86,8 +86,6 @@ Everything is Bill I
 
 ## Wikilinks load test
 
-[[ionised dovyalis hebecarpa]]
-[[amenable pinky]]
-[[belted thorstein bunde veblen]]
-[[monstrous oral herpes]]
-[[unadjusted spring heath]]
+[[fearsome sporangium]]
+[[vigorous instruction]]
+[[backlink load test]]

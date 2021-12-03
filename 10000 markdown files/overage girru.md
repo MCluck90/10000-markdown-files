@@ -79,7 +79,9 @@ persisted.
 
 ## Wikilinks load test
 
-[[piebald chopstick]]
-[[polydactyl osmundaceae]]
-[[endometrial right ventricle]]
-[[cutting-edge haemulon]]
+[[onomatopoetic sweet-birch oil]]
+[[enlarged trapezohedron]]
+[[rule-governed threshing floor]]
+[[recognisable cheekiness]]
+[[thready byssus]]
+[[backlink load test]]

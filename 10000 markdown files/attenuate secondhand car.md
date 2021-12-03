@@ -75,5 +75,9 @@ Now Dinah my dears.
 
 ## Wikilinks load test
 
-[[partial galago]]
-[[maladroit ajuga]]
+[[catarrhal plavix]]
+[[cxxx dent corn]]
+[[draughty voyage]]
+[[long-play car-ferry]]
+[[aquicultural fasciolopsis]]
+[[backlink load test]]

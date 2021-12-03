@@ -89,6 +89,5 @@ London is to lie down all
 
 ## Wikilinks load test
 
-[[boughten bureau of alcohol tobacco and firearms]]
-[[aged bell captain]]
-[[nuts iris pallida]]
+[[resounding myanmar monetary unit]]
+[[backlink load test]]

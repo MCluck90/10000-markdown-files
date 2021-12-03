@@ -82,6 +82,5 @@ Leave off panting with its mouth
 
 ## Wikilinks load test
 
-[[tegular var]]
-[[vituperative genus pinicola]]
-[[paramagnetic genus haldea]]
+[[brassbound border patrol]]
+[[backlink load test]]

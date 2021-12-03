@@ -77,8 +77,6 @@ when it's getting somewhere.
 
 ## Wikilinks load test
 
-[[reflex garcia lorca]]
-[[convivial felis manul]]
-[[gynaecological drippiness]]
-[[pro-life jam]]
-[[lxxvii engine]]
+[[awestricken genus argyreia]]
+[[attributive genitive quint]]
+[[backlink load test]]

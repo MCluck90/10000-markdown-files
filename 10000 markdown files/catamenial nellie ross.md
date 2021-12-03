@@ -85,6 +85,8 @@ Anything you won't interrupt again
 
 ## Wikilinks load test
 
-[[bluish black brown lacewing]]
-[[economic lysippus]]
-[[unstatesmanlike distributor]]
+[[compact sandpit]]
+[[wordless rapid]]
+[[determined francis turner palgrave]]
+[[flat-top squash racquets]]
+[[backlink load test]]

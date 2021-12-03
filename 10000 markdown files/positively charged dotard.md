@@ -92,5 +92,7 @@ Visit either.
 
 ## Wikilinks load test
 
-[[wonderworking bahasa melayu]]
-[[kitschy periwinkle plant derivative]]
+[[roundish kaiser bill]]
+[[six bucket shop]]
+[[anomalous thunbergia alata]]
+[[backlink load test]]

@@ -81,6 +81,7 @@ I'LL soon make me see
 
 ## Wikilinks load test
 
-[[rightist huckster]]
-[[barometrical internal revenue service]]
-[[iridic trifler]]
+[[ad hominem lockjaw]]
+[[onstage dossel]]
+[[sotho glebe]]
+[[backlink load test]]

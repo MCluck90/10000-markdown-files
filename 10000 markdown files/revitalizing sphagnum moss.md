@@ -79,7 +79,7 @@ Or would seem to swallow
 
 ## Wikilinks load test
 
-[[corbelled piriform area]]
-[[multi-colour essential]]
-[[uncomfortable genus siren]]
-[[pale-faced concavity]]
+[[straight balaena mysticetus]]
+[[talismanic leg]]
+[[perceivable bunkmate]]
+[[backlink load test]]

@@ -89,8 +89,5 @@ sh.
 
 ## Wikilinks load test
 
-[[ameban family arcidae]]
-[[tea-scented apostrophe]]
-[[gutless advanced research and development activity]]
-[[blate fringe]]
-[[unobtrusive black-necked grebe]]
+[[bedraggled homogeneousness]]
+[[backlink load test]]

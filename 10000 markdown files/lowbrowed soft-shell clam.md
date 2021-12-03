@@ -78,6 +78,8 @@ Not QUITE right distance but
 
 ## Wikilinks load test
 
-[[bowleg half-term]]
-[[vertiginous erik alfred leslie satie]]
-[[seven-fold garand]]
+[[y2k compliant aviatress]]
+[[spontaneous polytechnic]]
+[[endogenous neuroglia]]
+[[non-invertible arctictis]]
+[[backlink load test]]

@@ -87,4 +87,6 @@ I'll just as a regular
 
 ## Wikilinks load test
 
-[[strident annwn]]
+[[feline hamamelidanthum]]
+[[unaccessible rugby ball]]
+[[backlink load test]]

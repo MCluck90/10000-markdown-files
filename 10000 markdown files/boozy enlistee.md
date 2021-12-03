@@ -86,6 +86,8 @@ Sentence first the blades of which
 
 ## Wikilinks load test
 
-[[einsteinian himalayan cedar]]
-[[steamed formaldehyde]]
-[[chartered guanine]]
+[[clubbish horizontality]]
+[[cryptical tamarix]]
+[[three curved shape]]
+[[flavorous bornite]]
+[[backlink load test]]

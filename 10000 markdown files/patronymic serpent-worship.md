@@ -92,7 +92,9 @@ Idiot.
 
 ## Wikilinks load test
 
-[[one hundred seventy blue grama]]
-[[atonalistic tracing routine]]
-[[traditional adios]]
-[[bicornate baldrick]]
+[[headlong cobitidae]]
+[[pleurocarpous tax system]]
+[[waiting basso]]
+[[parturient tooth fungus]]
+[[usual frogmouth]]
+[[backlink load test]]

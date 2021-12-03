@@ -80,7 +80,6 @@ Let us both the lock and
 
 ## Wikilinks load test
 
-[[fixed flagstaff]]
-[[pectoral show trial]]
-[[horrid mysoline]]
-[[modernized bolt cutter]]
+[[absolutist usaf]]
+[[bifurcate ana]]
+[[backlink load test]]

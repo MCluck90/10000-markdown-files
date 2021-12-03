@@ -80,8 +80,5 @@ CHORUS.
 
 ## Wikilinks load test
 
-[[unsharpened unpointedness]]
-[[high-stepping acromikria]]
-[[necklike junior school]]
-[[hardbound sylvan]]
-[[profane camelia]]
+[[sweetheart ruddy turnstone]]
+[[backlink load test]]

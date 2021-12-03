@@ -86,8 +86,7 @@ for catching mice in
 
 ## Wikilinks load test
 
-[[superpatriotic firebase]]
-[[labeled remissness]]
-[[dominant miami beach]]
-[[rip-roaring santiago de chile]]
-[[high-stepping acromikria]]
+[[light-colored ladin]]
+[[barefooted sharecropper]]
+[[bowing dairy product]]
+[[backlink load test]]

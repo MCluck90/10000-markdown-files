@@ -77,8 +77,9 @@ Pat what's that proved
 
 ## Wikilinks load test
 
-[[nonsubmersible muntingia calabura]]
-[[mauve gigacycle]]
-[[forty-one course of study]]
-[[tudor poltroonery]]
-[[unholy unearned revenue]]
+[[unofficial equinoctial line]]
+[[bismuthic pleomorphism]]
+[[unasked adrenarche]]
+[[synovial servomechanism]]
+[[romaic corrida]]
+[[backlink load test]]

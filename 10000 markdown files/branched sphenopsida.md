@@ -84,8 +84,8 @@ Two in saying and eaten
 
 ## Wikilinks load test
 
-[[bowfront tristram]]
-[[indigo five-finger]]
-[[purging strip cropping]]
-[[close-packed exoderm]]
-[[dyslexic scrutinizer]]
+[[demolished electrical contact]]
+[[greenish hepatitis b]]
+[[offhand gadfly]]
+[[smooth-spoken git]]
+[[backlink load test]]

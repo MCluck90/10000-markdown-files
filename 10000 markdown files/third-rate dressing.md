@@ -86,5 +86,5 @@ How do Alice so small
 
 ## Wikilinks load test
 
-[[magnetised genus platypoecilus]]
-[[intense stelis]]
+[[palaeolithic vertebral column]]
+[[backlink load test]]

@@ -86,8 +86,9 @@ Digging for protection.
 
 ## Wikilinks load test
 
-[[universalist wilsons warbler]]
-[[curly-grained regular hexagon]]
-[[tenuous yellow jessamine]]
-[[teary western big-eared bat]]
-[[efficient sarda chiliensis]]
+[[cellulosid smidge]]
+[[irreversible physicist]]
+[[cxv dreck]]
+[[katabolic potassium bromide]]
+[[calyculate dowdy]]
+[[backlink load test]]

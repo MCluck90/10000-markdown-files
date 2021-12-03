@@ -83,8 +83,5 @@ Visit either but one
 
 ## Wikilinks load test
 
-[[well-fixed solemnization]]
-[[sweetened tic]]
-[[left-of-center monochromat]]
-[[nescient apatosaurus]]
-[[assisted two-by-four]]
+[[slanting genus capra]]
+[[backlink load test]]

@@ -82,8 +82,7 @@ Back to nurse.
 
 ## Wikilinks load test
 
-[[ectodermic snakeroot]]
-[[keeled ageratina altissima]]
-[[vulcanized lukasiewicz notation]]
-[[diachronic caenolestes]]
-[[polychromic defeat]]
+[[lactating angora cat]]
+[[best public service]]
+[[projectile rima vocalis]]
+[[backlink load test]]

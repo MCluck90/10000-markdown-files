@@ -80,8 +80,7 @@ Last came near the crown.
 
 ## Wikilinks load test
 
-[[indigo five-finger]]
-[[door-to-door martinique]]
-[[commercialised malignant anemia]]
-[[branchless complex absence]]
-[[achondroplastic hairspring]]
+[[prissy turfing daisy]]
+[[upstart magic bullet]]
+[[prissy ltm]]
+[[backlink load test]]

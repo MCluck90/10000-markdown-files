@@ -88,8 +88,9 @@ Hadn't time round lives
 
 ## Wikilinks load test
 
-[[glossy-haired gascony]]
-[[mixed passbook savings account]]
-[[smooth-haired dali]]
-[[warm-toned true marmoset]]
-[[disclike astarte]]
+[[lobar faroe islands]]
+[[unsymbolic eugenia]]
+[[reborn pinot blanc]]
+[[coreferential saunter]]
+[[spongelike backgammon]]
+[[backlink load test]]

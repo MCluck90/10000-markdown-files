@@ -78,5 +78,5 @@ Cheshire cats always HATED
 
 ## Wikilinks load test
 
-[[magnetised genus platypoecilus]]
-[[unimpassioned champion lode]]
+[[informed specs]]
+[[backlink load test]]

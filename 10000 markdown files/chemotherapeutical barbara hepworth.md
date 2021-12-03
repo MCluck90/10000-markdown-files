@@ -79,6 +79,5 @@ All this Alice looked
 
 ## Wikilinks load test
 
-[[majuscule 2]]
-[[courageous modeler]]
-[[bulbaceous chloral hydrate]]
+[[tongan bitter cress]]
+[[backlink load test]]

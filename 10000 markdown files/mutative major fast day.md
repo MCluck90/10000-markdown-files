@@ -78,8 +78,6 @@ She'd soon as steady
 
 ## Wikilinks load test
 
-[[level lobipes lobatus]]
-[[riant jack london]]
-[[matronly barytes]]
-[[muffled swimming stroke]]
-[[nonsubmersible muntingia calabura]]
+[[reflecting habitant]]
+[[geodesic igniter]]
+[[backlink load test]]

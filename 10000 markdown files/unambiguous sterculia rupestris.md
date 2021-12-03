@@ -84,7 +84,5 @@ Everything is Oh it's very sadly
 
 ## Wikilinks load test
 
-[[forty-eighth gastritis]]
-[[disrespectful capital cost]]
-[[heightening baldness]]
-[[undated arundinaria gigantea]]
+[[addled flatbed]]
+[[backlink load test]]

@@ -82,8 +82,6 @@ the sneeze of WHAT are you
 
 ## Wikilinks load test
 
-[[carousing countermand]]
-[[shallow-draught beach plum]]
-[[fervent showman]]
-[[carved in stone bookmaker]]
-[[blasting towing rope]]
+[[unforeseeable acentric chromosome]]
+[[vociferous good-temperedness]]
+[[backlink load test]]

@@ -86,7 +86,6 @@ Last came nearer till I've
 
 ## Wikilinks load test
 
-[[unpretentious gibberellic acid]]
-[[case-hardened lotus]]
-[[cone-bearing ptarmigan]]
-[[unharmed sickle feather]]
+[[unanimated elymus hispidus]]
+[[stabile family ameiuridae]]
+[[backlink load test]]

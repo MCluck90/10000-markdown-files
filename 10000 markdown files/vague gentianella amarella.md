@@ -83,7 +83,8 @@ Be off together at first
 
 ## Wikilinks load test
 
-[[supporting archbishop]]
-[[entertaining dayton axe]]
-[[rachitic spiderflower]]
-[[adverse empty words]]
+[[amalgamate pargetry]]
+[[pastel lobelia dortmanna]]
+[[caramel glissando]]
+[[unsought whitecap]]
+[[backlink load test]]

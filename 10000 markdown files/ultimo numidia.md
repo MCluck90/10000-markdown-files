@@ -93,8 +93,9 @@ ALICE'S LOVE.
 
 ## Wikilinks load test
 
-[[supernal fringilla]]
-[[mendicant bladderwrack]]
-[[tetragonal schick test]]
-[[free-living neonatal intensive care unit]]
-[[austrian serum globulin]]
+[[noetic inter-group communication]]
+[[quondam multiprogramming]]
+[[perked up spit and polish]]
+[[ovarian dravidian language]]
+[[orange-hued thessaly]]
+[[backlink load test]]

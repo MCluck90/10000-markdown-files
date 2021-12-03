@@ -88,8 +88,9 @@ quite as I'd been.
 
 ## Wikilinks load test
 
-[[allegorical deluge]]
-[[diclinous extraordinariness]]
-[[unhealthful placer mining]]
-[[neanderthalian periodical]]
-[[grassy-leafed parietal placentation]]
+[[miraculous parr]]
+[[drifting aids]]
+[[gutless advanced research and development activity]]
+[[numbing aversion therapy]]
+[[batter-fried pinniped]]
+[[backlink load test]]

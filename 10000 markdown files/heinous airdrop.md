@@ -87,6 +87,5 @@ Change lobsters you might knock
 
 ## Wikilinks load test
 
-[[three-pronged driveway]]
-[[algid aksa martyrs brigades]]
-[[grief-stricken autumn crocus]]
+[[snuff lorca]]
+[[backlink load test]]

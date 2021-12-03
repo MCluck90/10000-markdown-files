@@ -91,5 +91,9 @@ My dear old it
 
 ## Wikilinks load test
 
-[[blest oka]]
-[[passant blood clot]]
+[[bespectacled genus chamaeleo]]
+[[gandhian pekan]]
+[[chiromantic village]]
+[[trigger-happy family meleagrididae]]
+[[complex hernaria glabra]]
+[[backlink load test]]

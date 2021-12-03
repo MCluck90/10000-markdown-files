@@ -83,4 +83,8 @@ Nothing can go through the
 
 ## Wikilinks load test
 
-[[funky 2]]
+[[extralinguistic ponka]]
+[[big-bellied yellow spruce]]
+[[rotted bathroom]]
+[[bimotored indian chocolate]]
+[[backlink load test]]

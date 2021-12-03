@@ -83,8 +83,5 @@ Cheshire Cat she walked
 
 ## Wikilinks load test
 
-[[antebellum gruidae]]
-[[speculative deaf]]
-[[felonious loony bin]]
-[[snazzy furfural]]
-[[breakneck black spruce]]
+[[rush tepic]]
+[[backlink load test]]

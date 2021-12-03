@@ -87,6 +87,6 @@ Pennyworth only see it
 
 ## Wikilinks load test
 
-[[downtrodden faberge]]
-[[fretted consultant]]
-[[achondroplastic hairspring]]
+[[beady cystopteris montana]]
+[[prognostic brown rot gummosis]]
+[[backlink load test]]

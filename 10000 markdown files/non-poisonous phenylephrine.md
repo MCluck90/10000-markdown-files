@@ -92,8 +92,8 @@ sh.
 
 ## Wikilinks load test
 
-[[doltish orthoepy]]
-[[twelve leaf blade]]
-[[arrhythmic antique]]
-[[unstilted balletomane]]
-[[parky argonautidae]]
+[[white-collar million floating point operations per second]]
+[[fourpenny killer]]
+[[capricious family combretaceae]]
+[[poetical big bill haywood]]
+[[backlink load test]]

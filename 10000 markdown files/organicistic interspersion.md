@@ -85,8 +85,9 @@ holding and feet at all
 
 ## Wikilinks load test
 
-[[sociable asterid dicot family]]
-[[splotched undoer]]
-[[bedraggled homogeneousness]]
-[[leptorrhine anaximenes]]
-[[elvish small letter]]
+[[foul actinidia chinensis]]
+[[lacertilian russian dressing]]
+[[dorsoventral tripper]]
+[[orange-sized constructivism]]
+[[communal reaumur scale]]
+[[backlink load test]]

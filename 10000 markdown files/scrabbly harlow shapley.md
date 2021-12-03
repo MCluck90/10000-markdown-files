@@ -88,7 +88,9 @@ Everything's got into alarm in
 
 ## Wikilinks load test
 
-[[antiknock political commissar]]
-[[light-colored old hand]]
-[[precooled klutz]]
-[[damp alma mater]]
+[[lacklustre araceae]]
+[[grievous wales]]
+[[narrow blue story]]
+[[phrenetic lepadidae]]
+[[unrecognisable genus ambloplites]]
+[[backlink load test]]

@@ -82,8 +82,5 @@ With extras.
 
 ## Wikilinks load test
 
-[[solomonic genus aloe]]
-[[armour-plated shooting star]]
-[[adaxial book binding]]
-[[churned-up lath and plaster]]
-[[graecophile heyrovsky]]
+[[predisposed immunoglobulin d]]
+[[backlink load test]]

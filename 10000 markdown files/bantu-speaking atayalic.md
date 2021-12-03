@@ -79,6 +79,6 @@ It'll be When I'M not
 
 ## Wikilinks load test
 
-[[expert discouragement]]
-[[pseudohermaphroditic tip sheet]]
-[[unenclosed ovis montana dalli]]
+[[toroidal mestizo]]
+[[heroical sirrah]]
+[[backlink load test]]

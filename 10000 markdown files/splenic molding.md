@@ -87,8 +87,5 @@ These words did there's half no
 
 ## Wikilinks load test
 
-[[edentate drumlin]]
-[[fraternal radio-gramophone]]
-[[approbatory hip tile]]
-[[diagnostic immunohistochemistry]]
-[[bicyclic spurious wing]]
+[[hundredth isurus oxyrhincus]]
+[[backlink load test]]

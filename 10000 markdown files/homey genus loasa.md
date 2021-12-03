@@ -75,5 +75,6 @@ Wouldn't it WOULD go.
 
 ## Wikilinks load test
 
-[[on-site isogram]]
-[[sinhala lamb-chop]]
+[[good-for-nothing genus collinsonia]]
+[[eviscerate corvine bird]]
+[[backlink load test]]

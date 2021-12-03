@@ -83,5 +83,5 @@ Stand up into this
 
 ## Wikilinks load test
 
-[[frightful endothelial myeloma]]
-[[acherontic adolphe sax]]
+[[boughless saint benedict]]
+[[backlink load test]]

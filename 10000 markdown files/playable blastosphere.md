@@ -87,8 +87,8 @@ Tis so said waving
 
 ## Wikilinks load test
 
-[[aloof ignatius]]
-[[gaunt subphylum tunicata]]
-[[endovenous court of assize]]
-[[upstart magic bullet]]
-[[reprobate poikilotherm]]
+[[shorthand trailing edge]]
+[[fearsome sporangium]]
+[[disyllabic margrave]]
+[[tolerant caltha]]
+[[backlink load test]]

@@ -80,4 +80,9 @@ YOU'D better Alice you by
 
 ## Wikilinks load test
 
-[[sickish cycad family]]
+[[sublimate fuzee]]
+[[bipartite crown of thorns]]
+[[homeostatic junkie]]
+[[level lobipes lobatus]]
+[[bismuthic fixed-width font]]
+[[backlink load test]]

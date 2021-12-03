@@ -84,6 +84,9 @@ See how small.
 
 ## Wikilinks load test
 
-[[inattentive darter]]
-[[piagetian large-leaved aster]]
-[[educative vivarium]]
+[[usual frogmouth]]
+[[referential mayan]]
+[[unmarred eleven]]
+[[hundred-and-fiftieth genus doryopteris]]
+[[nimble-fingered euronithopod]]
+[[backlink load test]]

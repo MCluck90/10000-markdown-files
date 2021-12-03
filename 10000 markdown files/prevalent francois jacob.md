@@ -84,8 +84,7 @@ How doth the Gryphon
 
 ## Wikilinks load test
 
-[[panicked tricholoma venenata]]
-[[haitian merthiolate]]
-[[nonrestrictive econometrist]]
-[[caddish genus psophocarpus]]
-[[antennary tyson]]
+[[off-the-shoulder barrows goldeneye]]
+[[graduated macadamia tetraphylla]]
+[[long-lived dangling]]
+[[backlink load test]]

@@ -87,5 +87,9 @@ sighed the looking-glass.
 
 ## Wikilinks load test
 
-[[legato sorghum vulgare technicum]]
-[[pie-eyed side of beef]]
+[[convincible grout]]
+[[wifelike saudi arabian riyal]]
+[[selfless lantern fly]]
+[[a cappella magnetic recorder]]
+[[light-handed eastern dasyure]]
+[[backlink load test]]

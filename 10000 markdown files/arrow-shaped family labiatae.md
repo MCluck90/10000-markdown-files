@@ -89,6 +89,9 @@ Ten hours to notice
 
 ## Wikilinks load test
 
-[[unsized semiquaver]]
-[[phlegmatic megabat]]
-[[full-grown straight life insurance]]
+[[slovakian bailment]]
+[[overflowing acrylic]]
+[[detestable rotary motion]]
+[[felonious bimester]]
+[[manipulative threshold gate]]
+[[backlink load test]]

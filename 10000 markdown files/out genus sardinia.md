@@ -82,8 +82,6 @@ How do How funny
 
 ## Wikilinks load test
 
-[[wonder-struck tussilago farfara]]
-[[macroeconomic herb bennet]]
-[[jurisdictional malaria parasite]]
-[[transmontane weeper]]
-[[oversolicitous semen]]
+[[postulational prunus serrulata]]
+[[dull lamarckian]]
+[[backlink load test]]

@@ -83,5 +83,8 @@ wow.
 
 ## Wikilinks load test
 
-[[instant gutter]]
-[[tall-stalked slothfulness]]
+[[ascribable genus agdestis]]
+[[unmemorable druidism]]
+[[obsessed statuary]]
+[[jewish masquerader]]
+[[backlink load test]]

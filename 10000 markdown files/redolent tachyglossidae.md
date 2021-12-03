@@ -91,7 +91,5 @@ or seemed not.
 
 ## Wikilinks load test
 
-[[plucky sanguinary ant]]
-[[skimmed trochlear]]
-[[manual bionic man]]
-[[lxxx doh]]
+[[extrusive purgation]]
+[[backlink load test]]

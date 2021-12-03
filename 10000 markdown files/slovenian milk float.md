@@ -83,5 +83,6 @@ I've often you want
 
 ## Wikilinks load test
 
-[[oleophobic genus callistephus]]
-[[spiffed up hungarian]]
+[[polydactyl osmundaceae]]
+[[featherbrained genus antedon]]
+[[backlink load test]]

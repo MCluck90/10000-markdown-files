@@ -92,6 +92,5 @@ Herald read fairy-tales I speak again
 
 ## Wikilinks load test
 
-[[satisfying recoil]]
-[[knocked out wild spinach]]
-[[severe voluntary]]
+[[bivalve caper sauce]]
+[[backlink load test]]

@@ -88,4 +88,8 @@ won't have anything tougher than
 
 ## Wikilinks load test
 
-[[aphoristic ball of fire]]
+[[funny visual range]]
+[[adjudicative flypaper]]
+[[less-traveled igd]]
+[[uninominal background level]]
+[[backlink load test]]

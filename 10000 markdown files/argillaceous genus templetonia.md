@@ -84,8 +84,6 @@ catch a porpoise.
 
 ## Wikilinks load test
 
-[[undiscerning cucumis sativus]]
-[[unapprehensive meteor shower]]
-[[stranded abwatt]]
-[[ovine sacrament of the eucharist]]
-[[diploid rhythm and blues musician]]
+[[unsnarled amoeba]]
+[[agglomerative oxidation number]]
+[[backlink load test]]

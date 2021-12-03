@@ -95,7 +95,7 @@ I'LL soon as sure what became
 
 ## Wikilinks load test
 
-[[purple-brown pterodactylidae]]
-[[swordlike woodwardia virginica]]
-[[arch cat box]]
-[[incensed genus guevina]]
+[[calycine insanity]]
+[[attenuate albuca]]
+[[upstream judgement by default]]
+[[backlink load test]]

@@ -84,5 +84,7 @@ Sounds of killing somebody else.
 
 ## Wikilinks load test
 
-[[ebracteate mandola]]
-[[empty burrill bernard crohn]]
+[[degenerate tammany]]
+[[mat dried fruit]]
+[[torpid bittersweet]]
+[[backlink load test]]

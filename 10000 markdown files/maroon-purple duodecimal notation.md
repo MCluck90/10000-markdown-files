@@ -86,5 +86,9 @@ _I_ shan't grow shorter
 
 ## Wikilinks load test
 
-[[felonious dress uniform]]
-[[enervated kingdom of swaziland]]
+[[nonretractable waders]]
+[[ice-cold tailwort]]
+[[cathodic five-finger]]
+[[lapsed california ladys slipper]]
+[[unsaturated oil palm]]
+[[backlink load test]]

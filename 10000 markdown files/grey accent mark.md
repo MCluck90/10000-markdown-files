@@ -75,4 +75,8 @@ By-the bye what to
 
 ## Wikilinks load test
 
-[[aspheric nincompoop]]
+[[flirtatious ploy]]
+[[mountainous discovery]]
+[[multifarious nougat]]
+[[ferret-sized altar wine]]
+[[backlink load test]]

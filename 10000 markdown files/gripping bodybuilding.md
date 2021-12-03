@@ -91,8 +91,6 @@ That's quite faint in
 
 ## Wikilinks load test
 
-[[wine-red stanford white]]
-[[active absoluteness]]
-[[obviating war hawk]]
-[[cortico-hypothalamic mid-twenties]]
-[[fifteenth isogonal line]]
+[[compatible indian pony]]
+[[all in miniature poodle]]
+[[backlink load test]]

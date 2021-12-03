@@ -87,4 +87,6 @@ To begin lessons the
 
 ## Wikilinks load test
 
-[[choky blueweed]]
+[[refractive logograph]]
+[[motorized walter lippmann]]
+[[backlink load test]]

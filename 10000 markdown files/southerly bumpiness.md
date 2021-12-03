@@ -76,7 +76,8 @@ shouted the immediate adoption of speaking
 
 ## Wikilinks load test
 
-[[ruby-red center stage]]
-[[gauche soloist]]
-[[brainless backgammon board]]
-[[sanious ditty bag]]
+[[two-leafed pointed arch]]
+[[anthropophagous progesterone]]
+[[alleviated tiffany]]
+[[baritone civil rights leader]]
+[[backlink load test]]

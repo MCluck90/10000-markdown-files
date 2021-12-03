@@ -93,7 +93,5 @@ when you mean the
 
 ## Wikilinks load test
 
-[[spectroscopic co-worker]]
-[[insurrectional valdecoxib]]
-[[grasslike calcination]]
-[[archival maarianhamina]]
+[[antitank cross-country skiing]]
+[[backlink load test]]

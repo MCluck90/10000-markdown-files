@@ -79,5 +79,9 @@ screamed the Knave I needn't be
 
 ## Wikilinks load test
 
-[[genic little clubmoss]]
-[[tight-knit malamud]]
+[[unsupervised monkey nut]]
+[[trilobed criminal offense]]
+[[late visiting nurse]]
+[[asymptomatic throttler]]
+[[worked up errand boy]]
+[[backlink load test]]

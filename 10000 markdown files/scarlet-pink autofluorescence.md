@@ -88,7 +88,8 @@ Everything's got much pleasanter
 
 ## Wikilinks load test
 
-[[hand-held midas]]
-[[glaciated corvine bird]]
-[[indecisive congenital megacolon]]
-[[dark-green innocent iii]]
+[[refractory curry]]
+[[lung-like chivaree]]
+[[swanky kingdom of denmark]]
+[[disdainful war of the spanish succession]]
+[[backlink load test]]

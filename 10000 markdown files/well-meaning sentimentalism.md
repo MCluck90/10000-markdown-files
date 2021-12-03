@@ -75,6 +75,8 @@ Turn them when it's very
 
 ## Wikilinks load test
 
-[[drizzling esotropia]]
-[[preternatural venire]]
-[[corpulent pilea pumilla]]
+[[polyploid geomorphology]]
+[[grassless mail call]]
+[[hatted metronome]]
+[[sociable asterid dicot family]]
+[[backlink load test]]

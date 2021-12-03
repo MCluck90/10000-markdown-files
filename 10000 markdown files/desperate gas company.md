@@ -90,8 +90,7 @@ pleaded poor hands at
 
 ## Wikilinks load test
 
-[[intercollegiate triaenodon obseus]]
-[[flagellate centrosome]]
-[[violet-flowered jutting]]
-[[cool-white costume designer]]
-[[orthomolecular eastern ground snake]]
+[[barefaced northumbria]]
+[[billiard sir alexander mackenzie]]
+[[erect genus ephippiorhynchus]]
+[[backlink load test]]

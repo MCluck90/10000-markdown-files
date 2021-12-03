@@ -85,4 +85,5 @@ interrupted the prizes.
 
 ## Wikilinks load test
 
-[[disinherited diathermy]]
+[[speculative deaf]]
+[[backlink load test]]

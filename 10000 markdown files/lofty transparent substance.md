@@ -77,5 +77,9 @@ catch a row of
 
 ## Wikilinks load test
 
-[[shelled cacao]]
-[[finical dinner theater]]
+[[bionic retail chain]]
+[[sternutative cock-a-leekie]]
+[[statistical genus lycopodium]]
+[[malevolent ischaemic stroke]]
+[[fogged leo the lion]]
+[[backlink load test]]

@@ -79,7 +79,5 @@ YOU'D better with MINE said
 
 ## Wikilinks load test
 
-[[calculous maui]]
-[[finite mach number]]
-[[sceptred password]]
-[[mind-bending euclids second axiom]]
+[[electrostatic icon]]
+[[backlink load test]]

@@ -79,8 +79,7 @@ Visit either question is
 
 ## Wikilinks load test
 
-[[continent-wide horseshit]]
-[[reactionary ross]]
-[[stimulating cetraria islandica]]
-[[trinidadian boxcars]]
-[[designing goop]]
+[[profanatory aramean]]
+[[disproportional euonymous alatus]]
+[[semiprivate statuette]]
+[[backlink load test]]

@@ -91,8 +91,5 @@ Prizes.
 
 ## Wikilinks load test
 
-[[fiducial comoros]]
-[[counterclockwise magnetic pole]]
-[[ungusseted musculus pectoralis]]
-[[unharmed sickle feather]]
-[[amenorrhoeic coronilla]]
+[[inheritable green olive]]
+[[backlink load test]]

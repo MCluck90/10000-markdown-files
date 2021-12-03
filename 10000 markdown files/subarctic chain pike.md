@@ -94,8 +94,7 @@ Ugh Serpent.
 
 ## Wikilinks load test
 
-[[phobic electrical capacity]]
-[[yellow-tipped acknowledgement]]
-[[miserly ear lobe]]
-[[branchless washbowl]]
-[[grass-eating taraktogenos kurzii]]
+[[fimbriate ignominy]]
+[[moneran outhouse]]
+[[disheartening order hymenogastrales]]
+[[backlink load test]]

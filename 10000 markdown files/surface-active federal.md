@@ -91,7 +91,8 @@ After these strange creatures of repeating
 
 ## Wikilinks load test
 
-[[obviating war hawk]]
-[[made-to-order crystal]]
-[[tumultuous blue ribbon]]
-[[invidious smokescreen]]
+[[avifaunal bermuda plan]]
+[[steel-plated general relativity]]
+[[unfenced valve rocker]]
+[[accoutred stephen spender]]
+[[backlink load test]]

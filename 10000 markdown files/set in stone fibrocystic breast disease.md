@@ -90,6 +90,9 @@ Anything you can do very
 
 ## Wikilinks load test
 
-[[graceless genus rangifer]]
-[[afflictive symmetricalness]]
-[[nonglutinous scomberesox saurus]]
+[[no-win microcytic anaemia]]
+[[marbled software engineer]]
+[[nonoscillatory ankylosis]]
+[[chromatographical capsicum frutescens]]
+[[disapproving vanessa stephen]]
+[[backlink load test]]

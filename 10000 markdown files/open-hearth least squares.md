@@ -80,6 +80,5 @@ here lad.
 
 ## Wikilinks load test
 
-[[activated ardeb]]
-[[pivotal kalaallit nunaat]]
-[[dominical fast day]]
+[[seventy-nine christian bible]]
+[[backlink load test]]

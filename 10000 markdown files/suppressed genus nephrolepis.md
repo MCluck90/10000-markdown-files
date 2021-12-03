@@ -87,4 +87,5 @@ Go on if people about half
 
 ## Wikilinks load test
 
-[[snazzy furfural]]
+[[dull-purple modernist]]
+[[backlink load test]]

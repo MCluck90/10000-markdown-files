@@ -87,8 +87,7 @@ No there seemed inclined
 
 ## Wikilinks load test
 
-[[acerose freedom rider]]
-[[bestubbled hoof-mark]]
-[[autobiographical throat sweetbread]]
-[[scandinavian october 12]]
-[[fast-growing nepotism]]
+[[spellbound jainism]]
+[[ended stachyose]]
+[[apparitional boob tube]]
+[[backlink load test]]

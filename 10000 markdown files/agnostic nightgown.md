@@ -92,6 +92,7 @@ No it'll make you do
 
 ## Wikilinks load test
 
-[[light-boned gym]]
-[[cognizant pliers]]
-[[gray-haired undergraduate]]
+[[irish hugueninia tanacetifolia]]
+[[boxed in ageratina]]
+[[fraternal radio-gramophone]]
+[[backlink load test]]

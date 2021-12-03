@@ -78,6 +78,5 @@ I've often read several nice muddle
 
 ## Wikilinks load test
 
-[[common or garden gigo]]
-[[malevolent ischaemic stroke]]
-[[unbound small person]]
+[[leafy byzantine church]]
+[[backlink load test]]

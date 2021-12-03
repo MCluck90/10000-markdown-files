@@ -80,8 +80,8 @@ It must go at last
 
 ## Wikilinks load test
 
-[[reasoning friesian]]
-[[dark-coloured pall mall]]
-[[bosomed military march]]
-[[syncretical coefficient of self induction]]
-[[brash agonus]]
+[[salubrious cappadocia]]
+[[non-profit-making brazilian potato tree]]
+[[violet-colored partial eclipse]]
+[[uncolumned west bengal]]
+[[backlink load test]]

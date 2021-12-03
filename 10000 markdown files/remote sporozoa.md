@@ -88,7 +88,9 @@ Prizes.
 
 ## Wikilinks load test
 
-[[solomonic genus aloe]]
-[[unbordered cazique]]
-[[itinerant latchkey child]]
-[[blest oka]]
+[[coreferential saunter]]
+[[nonenterprising wine tasting]]
+[[sure as shooting selective-serotonin reuptake inhibitor]]
+[[adjuvant africander]]
+[[murky genus allionia]]
+[[backlink load test]]

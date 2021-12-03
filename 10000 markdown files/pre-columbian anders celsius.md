@@ -80,5 +80,8 @@ _I_ don't.
 
 ## Wikilinks load test
 
-[[celibate burthen]]
-[[two-leafed salim]]
+[[cram full nervus spinalis]]
+[[skinless czech republic]]
+[[unconstricted electro-acoustic transducer]]
+[[carpal quicksand]]
+[[backlink load test]]

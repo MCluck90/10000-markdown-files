@@ -83,6 +83,9 @@ Pinch him the sand with
 
 ## Wikilinks load test
 
-[[blotched plantago]]
-[[winded antigua]]
-[[overemotional inattention]]
+[[reactive overdraft credit]]
+[[polyatomic common fraction]]
+[[impoverished aloe family]]
+[[supererogatory effusion]]
+[[unsoundable liverleaf]]
+[[backlink load test]]

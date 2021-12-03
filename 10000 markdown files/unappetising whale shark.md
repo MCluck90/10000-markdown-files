@@ -87,8 +87,9 @@ Somebody said aloud addressing
 
 ## Wikilinks load test
 
-[[single-humped catchment basin]]
-[[extortionate genus funka]]
-[[hard-of-hearing mansi]]
-[[affine erythrina indica]]
-[[hieratical tansy ragwort]]
+[[excited capital of benin]]
+[[inerrant zygotene]]
+[[serial exculpation]]
+[[varicose buddleia]]
+[[unharmed bopeep]]
+[[backlink load test]]

@@ -87,8 +87,7 @@ So Alice not a complaining
 
 ## Wikilinks load test
 
-[[penitential wire glass]]
-[[capitulary oreortyx]]
-[[prayerful frosted bat]]
-[[bicylindrical selenium]]
-[[twenty-seventh croton oil]]
+[[elongated hotel manager]]
+[[presto amorpha californica]]
+[[mediaeval three-dimensionality]]
+[[backlink load test]]

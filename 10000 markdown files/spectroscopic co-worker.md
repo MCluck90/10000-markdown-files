@@ -78,6 +78,8 @@ Stop this as you're doing.
 
 ## Wikilinks load test
 
-[[dialectal yard measure]]
-[[alcalescent sorghum bicolor]]
-[[attenuate albuca]]
+[[adjustable apron]]
+[[antitank cross-country skiing]]
+[[turkic pay claim]]
+[[snuff lorca]]
+[[backlink load test]]

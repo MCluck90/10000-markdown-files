@@ -88,7 +88,7 @@ Not a T.
 
 ## Wikilinks load test
 
-[[pavlovian flannelette]]
-[[unattractive guy rope]]
-[[openhearted genus loranthus]]
-[[thermoelectrical korean]]
+[[chipper warlock]]
+[[socioeconomic musculus quadriceps femoris]]
+[[quiet landrys paralysis]]
+[[backlink load test]]

@@ -83,4 +83,8 @@ With what to my
 
 ## Wikilinks load test
 
-[[broken-field false bugbane]]
+[[sterling power cable]]
+[[bucolic senility]]
+[[exilic cream]]
+[[quadrisonic sls]]
+[[backlink load test]]

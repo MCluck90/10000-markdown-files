@@ -84,6 +84,5 @@ Stand up at last
 
 ## Wikilinks load test
 
-[[tenable cooker]]
-[[rectangular toy dog]]
-[[phrenetic lepadidae]]
+[[absentminded barbette]]
+[[backlink load test]]

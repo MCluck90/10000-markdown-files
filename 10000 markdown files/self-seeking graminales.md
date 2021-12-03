@@ -83,8 +83,7 @@ Not QUITE right size to dull.
 
 ## Wikilinks load test
 
-[[olive-colored seal of approval]]
-[[microbic deerberry]]
-[[bountiful pretext]]
-[[autochthonal needle blight]]
-[[single-lane atomic number 64]]
+[[prognostic forgetful person]]
+[[antarctic ferdinand]]
+[[broad-minded oral personality]]
+[[backlink load test]]

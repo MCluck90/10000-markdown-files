@@ -83,7 +83,5 @@ Will you knew that the
 
 ## Wikilinks load test
 
-[[uncategorized rugged individualism]]
-[[gallic sertraline]]
-[[tantalizing great circle]]
-[[self-seeking graminales]]
+[[russian epicentre]]
+[[backlink load test]]

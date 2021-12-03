@@ -87,5 +87,7 @@ Good-bye feet they should
 
 ## Wikilinks load test
 
-[[shaven coon cat]]
-[[scarey egocentric]]
+[[tingling sinapis arvensis]]
+[[nippy haiku]]
+[[upper-lower-class fipple]]
+[[backlink load test]]

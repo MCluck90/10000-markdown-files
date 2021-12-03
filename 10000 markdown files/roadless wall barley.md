@@ -88,8 +88,9 @@ IF I never go
 
 ## Wikilinks load test
 
-[[heterometabolic patrology]]
-[[disjoined cnidoscolus urens]]
-[[minimum good luck]]
-[[antipathetic ophthalmoscope]]
-[[jewish stovepipe iron]]
+[[continent-wide captain horatio hornblower]]
+[[trig dak]]
+[[dark-coloured pall mall]]
+[[pilose cassette]]
+[[greensick ladys slipper]]
+[[backlink load test]]

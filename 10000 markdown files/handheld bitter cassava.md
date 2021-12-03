@@ -87,7 +87,8 @@ down yet said No I'll
 
 ## Wikilinks load test
 
-[[one hundred eighty creek confederacy]]
-[[hebrew indefinite quantity]]
-[[ashy lateral geniculate]]
-[[jellied refined sugar]]
+[[unsnarled amoeba]]
+[[coarse-textured leontocebus rosalia]]
+[[insuperable cochran]]
+[[caryophyllaceous mobius]]
+[[backlink load test]]

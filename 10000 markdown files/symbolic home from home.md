@@ -91,8 +91,6 @@ I'M a great puzzle.
 
 ## Wikilinks load test
 
-[[pyroelectric visual system]]
-[[algoid terence rattigan]]
-[[monastic superabundance]]
-[[tip-tilted hsv-2]]
-[[glamorous claymore]]
+[[pretended august wilhelm von hoffmann]]
+[[irreducible mantilla]]
+[[backlink load test]]

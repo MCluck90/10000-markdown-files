@@ -82,8 +82,9 @@ about easily offended you fond she
 
 ## Wikilinks load test
 
-[[deceased mangold-wurzel]]
-[[paramagnetic aertex]]
-[[postindustrial newlywed]]
-[[bratty congridae]]
-[[hyaloid hevea brasiliensis]]
+[[little tunicate]]
+[[callable weapons carrier]]
+[[vociferous effluent]]
+[[frugal ophryon]]
+[[undetectable cross country]]
+[[backlink load test]]

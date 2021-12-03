@@ -84,7 +84,7 @@ Shy they won't be
 
 ## Wikilinks load test
 
-[[indigent biological warfare defence]]
-[[unworthy re-uptake]]
-[[sanitized canadian shield]]
-[[effected ground effect]]
+[[warm-blooded seneca lake]]
+[[avenged sunscreen]]
+[[hundred-and-twentieth hillside]]
+[[backlink load test]]

@@ -83,8 +83,5 @@ An enormous puppy whereupon the arm
 
 ## Wikilinks load test
 
-[[hoggish dry mustard]]
-[[pugilistic betatron]]
-[[half-witted francois villon]]
-[[cosher herpetologist]]
-[[labyrinthian altaic]]
+[[maximum gasmask]]
+[[backlink load test]]

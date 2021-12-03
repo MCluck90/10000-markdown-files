@@ -84,4 +84,7 @@ Collar that size again
 
 ## Wikilinks load test
 
-[[huxleian eq]]
+[[clxx blechnum spicant]]
+[[ivy-covered deflation]]
+[[sapphirine usn]]
+[[backlink load test]]

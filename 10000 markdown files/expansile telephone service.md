@@ -83,6 +83,5 @@ How am older than you
 
 ## Wikilinks load test
 
-[[long-shanked bris]]
-[[trifoliate nubbiness]]
-[[uncombed contumacy]]
+[[one-seed tricolor tube]]
+[[backlink load test]]

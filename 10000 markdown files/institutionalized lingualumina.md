@@ -85,8 +85,9 @@ Prizes.
 
 ## Wikilinks load test
 
-[[awestricken lampropeltis triangulum]]
-[[dietetical strawberry hemangioma]]
-[[adaptative homeopath]]
-[[arcadian sugar beet]]
-[[unredeemable paisa]]
+[[heart-whole chukchi peninsula]]
+[[noxious concert]]
+[[katabolic pouteria zapota]]
+[[gyral liliaceous plant]]
+[[admirable self-organisation]]
+[[backlink load test]]

@@ -84,7 +84,7 @@ Twinkle twinkle and throw
 
 ## Wikilinks load test
 
-[[nutritional battle of pharsalus]]
-[[oldline paper toweling]]
-[[tutelary chimonanthus praecox]]
-[[olivelike scalenus]]
+[[autotypic larboard]]
+[[sericeous i peter]]
+[[potent criollo]]
+[[backlink load test]]

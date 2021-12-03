@@ -83,7 +83,9 @@ Good-bye feet in dancing.
 
 ## Wikilinks load test
 
-[[reassured bellingham]]
-[[star schlep]]
-[[last-minute antihistamine]]
-[[bowleg sea change]]
+[[wistful calque formation]]
+[[usufructuary genus juniperus]]
+[[sumptuary leaf roller]]
+[[excusatory genus hyemoschus]]
+[[round-faced cliff dwelling]]
+[[backlink load test]]

@@ -80,8 +80,7 @@ Somebody said gravely.
 
 ## Wikilinks load test
 
-[[untoothed jamaat ul-fuqra]]
-[[unstratified ladys tresses]]
-[[sublimate fuzee]]
-[[hematological mornay sauce]]
-[[bloodthirsty krzysztof kieslowski]]
+[[forgettable chardonnay]]
+[[downtown biohazard]]
+[[implicit living will]]
+[[backlink load test]]

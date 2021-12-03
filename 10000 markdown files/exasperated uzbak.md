@@ -91,7 +91,5 @@ Either the looking-glass.
 
 ## Wikilinks load test
 
-[[earliest diatom]]
-[[wriggly glad]]
-[[milanese gyp]]
-[[west trypsinogen]]
+[[ash-gray typesetter]]
+[[backlink load test]]

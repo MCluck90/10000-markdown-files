@@ -95,8 +95,7 @@ Their heads of knot and her
 
 ## Wikilinks load test
 
-[[injudicious keyboard instrument]]
-[[astatic hopei]]
-[[fucked-up tritheist]]
-[[bronchoscopic pewter]]
-[[retributive septation]]
+[[palmlike bowleg]]
+[[ill-mannered curtain raiser]]
+[[appeasable felt tip]]
+[[backlink load test]]

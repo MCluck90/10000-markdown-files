@@ -79,6 +79,8 @@ After that queer indeed.
 
 ## Wikilinks load test
 
-[[forbearing restfulness]]
-[[open-source inferiority complex]]
-[[photoconductive cocozelle]]
+[[amalgamative filing clerk]]
+[[short-bodied knight-errant]]
+[[sunburned genus sarda]]
+[[self-seeking working party]]
+[[backlink load test]]

@@ -80,6 +80,5 @@ HE was shut again for repeating
 
 ## Wikilinks load test
 
-[[albinistic apogee]]
-[[genic little clubmoss]]
-[[albinal next of kin]]
+[[accurate kitul tree]]
+[[backlink load test]]

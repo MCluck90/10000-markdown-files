@@ -87,4 +87,8 @@ Treacle said turning purple.
 
 ## Wikilinks load test
 
-[[abscessed bath linen]]
+[[ebony peke]]
+[[unelaborated fulmarus]]
+[[elderly calliphora]]
+[[calyculate dowdy]]
+[[backlink load test]]

@@ -80,4 +80,6 @@ That'll be seen hatters before the
 
 ## Wikilinks load test
 
-[[splayfoot genus melolontha]]
+[[afflictive symmetricalness]]
+[[enwrapped joseph francis keaton]]
+[[backlink load test]]

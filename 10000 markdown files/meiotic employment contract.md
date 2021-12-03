@@ -92,8 +92,7 @@ said just now I'm
 
 ## Wikilinks load test
 
-[[chthonic menstrual blood]]
-[[antemortem cub]]
-[[surplus tsatske]]
-[[gritty leech]]
-[[unsinkable rembrandt]]
+[[stinking upper avon]]
+[[brachycephalic order cetacea]]
+[[in question altazimuth]]
+[[backlink load test]]

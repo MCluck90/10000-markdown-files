@@ -90,8 +90,7 @@ At this way.
 
 ## Wikilinks load test
 
-[[corpuscular tobias george smollett]]
-[[poky perutz]]
-[[polyatomic helenium puberulum]]
-[[flightless polo shirt]]
-[[tudor poltroonery]]
+[[unsoluble colombo]]
+[[cypriote sagittarius the archer]]
+[[full-fledged beatles]]
+[[backlink load test]]

@@ -88,7 +88,6 @@ Serpent I say Drink me
 
 ## Wikilinks load test
 
-[[pleasant collar cell]]
-[[jobless scrub brush]]
-[[sleeved rubus chamaemorus]]
-[[cress green menziesia ferruginea]]
+[[bullish chemical property]]
+[[albinotic immunoglobulin g]]
+[[backlink load test]]

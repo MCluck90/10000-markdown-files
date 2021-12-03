@@ -88,5 +88,8 @@ You're a sad tale.
 
 ## Wikilinks load test
 
-[[sheepish neurosurgeon]]
-[[bridal cape verde escudo]]
+[[shorthand trailing edge]]
+[[discriminate aarp]]
+[[biddable anzac]]
+[[ironlike namur]]
+[[backlink load test]]

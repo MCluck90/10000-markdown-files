@@ -88,7 +88,9 @@ Do cats if you've
 
 ## Wikilinks load test
 
-[[curtained marina]]
-[[one hundred five waxycap]]
-[[unconvincing genus comatula]]
-[[sierra leonean genus trichoceros]]
+[[blest oka]]
+[[confidential deterrence]]
+[[prerecorded fortune teller]]
+[[unnoticeable oreopteris]]
+[[unprepossessing ar rimsal]]
+[[backlink load test]]

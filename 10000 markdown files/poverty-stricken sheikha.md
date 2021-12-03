@@ -82,8 +82,6 @@ wow.
 
 ## Wikilinks load test
 
-[[two-fold full stop]]
-[[unhuman lophius]]
-[[dandified kapeika]]
-[[incompatible arawakan]]
-[[judgmental new years day]]
+[[wrong admissibility]]
+[[biogenetic restriction]]
+[[backlink load test]]

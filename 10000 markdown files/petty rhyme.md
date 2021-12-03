@@ -88,8 +88,7 @@ Oh hush.
 
 ## Wikilinks load test
 
-[[three-petalled greenhood]]
-[[wanted belarusian monetary unit]]
-[[tough-minded vena scapularis dorsalis]]
-[[overdelicate state capitalism]]
-[[rhythmic gasolene]]
+[[nasty moneses uniflora]]
+[[canny time sheet]]
+[[unforested ascus]]
+[[backlink load test]]

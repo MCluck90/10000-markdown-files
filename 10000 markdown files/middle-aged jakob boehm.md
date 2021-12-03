@@ -84,5 +84,8 @@ then at last and repeat lessons
 
 ## Wikilinks load test
 
-[[educational brights disease]]
-[[hard-hitting genus pinckneya]]
+[[under-the-counter spotlight]]
+[[extramural farming]]
+[[unmodernized iridaceous plant]]
+[[general-purpose vicia]]
+[[backlink load test]]

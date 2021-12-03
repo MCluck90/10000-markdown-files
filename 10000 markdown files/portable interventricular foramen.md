@@ -77,7 +77,7 @@ Herald read as loud.
 
 ## Wikilinks load test
 
-[[blown parathyroid hormone]]
-[[sneering saccade]]
-[[effected ground effect]]
-[[adjudicative flypaper]]
+[[unlubricated frankincense pine]]
+[[pre-emptive tughrik]]
+[[fricative chat show]]
+[[backlink load test]]

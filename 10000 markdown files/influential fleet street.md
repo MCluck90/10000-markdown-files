@@ -86,7 +86,6 @@ UNimportant your little.
 
 ## Wikilinks load test
 
-[[incumbent genus pavo]]
-[[inboard archaeologist]]
-[[farseeing bessie smith]]
-[[spiny-stemmed honey bell]]
+[[elephantine stripper well]]
+[[batholithic canna]]
+[[backlink load test]]

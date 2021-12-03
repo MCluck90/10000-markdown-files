@@ -77,5 +77,5 @@ his remark.
 
 ## Wikilinks load test
 
-[[argillaceous genus templetonia]]
-[[daedal icteria virens]]
+[[shiny wu dialect]]
+[[backlink load test]]

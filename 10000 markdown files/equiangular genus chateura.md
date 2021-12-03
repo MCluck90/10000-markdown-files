@@ -88,5 +88,5 @@ Never.
 
 ## Wikilinks load test
 
-[[bad tn]]
-[[ahead autograph]]
+[[verbatim francois charles mauriac]]
+[[backlink load test]]

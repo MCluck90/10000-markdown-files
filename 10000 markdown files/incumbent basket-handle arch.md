@@ -83,6 +83,5 @@ exclaimed in which wasn't very supple
 
 ## Wikilinks load test
 
-[[creditable cocaine]]
-[[disavowable dagon]]
-[[short-bodied knight-errant]]
+[[cortico-hypothalamic giant clam]]
+[[backlink load test]]

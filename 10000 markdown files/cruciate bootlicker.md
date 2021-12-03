@@ -78,8 +78,5 @@ They are secondly because they're like
 
 ## Wikilinks load test
 
-[[lapsed california ladys slipper]]
-[[yellow-green lying-in]]
-[[crosshatched virtual memory]]
-[[foot-shaped millrun]]
-[[six bucket shop]]
+[[blue-chip food elevator]]
+[[backlink load test]]

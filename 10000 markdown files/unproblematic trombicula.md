@@ -78,8 +78,7 @@ IF I wish I'd only grinned
 
 ## Wikilinks load test
 
-[[cymose viscidity]]
-[[monogamous despite]]
-[[scintillant doe]]
-[[cognisable genus agalinis]]
-[[featureless o ring]]
+[[bowleg half-term]]
+[[agglomerated licensing agreement]]
+[[fricative chat show]]
+[[backlink load test]]

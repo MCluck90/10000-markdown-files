@@ -77,8 +77,6 @@ Call it could If everybody
 
 ## Wikilinks load test
 
-[[stimulating apple nut]]
-[[lv tube-nosed fruit bat]]
-[[brotherly plot of ground]]
-[[fascist congenital anomaly]]
-[[shrinkable clique]]
+[[celebratory drumbeater]]
+[[dull-white copartnership]]
+[[backlink load test]]

@@ -85,8 +85,8 @@ asked another hedgehog was
 
 ## Wikilinks load test
 
-[[crenate phylloxera]]
-[[moneran outhouse]]
-[[piddling capital of guinea-bissau]]
-[[prognostic camosh]]
-[[eight immunosuppressive]]
+[[briton gudgeon pin]]
+[[asinine snake fence]]
+[[bimorphemic serum]]
+[[brumal multiplicative inverse]]
+[[backlink load test]]

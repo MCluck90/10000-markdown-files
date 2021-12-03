@@ -90,6 +90,5 @@ One two they couldn't afford to
 
 ## Wikilinks load test
 
-[[easterly pteridospermae]]
-[[thyrotoxic dot com]]
-[[all-devouring magnetomotive force]]
+[[unflurried sir francis bacon]]
+[[backlink load test]]

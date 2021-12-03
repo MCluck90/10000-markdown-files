@@ -82,7 +82,8 @@ thump.
 
 ## Wikilinks load test
 
-[[killable polypodium]]
-[[inadmissible tea table]]
-[[coal-burning marlinspike]]
-[[traveled parcel bomb]]
+[[acrocarpous sura]]
+[[high-pressure pfalz]]
+[[nutritive bucephela clangula]]
+[[grayish-white ferber]]
+[[backlink load test]]

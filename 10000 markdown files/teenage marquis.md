@@ -87,7 +87,9 @@ Prizes.
 
 ## Wikilinks load test
 
-[[bivalve caper sauce]]
-[[aseptic computer graphic]]
-[[naming self-education]]
-[[breakable genus manduca]]
+[[evolutionary black snakeroot]]
+[[qabalistic heinrich von kleist]]
+[[extortionate genus funka]]
+[[horror-struck artfulness]]
+[[unemployed money order]]
+[[backlink load test]]

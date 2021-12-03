@@ -89,4 +89,6 @@ his flappers Mystery ancient and
 
 ## Wikilinks load test
 
-[[inward-developing shower cap]]
+[[promotive estimator]]
+[[parabolical sidereal day]]
+[[backlink load test]]

@@ -93,8 +93,8 @@ I'd gone from the first was
 
 ## Wikilinks load test
 
-[[puberulent pacer]]
-[[antiphonary frat]]
-[[tightly knit hugo grotius]]
-[[schmaltzy morel]]
-[[creedal francoa ramosa]]
+[[flavorful pressure unit]]
+[[unmodernized iridaceous plant]]
+[[prongy firing squad]]
+[[unrepaired babar]]
+[[backlink load test]]

@@ -88,8 +88,8 @@ Down the lefthand bit said in
 
 ## Wikilinks load test
 
-[[low-grade plaster of paris]]
-[[four-pronged question mark]]
-[[perturbed water nymph]]
-[[better off sea crawfish]]
-[[pole-handled divorce lawyer]]
+[[allogamous markweed]]
+[[fundamentalist donatello]]
+[[cone-bearing basketeer]]
+[[hatted metronome]]
+[[backlink load test]]

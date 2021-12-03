@@ -84,7 +84,7 @@ She got no very
 
 ## Wikilinks load test
 
-[[self-seeking graminales]]
-[[recessionary devils urn]]
-[[unaccented epigraphy]]
-[[fictitious saltpetre]]
+[[exquisite babbler]]
+[[well-turned spread]]
+[[nomadic cowl]]
+[[backlink load test]]

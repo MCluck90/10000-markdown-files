@@ -81,8 +81,8 @@ Exactly so shiny.
 
 ## Wikilinks load test
 
-[[barrelled agavaceae]]
-[[chirpy ramjet engine]]
-[[symptomatic atlantic manta]]
-[[small-minded arteria ophthalmica]]
-[[divalent bur oak]]
+[[omissive neolentinus]]
+[[recrudescent trailing four oclock]]
+[[reprehensible ware]]
+[[convexo-concave ratting]]
+[[backlink load test]]

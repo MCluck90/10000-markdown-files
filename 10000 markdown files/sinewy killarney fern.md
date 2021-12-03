@@ -86,8 +86,7 @@ Seals turtles all in such
 
 ## Wikilinks load test
 
-[[penetrable emery rock]]
-[[reborn pinot blanc]]
-[[primed linotype machine]]
-[[drunk refining]]
-[[semimonthly hounds-tongue]]
+[[striate lepidopterist]]
+[[ubiquitous filbert]]
+[[fragrant assaulter]]
+[[backlink load test]]

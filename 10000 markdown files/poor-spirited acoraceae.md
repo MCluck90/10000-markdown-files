@@ -84,8 +84,6 @@ It looked very humble tone
 
 ## Wikilinks load test
 
-[[noxious detective agency]]
-[[eyeless david roland smith]]
-[[friendless brachium]]
-[[springy billy club]]
-[[gradual tile]]
+[[tedious cheese tray]]
+[[perpendicular state of war]]
+[[backlink load test]]

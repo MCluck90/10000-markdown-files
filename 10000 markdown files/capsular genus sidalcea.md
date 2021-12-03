@@ -79,7 +79,6 @@ Now what it rather
 
 ## Wikilinks load test
 
-[[indiscriminate thermos flask]]
-[[tactless cupressus lusitanica]]
-[[daft creosote]]
-[[chemosorptive banteng]]
+[[psychogenic archeopteryx]]
+[[cartesian mexican monetary unit]]
+[[backlink load test]]

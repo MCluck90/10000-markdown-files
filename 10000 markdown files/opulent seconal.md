@@ -86,8 +86,8 @@ Found WHAT things twinkled after
 
 ## Wikilinks load test
 
-[[insurrectionary abdominal delivery]]
-[[boric pulassan]]
-[[headstrong atypical pneumonia]]
-[[carunculate fletcher]]
-[[rabble-rousing birthroot]]
+[[absorbing coccidia]]
+[[unsensational genus andricus]]
+[[fatheaded one-man rule]]
+[[dyspeptic prepossession]]
+[[backlink load test]]

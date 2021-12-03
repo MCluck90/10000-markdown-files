@@ -92,7 +92,7 @@ Nay I learn not here poor
 
 ## Wikilinks load test
 
-[[tactless cupressus lusitanica]]
-[[tessellated genus xylosma]]
-[[transcendental tracheophyte]]
-[[hazardous klutz]]
+[[vulpine overactivity]]
+[[oily phidias]]
+[[improvable clitoris]]
+[[backlink load test]]

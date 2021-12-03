@@ -85,8 +85,7 @@ Soo oop.
 
 ## Wikilinks load test
 
-[[boxed-in sri lanka rupee]]
-[[unlubricated frankincense pine]]
-[[doctoral acrocomia vinifera]]
-[[topsy-turvy tang]]
-[[good-humoured aramaic]]
+[[analogical apollo program]]
+[[bountiful pretext]]
+[[spearhead-shaped blok]]
+[[backlink load test]]

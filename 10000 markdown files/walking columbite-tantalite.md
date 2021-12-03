@@ -91,6 +91,8 @@ CHORUS.
 
 ## Wikilinks load test
 
-[[jerky toe dancing]]
-[[pleural eminence]]
-[[heartfelt kitchenware]]
+[[lesbian felis pardalis]]
+[[nonmechanical jotunn]]
+[[bristle-pointed home office]]
+[[subjacent california allspice]]
+[[backlink load test]]

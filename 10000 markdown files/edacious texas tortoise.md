@@ -94,6 +94,9 @@ Exactly as politely as
 
 ## Wikilinks load test
 
-[[one hundred eighty creek confederacy]]
-[[prehistorical black beech]]
-[[rhyming e-bomb]]
+[[lateen-rigged dress hat]]
+[[awful relativity]]
+[[nonglutinous scomberesox saurus]]
+[[absorbing naivety]]
+[[bibliographical mandibular notch]]
+[[backlink load test]]

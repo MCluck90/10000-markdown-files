@@ -81,6 +81,9 @@ Ugh Serpent I beg for Alice
 
 ## Wikilinks load test
 
-[[self-assertive suzerainty]]
-[[coral-red operoseness]]
-[[degenerate tammany]]
+[[self-disciplined cowtown]]
+[[maroon totem]]
+[[urn-shaped cabbage butterfly]]
+[[subsurface insulator]]
+[[abruptly-pinnate menuridae]]
+[[backlink load test]]

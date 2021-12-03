@@ -88,8 +88,9 @@ Who ARE you couldn't help
 
 ## Wikilinks load test
 
-[[swanky kingdom of denmark]]
-[[deviant unsavoriness]]
-[[demolished electrical contact]]
-[[hindmost efferent nerve]]
-[[agone bahamian dollar]]
+[[bicyclic shallow]]
+[[gummed data system]]
+[[moneran outhouse]]
+[[rupicolous potamophis]]
+[[descending unix operating system]]
+[[backlink load test]]

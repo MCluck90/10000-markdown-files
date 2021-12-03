@@ -83,8 +83,6 @@ Imagine her feel with wonder.
 
 ## Wikilinks load test
 
-[[nonrepetitive astigmatism]]
-[[comatose haemoglobin]]
-[[forty-two comparison]]
-[[nonflammable linin]]
-[[incoherent enologist]]
+[[maggoty oxcart]]
+[[indoor white cell]]
+[[backlink load test]]

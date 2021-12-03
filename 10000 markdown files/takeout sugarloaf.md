@@ -78,5 +78,6 @@ Hardly knowing what the
 
 ## Wikilinks load test
 
-[[linguistic drug of abuse]]
-[[amaurotic james edward meade]]
+[[diclinous extraordinariness]]
+[[improvised rockfoil]]
+[[backlink load test]]

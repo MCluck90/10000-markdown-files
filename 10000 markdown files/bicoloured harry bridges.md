@@ -85,7 +85,6 @@ Thinking again using the soldiers
 
 ## Wikilinks load test
 
-[[twee scatter rug]]
-[[monoclinal investigating]]
-[[wired partnership certificate]]
-[[politically correct swirl]]
+[[obovate geophysicist]]
+[[tympanitic genus spheniscus]]
+[[backlink load test]]

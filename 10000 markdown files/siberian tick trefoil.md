@@ -87,6 +87,6 @@ When they won't talk
 
 ## Wikilinks load test
 
-[[esophageal family comatulidae]]
-[[eighty-one cleistocarp]]
-[[fancy-free archeology]]
+[[crumpled star begonia]]
+[[anaglyphical lorazepam]]
+[[backlink load test]]

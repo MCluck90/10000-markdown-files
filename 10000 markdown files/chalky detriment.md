@@ -92,8 +92,9 @@ They're dreadfully one Alice for
 
 ## Wikilinks load test
 
-[[synesthetic coryphaenidae]]
-[[subaqueous salamandridae]]
-[[dicey 24-karat gold]]
-[[vigilant camera lucida]]
-[[deviate unsightliness]]
+[[cherished pycnodysostosis]]
+[[excrescent incorruptibility]]
+[[adjudicative flypaper]]
+[[pre-jurassic country of origin]]
+[[suffocative petcock]]
+[[backlink load test]]

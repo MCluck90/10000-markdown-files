@@ -82,6 +82,6 @@ he might be getting
 
 ## Wikilinks load test
 
-[[full-face wave-off]]
-[[icebound mensa]]
-[[uzbekistani tartaric acid]]
+[[endoscopic megacycle per second]]
+[[sabbatical gypsywort]]
+[[backlink load test]]

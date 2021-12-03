@@ -81,8 +81,6 @@ Of the flamingo.
 
 ## Wikilinks load test
 
-[[monestrous genus nycticorax]]
-[[diffident capital of serbia and montenegro]]
-[[reflex garcia lorca]]
-[[platonistic centavo]]
-[[latticelike marsh bellflower]]
+[[wasteful sissy]]
+[[antiknock political commissar]]
+[[backlink load test]]

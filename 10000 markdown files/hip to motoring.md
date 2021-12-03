@@ -82,8 +82,6 @@ which it something more simply Never
 
 ## Wikilinks load test
 
-[[evitable wood garlic]]
-[[spongelike backgammon]]
-[[stalinist indigestion]]
-[[nonfissile family gasterosteidae]]
-[[gemmiferous zhou]]
+[[antique arolla pine]]
+[[untaught osprey]]
+[[backlink load test]]

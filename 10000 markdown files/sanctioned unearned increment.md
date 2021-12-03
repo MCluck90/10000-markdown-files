@@ -75,8 +75,9 @@ Well.
 
 ## Wikilinks load test
 
-[[enceinte marchand de vin]]
-[[righteous barretter]]
-[[long-play car-ferry]]
-[[umbellate gayfeather]]
-[[heedful genus rhodymenia]]
+[[traveled parcel bomb]]
+[[ripened cleanup]]
+[[unpowered genus engraulis]]
+[[cxxx dent corn]]
+[[wonder-struck tussilago farfara]]
+[[backlink load test]]

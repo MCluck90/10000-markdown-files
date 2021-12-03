@@ -90,8 +90,6 @@ Twinkle twinkle twinkle twinkle twinkle
 
 ## Wikilinks load test
 
-[[liberalistic metasequoia]]
-[[bacciferous heterocercal fin]]
-[[diaphanous bristletail]]
-[[foiled lemon zest]]
-[[sweetheart punchayet]]
+[[noticed sixpenny nail]]
+[[daedal icteria virens]]
+[[backlink load test]]

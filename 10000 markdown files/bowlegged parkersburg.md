@@ -88,8 +88,6 @@ They must ever to
 
 ## Wikilinks load test
 
-[[apostate partial eclipse]]
-[[missing thigh boot]]
-[[shrinkable home movie]]
-[[unequalled pinhole]]
-[[ferial carpinus caroliniana]]
+[[hieratical tansy ragwort]]
+[[deltoid simoom]]
+[[backlink load test]]

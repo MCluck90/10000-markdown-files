@@ -84,8 +84,6 @@ Same as yet.
 
 ## Wikilinks load test
 
-[[semicentennial antimycotic agent]]
-[[snake-haired aldehyde]]
-[[flaky may fish]]
-[[merciful androgyny]]
-[[rusty-red diamond]]
+[[quick-frozen buck]]
+[[a cappella magnetic recorder]]
+[[backlink load test]]

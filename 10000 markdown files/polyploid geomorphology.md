@@ -85,8 +85,7 @@ At any shrimp could do nothing
 
 ## Wikilinks load test
 
-[[personal nobody]]
-[[three-petalled hearing dog]]
-[[astounded turkic]]
-[[bedaubed webbing]]
-[[confutable friction clutch]]
+[[infirm genus lycopersicum]]
+[[basal pouched mole]]
+[[blameworthy savory]]
+[[backlink load test]]

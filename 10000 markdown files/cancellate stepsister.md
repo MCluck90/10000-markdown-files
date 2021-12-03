@@ -83,7 +83,7 @@ Poor little faster than ever
 
 ## Wikilinks load test
 
-[[crosshatched virtual memory]]
-[[exhausting cape horn]]
-[[calycular smoke alarm]]
-[[hypertonic rubia]]
+[[last-minute strayer]]
+[[thirty-sixth philatelist]]
+[[over-embellished tractability]]
+[[backlink load test]]

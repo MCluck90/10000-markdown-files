@@ -95,6 +95,7 @@ as soon had nibbled some
 
 ## Wikilinks load test
 
-[[depreciating anaphalis margaritacea]]
-[[brag egomania]]
-[[underivative steam heating]]
+[[equiangular tallith]]
+[[contrasty lounge lizard]]
+[[vi antheropeas]]
+[[backlink load test]]

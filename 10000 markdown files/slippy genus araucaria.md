@@ -85,5 +85,9 @@ How dreadfully one doesn't
 
 ## Wikilinks load test
 
-[[fungible american crow]]
-[[off-line vintager]]
+[[ecumenical quantization]]
+[[augean tourniquet]]
+[[restrictive cenchrus tribuloides]]
+[[homogenized hair shirt]]
+[[bolometric tiresias]]
+[[backlink load test]]

@@ -79,7 +79,6 @@ That's very humbly you
 
 ## Wikilinks load test
 
-[[autotypic larboard]]
-[[philhellene common reed]]
-[[unappendaged frisian islands]]
-[[songful telopea speciosissima]]
+[[schematic lorry]]
+[[enveloping newsagent]]
+[[backlink load test]]

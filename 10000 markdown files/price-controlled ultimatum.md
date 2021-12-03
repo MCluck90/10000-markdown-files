@@ -86,4 +86,8 @@ Soo oop of onions.
 
 ## Wikilinks load test
 
-[[sinister clubroom]]
+[[bell-bottom signal box]]
+[[uniovular nivose]]
+[[curly-leaved ilosone]]
+[[rotten floret]]
+[[backlink load test]]

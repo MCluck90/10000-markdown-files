@@ -84,7 +84,5 @@ CHORUS.
 
 ## Wikilinks load test
 
-[[tenderised naval research laboratory]]
-[[insolent lanyard]]
-[[irate major premise]]
-[[flukey feudatory]]
+[[burbling tianjin]]
+[[backlink load test]]

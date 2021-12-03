@@ -91,6 +91,5 @@ they take no name W.
 
 ## Wikilinks load test
 
-[[emphysematous stump spud]]
-[[judaic display panel]]
-[[disinherited diathermy]]
+[[swart harakiri]]
+[[backlink load test]]

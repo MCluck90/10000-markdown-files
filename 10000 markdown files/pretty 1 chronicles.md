@@ -89,7 +89,7 @@ I'd gone to do well
 
 ## Wikilinks load test
 
-[[algid holding pattern]]
-[[unchristian temporiser]]
-[[appellative short-leaf pine]]
-[[allegro chlorination]]
+[[occult analog computer]]
+[[quondam multiprogramming]]
+[[irreligious rg]]
+[[backlink load test]]

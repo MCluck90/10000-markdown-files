@@ -84,6 +84,9 @@ Good-bye feet in dancing
 
 ## Wikilinks load test
 
-[[indecisive diva]]
-[[addled flatbed]]
-[[forty-two comparison]]
+[[geometrical osteoblast]]
+[[all in umbrella sedge]]
+[[ninefold celestial point]]
+[[inextirpable beefwood]]
+[[carbonyl seagull]]
+[[backlink load test]]

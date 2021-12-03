@@ -90,5 +90,6 @@ exclaimed turning into his scaly friend.
 
 ## Wikilinks load test
 
-[[ratiocinative spermophilus]]
-[[hydropathic nomenclature]]
+[[lead-free nitrous bacterium]]
+[[oncologic laureate]]
+[[backlink load test]]

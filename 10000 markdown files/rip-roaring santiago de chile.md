@@ -85,7 +85,5 @@ repeated impatiently and your
 
 ## Wikilinks load test
 
-[[feisty luminosity]]
-[[associable inopportuneness]]
-[[silvan lipoma]]
-[[confucian genus richea]]
+[[psychic daucus carota sativa]]
+[[backlink load test]]

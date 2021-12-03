@@ -83,8 +83,6 @@ pleaded poor child but
 
 ## Wikilinks load test
 
-[[rimed kasparov]]
-[[intense honey eater]]
-[[single-barreled cranberry juice]]
-[[disintegrative oriental beetle]]
-[[blabbermouthed antimycotic agent]]
+[[eurasiatic megatheriidae]]
+[[volatile genus cetorhinus]]
+[[backlink load test]]

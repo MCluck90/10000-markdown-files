@@ -81,5 +81,5 @@ Quick now you.
 
 ## Wikilinks load test
 
-[[openmouthed slave-maker]]
-[[bygone genus allium]]
+[[intuitionist arctium minus]]
+[[backlink load test]]

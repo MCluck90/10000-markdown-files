@@ -92,6 +92,7 @@ At last in fact
 
 ## Wikilinks load test
 
-[[oil-fired clinker block]]
-[[marooned arabian nights entertainment]]
-[[phobic electrical capacity]]
+[[nomadic cowl]]
+[[tempest-swept expedition]]
+[[abstracted swallow-tailed hawk]]
+[[backlink load test]]

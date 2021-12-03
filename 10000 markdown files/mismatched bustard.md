@@ -78,8 +78,5 @@ Oh YOU.
 
 ## Wikilinks load test
 
-[[downward googly]]
-[[vanquishable kitambilla]]
-[[collegiate lemon meringue pie]]
-[[achondroplastic hairspring]]
-[[unspecific air medal]]
+[[mantled electric fan]]
+[[backlink load test]]

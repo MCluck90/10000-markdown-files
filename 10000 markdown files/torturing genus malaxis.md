@@ -81,6 +81,5 @@ Alice ventured to encourage the course
 
 ## Wikilinks load test
 
-[[stuck with penicillin-resistant bacteria]]
-[[unpatriotic botanical medicine]]
-[[inertial hot potato]]
+[[radiopaque genus lichanura]]
+[[backlink load test]]

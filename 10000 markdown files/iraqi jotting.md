@@ -77,7 +77,5 @@ You're enough yet Oh hush.
 
 ## Wikilinks load test
 
-[[renowned dolichos lablab]]
-[[full-page encephalon]]
-[[p.m. republic]]
-[[mindless autoerotism]]
+[[zoic mountain sumac]]
+[[backlink load test]]

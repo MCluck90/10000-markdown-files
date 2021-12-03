@@ -91,8 +91,9 @@ Off Nonsense.
 
 ## Wikilinks load test
 
-[[carroty milking stool]]
-[[effected ground effect]]
-[[forte masonite]]
-[[australopithecine stenopelmatus fuscus]]
-[[insecticidal bestseller]]
+[[hyperboloidal golden cup]]
+[[unnavigable metronymic]]
+[[saccadic equivalence]]
+[[drizzling esotropia]]
+[[shorthand trailing edge]]
+[[backlink load test]]

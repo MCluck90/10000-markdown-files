@@ -79,6 +79,5 @@ I'M not attending.
 
 ## Wikilinks load test
 
-[[logy troponymy]]
-[[mixed first base]]
-[[amerindic decalitre]]
+[[slummy wilt disease]]
+[[backlink load test]]

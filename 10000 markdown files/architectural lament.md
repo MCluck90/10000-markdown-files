@@ -92,5 +92,9 @@ sh.
 
 ## Wikilinks load test
 
-[[opaline black friar]]
-[[deep-sea superorder malacopterygii]]
+[[sprawly cacodyl]]
+[[incredible levant cotton]]
+[[inheritable green olive]]
+[[one-eared council of vienne]]
+[[unfilled l. monocytogenes]]
+[[backlink load test]]

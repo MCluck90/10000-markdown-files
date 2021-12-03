@@ -81,6 +81,6 @@ Therefore I'm better.
 
 ## Wikilinks load test
 
-[[unmoved mustela rixosa]]
-[[cognate defecator]]
-[[buff-coloured denotation]]
+[[applied woolly monkey]]
+[[factious karl von clausewitz]]
+[[backlink load test]]

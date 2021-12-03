@@ -87,8 +87,8 @@ I'm on both bite.
 
 ## Wikilinks load test
 
-[[ill-equipped paralithodes]]
-[[homoecious topical anaesthetic]]
-[[plausible shavuot]]
-[[briary tribal sheik]]
-[[broody crib]]
+[[uncorrelated audio compact disc]]
+[[amuck kan river]]
+[[unsounded napoleon bonaparte]]
+[[hemic china aster]]
+[[backlink load test]]

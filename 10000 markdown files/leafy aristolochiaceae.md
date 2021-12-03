@@ -89,7 +89,8 @@ Let us three of me
 
 ## Wikilinks load test
 
-[[parturient tooth fungus]]
-[[calceiform genus lycopodium]]
-[[astatic hopei]]
-[[industrialised clangour]]
+[[exulting circular file]]
+[[squabby linen]]
+[[hotheaded mares nest]]
+[[prerecorded fortune teller]]
+[[backlink load test]]

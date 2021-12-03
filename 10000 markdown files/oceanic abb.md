@@ -87,5 +87,9 @@ Two lines.
 
 ## Wikilinks load test
 
-[[skeletal lamb]]
-[[interfaith commercial letter of credit]]
+[[latticelike marsh bellflower]]
+[[button-shaped gastrointestinal tract]]
+[[vexing bordello]]
+[[lincolnesque lapel]]
+[[bolshevistic masculinity]]
+[[backlink load test]]

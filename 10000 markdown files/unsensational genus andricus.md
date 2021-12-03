@@ -84,4 +84,6 @@ However everything about wasting IT the
 
 ## Wikilinks load test
 
-[[astringent rhyacotriton olympicus]]
+[[smooth-spoken caustic lime]]
+[[ascetic dwarf buffalo]]
+[[backlink load test]]

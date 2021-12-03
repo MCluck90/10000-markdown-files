@@ -91,8 +91,8 @@ thump.
 
 ## Wikilinks load test
 
-[[feverish criminal offense]]
-[[funnel-shaped rhamnus carolinianus]]
-[[word-of-mouth anacyclus]]
-[[multipartite leptomeningitis]]
-[[unplayable nurses aide]]
+[[umbelliform edmund ironside]]
+[[sheeny plasminogen activator]]
+[[indictable salsola soda]]
+[[inward-developing shower cap]]
+[[backlink load test]]

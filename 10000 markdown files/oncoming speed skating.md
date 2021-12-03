@@ -89,6 +89,6 @@ screamed Off Nonsense.
 
 ## Wikilinks load test
 
-[[incised table tennis]]
-[[unconvincing flaxseed]]
-[[leatherlike basking shark]]
+[[sea-level broth]]
+[[self-aggrandising ruth]]
+[[backlink load test]]

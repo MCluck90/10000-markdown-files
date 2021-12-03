@@ -77,7 +77,6 @@ Wow.
 
 ## Wikilinks load test
 
-[[anal retentive mikhail glinka]]
-[[cismontane tenorist]]
-[[prim campylorhynchus]]
-[[one hundred seventy blue grama]]
+[[brumal multiplicative inverse]]
+[[non-poisonous phenylephrine]]
+[[backlink load test]]

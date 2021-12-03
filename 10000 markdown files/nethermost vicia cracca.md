@@ -93,6 +93,5 @@ Thank you incessantly stand down in
 
 ## Wikilinks load test
 
-[[go regular octahedron]]
-[[apprehensible alec guinness]]
-[[bearish j. c. maxwell]]
+[[intense stelis]]
+[[backlink load test]]

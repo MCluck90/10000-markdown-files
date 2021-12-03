@@ -79,8 +79,8 @@ First she leant against the corner
 
 ## Wikilinks load test
 
-[[erstwhile executrix]]
-[[east indian humility]]
-[[featherless lens capsule]]
-[[addicted nylghai]]
-[[particoloured hypermastigina]]
+[[obliterate barnful]]
+[[horizontal image scanner]]
+[[steamy georges clemenceau]]
+[[leathery regius professor]]
+[[backlink load test]]

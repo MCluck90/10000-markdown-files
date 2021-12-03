@@ -83,5 +83,9 @@ but some were saying in
 
 ## Wikilinks load test
 
-[[kod impartiality]]
-[[fingered toy box]]
+[[biodegradable lipstick plant]]
+[[unicuspid indirectness]]
+[[two-footed lepidopterist]]
+[[communal reaumur scale]]
+[[afrikaans viola ocellata]]
+[[backlink load test]]

@@ -90,6 +90,6 @@ Ten hours the hedgehogs were sharing
 
 ## Wikilinks load test
 
-[[unappareled red clover]]
-[[eel-shaped sneezer]]
-[[undreamed of macleish]]
+[[a posteriori corrigendum]]
+[[lucrative diplococcus pneumoniae]]
+[[backlink load test]]

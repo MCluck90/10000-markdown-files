@@ -93,8 +93,7 @@ She'll get out but
 
 ## Wikilinks load test
 
-[[sneezy sarracenia]]
-[[kittenish ancistrodon]]
-[[ice-cold roger bannister]]
-[[christlike baldness]]
-[[maculate george dibdin pitt]]
+[[heated caitra]]
+[[shadowed salmon]]
+[[goblet-shaped lodgment]]
+[[backlink load test]]

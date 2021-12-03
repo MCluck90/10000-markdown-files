@@ -78,5 +78,6 @@ ever Yet you will be
 
 ## Wikilinks load test
 
-[[procurable cotton rush]]
-[[extrajudicial dutch capital]]
+[[wispy time constant]]
+[[tetragonal schick test]]
+[[backlink load test]]

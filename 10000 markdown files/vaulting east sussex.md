@@ -89,8 +89,6 @@ However this there MUST remember where.
 
 ## Wikilinks load test
 
-[[adjustable apron]]
-[[incensed genus guevina]]
-[[outside majagua]]
-[[un-get-at-able tin opener]]
-[[haemolytic urogenital medicine]]
+[[neo-darwinian larcenist]]
+[[strong-smelling tramway]]
+[[backlink load test]]

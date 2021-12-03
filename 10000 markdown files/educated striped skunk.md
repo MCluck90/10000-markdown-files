@@ -85,4 +85,9 @@ Mind now I'm NOT being rather
 
 ## Wikilinks load test
 
-[[privileged buttressing]]
+[[mitigatory genus amia]]
+[[fatheaded one-man rule]]
+[[tattling wilson cloud chamber]]
+[[inaugural healing herb]]
+[[ransacked genus mammillaria]]
+[[backlink load test]]

@@ -83,8 +83,6 @@ Suppose we needn't try
 
 ## Wikilinks load test
 
-[[percipient nanosecond]]
-[[end-to-end montan wax]]
-[[tessellated genus xylosma]]
-[[self-sacrificing butternut squash]]
-[[unindustrialized conversion reaction]]
+[[daughterly tampax]]
+[[austrian serum globulin]]
+[[backlink load test]]

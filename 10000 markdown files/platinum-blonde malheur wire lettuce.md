@@ -79,5 +79,5 @@ Good-bye feet for such
 
 ## Wikilinks load test
 
-[[tortious hypothermia]]
-[[asexual giant squid]]
+[[mindless autoerotism]]
+[[backlink load test]]

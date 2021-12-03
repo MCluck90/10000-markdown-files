@@ -88,7 +88,8 @@ Two.
 
 ## Wikilinks load test
 
-[[amphitheatrical three-seeded mercury]]
-[[inhuman sun parlor]]
-[[unemotional night watchman]]
-[[sweetheart ruddy turnstone]]
+[[buggy staple fibre]]
+[[beethovenian medium of exchange]]
+[[grey-headed metronidazole]]
+[[inscriptive stairway]]
+[[backlink load test]]

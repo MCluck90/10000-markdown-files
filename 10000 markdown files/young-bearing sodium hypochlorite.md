@@ -85,8 +85,7 @@ Off Nonsense.
 
 ## Wikilinks load test
 
-[[nonextant swimming cap]]
-[[elating newspaperman]]
-[[discomfited hayrig]]
-[[half traffic pattern]]
-[[hebephrenic hemianopia]]
+[[spheric prairie rattlesnake]]
+[[unmodulated richardson ground squirrel]]
+[[aquacultural natural elevation]]
+[[backlink load test]]

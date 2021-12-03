@@ -81,8 +81,5 @@ A secret kept on slates when
 
 ## Wikilinks load test
 
-[[augean tourniquet]]
-[[impelling arborescent plant]]
-[[awful relativity]]
-[[ecologic stingaree-bush]]
-[[loath zirconium]]
+[[tritanopic entric]]
+[[backlink load test]]

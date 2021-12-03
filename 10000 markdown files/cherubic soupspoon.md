@@ -88,6 +88,5 @@ Sure then thought she
 
 ## Wikilinks load test
 
-[[ambitionless mendicant]]
-[[underslung eacles]]
-[[pinkish teacupful]]
+[[bullocky kahlua]]
+[[backlink load test]]

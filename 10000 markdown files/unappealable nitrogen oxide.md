@@ -89,5 +89,8 @@ IT the unfortunate guests had been
 
 ## Wikilinks load test
 
-[[fisheye turban]]
-[[fain springing cow]]
+[[geographical element 115]]
+[[unmelodious suborder sauropodomorpha]]
+[[inflatable disembodied spirit]]
+[[curly-leafed chunga]]
+[[backlink load test]]

@@ -84,8 +84,6 @@ Poor little bottle had struck her
 
 ## Wikilinks load test
 
-[[stoppered genoese]]
-[[indoor white cell]]
-[[inseparable rolf]]
-[[craniometric carcinoma in situ]]
-[[green-blind alismatidae]]
+[[funicular plastic surgeon]]
+[[blue-sky suntan]]
+[[backlink load test]]

@@ -76,8 +76,8 @@ Read them such sudden
 
 ## Wikilinks load test
 
-[[scabby computer menu]]
-[[near-blind fraxinella]]
-[[crisscross jargon]]
-[[attached clock tower]]
-[[unpaired cursorius cursor]]
+[[modular hydroplane]]
+[[classifiable john jay]]
+[[farseeing chincapin]]
+[[acrocentric tertiary period]]
+[[backlink load test]]

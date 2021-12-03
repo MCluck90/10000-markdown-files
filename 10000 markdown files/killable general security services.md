@@ -82,4 +82,7 @@ That'll be ashamed of nothing to
 
 ## Wikilinks load test
 
-[[unartistic shiny lyonia]]
+[[taken for granted twilight vision]]
+[[maroon totem]]
+[[paddle-shaped glass cutter]]
+[[backlink load test]]

@@ -90,7 +90,8 @@ either way forwards each
 
 ## Wikilinks load test
 
-[[argillaceous egg foo yong]]
-[[aberrant suspiciousness]]
-[[lincolnesque lapel]]
-[[sour-tasting landowska]]
+[[unswerving bernoullis law]]
+[[hebephrenic hemianopia]]
+[[sterile drumlin]]
+[[separable titer]]
+[[backlink load test]]

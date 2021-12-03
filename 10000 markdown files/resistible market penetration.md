@@ -91,7 +91,8 @@ thump.
 
 ## Wikilinks load test
 
-[[eviscerate corvine bird]]
-[[thyrotoxic double-breasted suit]]
-[[unended civil marriage]]
-[[monaural cadmium yellow]]
+[[prepared bohrium]]
+[[heightening dock worker]]
+[[subsurface insulator]]
+[[contractable iowan]]
+[[backlink load test]]

@@ -94,5 +94,8 @@ Stuff and every now the beginning
 
 ## Wikilinks load test
 
-[[moorish genus klebsiella]]
-[[celtic flying school]]
+[[anaglyphical lorazepam]]
+[[complex omicron]]
+[[barrelled agavaceae]]
+[[seventy-fifth plaice]]
+[[backlink load test]]

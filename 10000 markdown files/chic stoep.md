@@ -79,6 +79,8 @@ Visit either way being alive
 
 ## Wikilinks load test
 
-[[odoriferous talipes calcaneus]]
-[[travel-worn summer haw]]
-[[triploid augean stables]]
+[[seventy-nine christian bible]]
+[[choked ctenidium]]
+[[iodinating bombay hemp]]
+[[tart opera star]]
+[[backlink load test]]

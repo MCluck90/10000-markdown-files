@@ -78,6 +78,6 @@ they'll remember remarked the goose
 
 ## Wikilinks load test
 
-[[gymnosophical thermonuclear bomb]]
-[[scalic castor fiber]]
-[[autobiographical crankcase]]
+[[thousand venerability]]
+[[eldest electronic device]]
+[[backlink load test]]

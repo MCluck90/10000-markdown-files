@@ -85,8 +85,6 @@ wow.
 
 ## Wikilinks load test
 
-[[deciduous delmonico steak]]
-[[cured racerunner]]
-[[wheaten bermuda maidenhair]]
-[[impure ash cake]]
-[[affectionate steinem]]
+[[retroactive ambit]]
+[[modifiable mauve]]
+[[backlink load test]]

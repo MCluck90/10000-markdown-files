@@ -82,5 +82,5 @@ Hardly knowing what a rule
 
 ## Wikilinks load test
 
-[[coin-operated nervus vestibulocochlearis]]
-[[greenish-gray architeuthis]]
+[[spacious cudbear]]
+[[backlink load test]]

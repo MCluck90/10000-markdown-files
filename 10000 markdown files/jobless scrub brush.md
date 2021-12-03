@@ -84,8 +84,8 @@ It'll be much pleased.
 
 ## Wikilinks load test
 
-[[clockwise place setting]]
-[[institutionalized lingualumina]]
-[[calcific psephurus gladis]]
-[[umbrageous hospital chaplain]]
-[[puddingheaded horology]]
+[[semiskilled subclass phytomastigina]]
+[[euclidean stockholding]]
+[[out of work gap]]
+[[vesicatory flick-knife]]
+[[backlink load test]]

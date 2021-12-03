@@ -83,5 +83,5 @@ Seven flung down important unimportant
 
 ## Wikilinks load test
 
-[[boughten bureau of alcohol tobacco and firearms]]
-[[vexing bordello]]
+[[wireless valley girl]]
+[[backlink load test]]

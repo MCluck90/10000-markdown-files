@@ -83,7 +83,7 @@ To begin.
 
 ## Wikilinks load test
 
-[[unexciting kanchenjunga]]
-[[wiry-stemmed class bacillariophyceae]]
-[[one hundred twenty-five rescript]]
-[[edacious texas tortoise]]
+[[antenatal ethnic slur]]
+[[orange-hued thessaly]]
+[[usual frogmouth]]
+[[backlink load test]]

@@ -83,5 +83,6 @@ CHORUS.
 
 ## Wikilinks load test
 
-[[galilaean genus gastrophryne]]
-[[oversubscribed halfpennyworth]]
+[[paleozoic absolver]]
+[[tactless cupressus lusitanica]]
+[[backlink load test]]

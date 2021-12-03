@@ -85,6 +85,8 @@ screamed Off Nonsense.
 
 ## Wikilinks load test
 
-[[blastemal artificial pacemaker]]
-[[prehistorical black beech]]
-[[butterfly-shaped doubloon]]
+[[anacoluthic boeuf]]
+[[lobeliaceous steinbeck]]
+[[viscous preeclampsia]]
+[[darling biogenesis]]
+[[backlink load test]]

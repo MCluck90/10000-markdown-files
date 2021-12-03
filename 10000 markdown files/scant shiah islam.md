@@ -78,6 +78,8 @@ CHORUS.
 
 ## Wikilinks load test
 
-[[marvellous baste]]
-[[unclipped endogen]]
-[[spousal subfamily melolonthidae]]
+[[sectioned scrupulousness]]
+[[psychogenic archeopteryx]]
+[[photogenic clime]]
+[[rotted bathroom]]
+[[backlink load test]]

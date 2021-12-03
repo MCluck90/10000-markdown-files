@@ -84,8 +84,7 @@ interrupted in surprise the Owl as
 
 ## Wikilinks load test
 
-[[aspheric nincompoop]]
-[[elucidative air horn]]
-[[unsilenced judas]]
-[[big-bellied yellow spruce]]
-[[two-footed lepidopterist]]
+[[apparitional boob tube]]
+[[wedged phantom limb]]
+[[seventy-fifth family edaphosauridae]]
+[[backlink load test]]

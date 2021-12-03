@@ -84,5 +84,5 @@ Collar that WOULD always
 
 ## Wikilinks load test
 
-[[accurate kitul tree]]
-[[juridic chemical chain]]
+[[suety minister plenipotentiary]]
+[[backlink load test]]

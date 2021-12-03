@@ -84,6 +84,6 @@ Now who said severely.
 
 ## Wikilinks load test
 
-[[brickle hagberry]]
-[[pickled regional anatomy]]
-[[unshod supplier]]
+[[faustian corkboard]]
+[[unforceful tricolor television tube]]
+[[backlink load test]]

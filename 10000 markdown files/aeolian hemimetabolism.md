@@ -75,8 +75,6 @@ HE might have told so
 
 ## Wikilinks load test
 
-[[occupational herbert blythe]]
-[[nine-membered lingual vein]]
-[[dipterous house of prostitution]]
-[[tameable jamison]]
-[[tangential tasman sea]]
+[[curable manes]]
+[[innocent ixodid]]
+[[backlink load test]]

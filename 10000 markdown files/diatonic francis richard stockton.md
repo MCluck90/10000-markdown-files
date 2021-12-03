@@ -92,8 +92,7 @@ Soup of tiny golden key was
 
 ## Wikilinks load test
 
-[[manipulable golf-club head]]
-[[needless sterility]]
-[[made-to-order crystal]]
-[[unremarked calliope]]
-[[flagging water on the knee]]
+[[fanned afterdamp]]
+[[edgy genus sciara]]
+[[petty rhyme]]
+[[backlink load test]]

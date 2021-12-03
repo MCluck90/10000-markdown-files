@@ -86,6 +86,7 @@ How COULD NOT being pinched it
 
 ## Wikilinks load test
 
-[[chromatographical capsicum frutescens]]
-[[single-barrelled intestine]]
-[[extroverted artificial blood]]
+[[prior enterotoxemia]]
+[[virulent quintuple]]
+[[cytologic umbrella bird]]
+[[backlink load test]]

@@ -80,6 +80,6 @@ Pennyworth only took pie-crust and
 
 ## Wikilinks load test
 
-[[algonkian emesis]]
-[[encyclopaedic totalisator]]
-[[one hundred eighty creek confederacy]]
+[[bacciferous heterocercal fin]]
+[[huge glaucomys volans]]
+[[backlink load test]]

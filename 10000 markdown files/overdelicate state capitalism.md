@@ -82,7 +82,7 @@ YOU'D better leave off
 
 ## Wikilinks load test
 
-[[nonimmune new greek]]
-[[nitrogenous sage]]
-[[button-shaped gastrointestinal tract]]
-[[isotropous video game]]
+[[directionless convictfish]]
+[[primed linotype machine]]
+[[piddling palo verde]]
+[[backlink load test]]

@@ -88,7 +88,7 @@ Wow.
 
 ## Wikilinks load test
 
-[[compatible ninety]]
-[[run-of-the-mine technocracy]]
-[[unheard m2]]
-[[paleoanthropological gold dust]]
+[[lincolnesque lapel]]
+[[unwritten battle of little bighorn]]
+[[stertorous war correspondent]]
+[[backlink load test]]

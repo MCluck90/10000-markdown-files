@@ -85,5 +85,7 @@ Certainly not tell whether
 
 ## Wikilinks load test
 
-[[magnetised genus platypoecilus]]
-[[bilinear seven wonders of the ancient world]]
+[[dandy wei]]
+[[leatherlike basking shark]]
+[[civil latin alphabet]]
+[[backlink load test]]

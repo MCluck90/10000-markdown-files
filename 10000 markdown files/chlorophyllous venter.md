@@ -79,7 +79,9 @@ They're done such confusion as
 
 ## Wikilinks load test
 
-[[massive pahlavi]]
-[[virginal brittany spaniel]]
-[[blue-sky suntan]]
-[[whiny nuptials]]
+[[deluxe tinea capitis]]
+[[fossiliferous darner]]
+[[caliginous congridae]]
+[[triploid augean stables]]
+[[sinewy lustre]]
+[[backlink load test]]

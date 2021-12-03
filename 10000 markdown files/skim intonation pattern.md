@@ -84,5 +84,7 @@ Everybody looked so severely
 
 ## Wikilinks load test
 
-[[twenty-two genus tropaeolum]]
-[[collect ringworm cassia]]
+[[callous gansu]]
+[[ash-gray typesetter]]
+[[graduate warehousemans lien]]
+[[backlink load test]]

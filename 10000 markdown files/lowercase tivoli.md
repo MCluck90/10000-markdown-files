@@ -82,8 +82,8 @@ You are THESE.
 
 ## Wikilinks load test
 
-[[unchristianly enovid]]
-[[bogartian genus piroplasma]]
-[[wedged phantom limb]]
-[[bottomless predecessor]]
-[[bespectacled urga]]
+[[stabilised housing estate]]
+[[rusty-red diamond]]
+[[choleraic genus millettia]]
+[[annalistic partial breach]]
+[[backlink load test]]

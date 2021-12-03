@@ -81,5 +81,6 @@ muttered to no harm
 
 ## Wikilinks load test
 
-[[crabwise nut pine]]
-[[unpredictable protriptyline]]
+[[clip-on fuji-san]]
+[[symmetrical lutanist]]
+[[backlink load test]]

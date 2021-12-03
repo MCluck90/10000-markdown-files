@@ -84,6 +84,8 @@ down off all these came to
 
 ## Wikilinks load test
 
-[[painstaking annwn]]
-[[unchecked moustache]]
-[[unidimensional dingo]]
+[[undischarged tear sac]]
+[[undigested octopodidae]]
+[[supraocular bladdernose]]
+[[heart-healthy earpiece]]
+[[backlink load test]]

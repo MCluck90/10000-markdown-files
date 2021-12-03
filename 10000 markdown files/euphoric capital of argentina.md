@@ -90,7 +90,7 @@ Good-bye feet ran out
 
 ## Wikilinks load test
 
-[[porcine retention]]
-[[rose-cheeked hepatoflavin]]
-[[sneak alcoholic beverage]]
-[[janus-faced buchner]]
+[[re-entrant combat neurosis]]
+[[unfinished twang]]
+[[tumultuous blue ribbon]]
+[[backlink load test]]

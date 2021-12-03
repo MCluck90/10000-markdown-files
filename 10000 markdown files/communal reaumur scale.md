@@ -93,6 +93,6 @@ was walking by the tiny hands
 
 ## Wikilinks load test
 
-[[palmlike bowleg]]
-[[pent ph scale]]
-[[rosy-purple tennis pro]]
+[[uvular apple tree]]
+[[coin-operated nervus vestibulocochlearis]]
+[[backlink load test]]

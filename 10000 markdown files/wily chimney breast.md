@@ -93,7 +93,6 @@ but they don't give them off
 
 ## Wikilinks load test
 
-[[syrian greenness]]
-[[genotypic hosier]]
-[[white-ribbed romanian]]
-[[bolographic duck-billed platypus]]
+[[decollete metoprolol]]
+[[unchanging tea tray]]
+[[backlink load test]]

@@ -93,4 +93,7 @@ Idiot.
 
 ## Wikilinks load test
 
-[[unpersuaded suborder blattodea]]
+[[alchemic american copper]]
+[[ungraded chelonian reptile]]
+[[bubbling bomber crew]]
+[[backlink load test]]

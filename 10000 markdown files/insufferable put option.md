@@ -78,5 +78,6 @@ Leave off this fireplace is made
 
 ## Wikilinks load test
 
-[[drilled accountant]]
-[[nonadjacent sempatch]]
+[[arciform cardium]]
+[[typic sense datum]]
+[[backlink load test]]

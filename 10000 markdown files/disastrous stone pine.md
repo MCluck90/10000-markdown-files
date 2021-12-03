@@ -83,8 +83,8 @@ Next came first the locks I
 
 ## Wikilinks load test
 
-[[clxx utnapishtim]]
-[[brumal multiplicative inverse]]
-[[rancorous blister copper]]
-[[superficial break dance]]
-[[head-in-the-clouds hypochondriac]]
+[[finite mach number]]
+[[wrinkled anticoagulant medication]]
+[[swayback wood block]]
+[[smooth-faced oddball]]
+[[backlink load test]]

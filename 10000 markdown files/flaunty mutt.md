@@ -79,5 +79,5 @@ Anything you deserved to get
 
 ## Wikilinks load test
 
-[[cosmogenic foetometry]]
-[[niggling semitropics]]
+[[poverty-stricken pathetic fallacy]]
+[[backlink load test]]

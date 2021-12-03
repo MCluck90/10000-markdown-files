@@ -83,8 +83,8 @@ Treacle said It goes
 
 ## Wikilinks load test
 
-[[congenial tupungatito]]
-[[dandy wei]]
-[[grammatical agave sisalana]]
-[[procaryotic parathyroid hormone]]
-[[inertial hot potato]]
+[[fishy tremella lutescens]]
+[[integrative castilleia]]
+[[touched clusia insignis]]
+[[fuggy gregory pincus]]
+[[backlink load test]]

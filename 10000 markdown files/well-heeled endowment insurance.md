@@ -88,4 +88,9 @@ Really now for your cat
 
 ## Wikilinks load test
 
-[[finite oreamnos]]
+[[lanceolate louisiana]]
+[[copper-bottomed boar]]
+[[splotched homophobia]]
+[[ironlike namur]]
+[[icy false pretence]]
+[[backlink load test]]

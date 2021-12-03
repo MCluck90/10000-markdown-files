@@ -90,8 +90,5 @@ My name like telescopes this and
 
 ## Wikilinks load test
 
-[[shivery rib roast]]
-[[unsinkable admiral dewey]]
-[[squared frisia]]
-[[lxxxvii calculus of variations]]
-[[evaporated coat of arms]]
+[[perpendicular state of war]]
+[[backlink load test]]

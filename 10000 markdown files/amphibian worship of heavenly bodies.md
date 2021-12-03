@@ -84,8 +84,6 @@ he found to run
 
 ## Wikilinks load test
 
-[[dipylon polyanthus]]
-[[original green peafowl]]
-[[celtic flying school]]
-[[half-bound limen]]
-[[stalinist indigestion]]
+[[trigger-happy family meleagrididae]]
+[[extendable beatrice lillie]]
+[[backlink load test]]

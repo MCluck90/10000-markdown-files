@@ -88,8 +88,8 @@ Hardly knowing how confusing thing about
 
 ## Wikilinks load test
 
-[[punctureless condom]]
-[[annular garlic chive]]
-[[dutch american flag]]
-[[holophytic gore vidal]]
-[[inflected genus nestor]]
+[[mournful writ of detinue]]
+[[particularistic power cable]]
+[[ebullient myogram]]
+[[jagged claptrap]]
+[[backlink load test]]

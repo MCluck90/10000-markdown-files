@@ -80,8 +80,8 @@ Keep your temper.
 
 ## Wikilinks load test
 
-[[approbative neva river]]
-[[adrenocortical aristotelian]]
-[[disinherited diathermy]]
-[[marly genus lota]]
-[[sanitized canadian shield]]
+[[illuminating blu-82]]
+[[prerecorded fortune teller]]
+[[lincolnian crisphead lettuce]]
+[[audio-lingual capital of iowa]]
+[[backlink load test]]

@@ -85,5 +85,6 @@ repeated with hearts.
 
 ## Wikilinks load test
 
-[[set in stone fibrocystic breast disease]]
-[[bicornate baldrick]]
+[[rebarbative st mihiel]]
+[[uncoiled folly]]
+[[backlink load test]]

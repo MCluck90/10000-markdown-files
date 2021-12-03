@@ -95,7 +95,5 @@ Always lay the snail
 
 ## Wikilinks load test
 
-[[violet-black raftsman]]
-[[brownish-green family mantispidae]]
-[[dim-sighted guerilla]]
-[[aboveground yelping]]
+[[liplike balloon flower]]
+[[backlink load test]]

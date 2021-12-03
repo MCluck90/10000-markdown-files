@@ -83,8 +83,5 @@ Pat.
 
 ## Wikilinks load test
 
-[[rastafarian aphorism]]
-[[shakedown mustachio]]
-[[cancellate stepsister]]
-[[goateed zero point]]
-[[censorial humulus japonicus]]
+[[spiny-leafed ventilator]]
+[[backlink load test]]

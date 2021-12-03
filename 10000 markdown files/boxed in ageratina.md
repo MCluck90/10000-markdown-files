@@ -84,7 +84,7 @@ Those whom she oh such things
 
 ## Wikilinks load test
 
-[[detrimental damascene]]
-[[permanent water tower]]
-[[immune boucle]]
-[[featherless lens capsule]]
+[[malawian baedeker]]
+[[kindhearted he-huckleberry]]
+[[spidery altitude sickness]]
+[[backlink load test]]

@@ -79,6 +79,6 @@ Idiot.
 
 ## Wikilinks load test
 
-[[compact boudoir]]
-[[genitive triple jump]]
-[[butterfingered ferdinand ii]]
+[[doubled computational linguistics]]
+[[gray-pink noncombatant]]
+[[backlink load test]]

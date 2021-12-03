@@ -83,8 +83,5 @@ Alice's great thistle again Twenty-four hours
 
 ## Wikilinks load test
 
-[[thoughtful troop carrier]]
-[[predisposed pinhead]]
-[[roasted gab]]
-[[unhearing sweatbox]]
-[[isochronous family cottidae]]
+[[raisable resistor]]
+[[backlink load test]]

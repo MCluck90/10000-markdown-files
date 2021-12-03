@@ -80,5 +80,8 @@ Don't you dear YOU
 
 ## Wikilinks load test
 
-[[ribbed firetrap]]
-[[rarefied south america]]
+[[shining condylion]]
+[[half-bred bedrich smetana]]
+[[unnatural high-level radioactive waste]]
+[[clip-on fuji-san]]
+[[backlink load test]]

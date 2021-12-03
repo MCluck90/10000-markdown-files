@@ -85,5 +85,6 @@ Be what to.
 
 ## Wikilinks load test
 
-[[insurrectionary whipping post]]
-[[interstellar percophidae]]
+[[anosmatic pusan]]
+[[manual bionic man]]
+[[backlink load test]]

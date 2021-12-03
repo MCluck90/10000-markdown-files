@@ -84,8 +84,6 @@ Some of beautiful Soup does
 
 ## Wikilinks load test
 
-[[nominal priscoan aeon]]
-[[spellbound jainism]]
-[[regimented cheval glass]]
-[[foreboding slipper plant]]
-[[salient dicotyledones]]
+[[neutered strike pay]]
+[[postnuptial computer-oriented language]]
+[[backlink load test]]

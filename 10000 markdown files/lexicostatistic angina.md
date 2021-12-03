@@ -84,6 +84,6 @@ For this.
 
 ## Wikilinks load test
 
-[[yellowish stenotaphrum secundatum]]
-[[kod impartiality]]
-[[less-traveled igd]]
+[[web-toed articulated lorry]]
+[[icelandic inside]]
+[[backlink load test]]

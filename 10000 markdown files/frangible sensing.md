@@ -88,8 +88,5 @@ Wouldn't it it trot away
 
 ## Wikilinks load test
 
-[[clawlike little giant]]
-[[ethnographical tamm]]
-[[insolvable propenoate]]
-[[forty-first hugo]]
-[[nonopening climatic zone]]
+[[live holy day]]
+[[backlink load test]]

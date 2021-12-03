@@ -82,5 +82,5 @@ quite so eagerly that altogether like
 
 ## Wikilinks load test
 
-[[prospering bunny hug]]
-[[declared opsonin]]
+[[guided steenbok]]
+[[backlink load test]]

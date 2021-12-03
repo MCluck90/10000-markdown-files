@@ -78,6 +78,6 @@ Luckily for all I
 
 ## Wikilinks load test
 
-[[world body length]]
-[[left over kwa]]
-[[subocean sorex cinereus]]
+[[sparse paraduodenal smear]]
+[[polydactylous beardless iris]]
+[[backlink load test]]

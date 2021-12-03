@@ -88,8 +88,8 @@ Collar that it's hardly
 
 ## Wikilinks load test
 
-[[postwar red panda]]
-[[double-bedded delectation]]
-[[collapsable badlands]]
-[[wiped out charles frederick menninger]]
-[[gentle shredder]]
+[[lovesick calisthenics]]
+[[fretful gastroesophageal reflux]]
+[[wondering boutonniere]]
+[[congenial tupungatito]]
+[[backlink load test]]

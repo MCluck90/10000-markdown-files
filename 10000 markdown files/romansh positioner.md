@@ -84,8 +84,8 @@ catch hold it woke up
 
 ## Wikilinks load test
 
-[[lxxxvii calculus of variations]]
-[[tall-stalked slothfulness]]
-[[guarded strip cropping]]
-[[liplike umbellifer]]
-[[unintelligent genus macropus]]
+[[noxious detective agency]]
+[[ill-favoured mind-set]]
+[[marital florin]]
+[[allometric mastodont]]
+[[backlink load test]]

@@ -90,7 +90,9 @@ Twinkle twinkle and still sobbing
 
 ## Wikilinks load test
 
-[[ferret-sized altar wine]]
-[[bridal judiciary]]
-[[proven machine-readable text]]
-[[incompatible genus aspis]]
+[[hardscrabble fibrin]]
+[[confutable friction clutch]]
+[[nonfat hare wallaby]]
+[[branched flying robin]]
+[[rose-cheeked dowsing]]
+[[backlink load test]]

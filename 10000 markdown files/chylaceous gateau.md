@@ -88,5 +88,5 @@ fetch things to another
 
 ## Wikilinks load test
 
-[[nonpolar hypophysectomy]]
-[[unsightly deuterium oxide]]
+[[ipsilateral criticality]]
+[[backlink load test]]

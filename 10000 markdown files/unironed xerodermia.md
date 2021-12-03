@@ -80,7 +80,5 @@ The chief difficulty was dreadfully
 
 ## Wikilinks load test
 
-[[spick nervous strain]]
-[[tegular hermann joseph muller]]
-[[procurable cotton rush]]
-[[branched flying robin]]
+[[scarey drawing lots]]
+[[backlink load test]]

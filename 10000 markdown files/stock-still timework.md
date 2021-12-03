@@ -78,8 +78,9 @@ Twinkle twinkle twinkle twinkle and
 
 ## Wikilinks load test
 
-[[collapsable badlands]]
-[[epigrammatic puffin]]
-[[pre-existent kindergartner]]
-[[empty-headed bonesetter]]
-[[stocky line-drive single]]
+[[umbelliform edmund ironside]]
+[[subdural netherlands]]
+[[radiopaque genus lichanura]]
+[[rhythmical belloc]]
+[[ill-affected tibetan buddhism]]
+[[backlink load test]]

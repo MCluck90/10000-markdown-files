@@ -87,4 +87,8 @@ However the squeaking of rules
 
 ## Wikilinks load test
 
-[[abysmal anoa depressicornis]]
+[[unsurpassed blue wall of silence]]
+[[crystal clear genus colocasia]]
+[[bifurcated astacus]]
+[[seminiferous vampirism]]
+[[backlink load test]]

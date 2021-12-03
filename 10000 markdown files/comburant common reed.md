@@ -84,5 +84,7 @@ Cheshire Cat now Don't go
 
 ## Wikilinks load test
 
-[[amerindic edible-podded pea]]
-[[springy baked potato]]
+[[overbearing serif]]
+[[unhealthful placer mining]]
+[[out of practice bedspread]]
+[[backlink load test]]

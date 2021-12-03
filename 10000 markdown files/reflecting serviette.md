@@ -79,6 +79,8 @@ Get to her rather crossly
 
 ## Wikilinks load test
 
-[[parallel storm lamp]]
-[[dog-sized bumbler]]
-[[ebullient social science]]
+[[blue lipchitz]]
+[[fuddled love-in-a-mist]]
+[[expendable gamin]]
+[[fractional ev]]
+[[backlink load test]]

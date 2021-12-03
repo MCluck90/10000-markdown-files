@@ -85,8 +85,9 @@ They're dreadfully ugly and she's so
 
 ## Wikilinks load test
 
-[[moneran outhouse]]
-[[pandurate blister rust]]
-[[macroscopical superficial temporal vein]]
-[[magenta pink paderewski]]
-[[overlying bee sting]]
+[[orphic handel]]
+[[crocked genus ascaridia]]
+[[personable strawberry tomato]]
+[[arced vaudois]]
+[[blended john hanning speke]]
+[[backlink load test]]

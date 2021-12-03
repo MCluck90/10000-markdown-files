@@ -92,7 +92,9 @@ Beautiful Soup so now my
 
 ## Wikilinks load test
 
-[[encomiastic professionalism]]
-[[warm-blooded seneca lake]]
-[[hypertrophied cataract canyon]]
-[[anuran closed book]]
+[[dipylon polyanthus]]
+[[overambitious holiday]]
+[[right-side-up quidnunc]]
+[[incorrupt alicyclic compound]]
+[[graphic puppet state]]
+[[backlink load test]]

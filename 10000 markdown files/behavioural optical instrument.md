@@ -88,8 +88,9 @@ We beg pardon your Majesty
 
 ## Wikilinks load test
 
-[[anuran closed book]]
-[[dutch pusher]]
-[[unrecognized bob hope]]
-[[all-time spore case]]
-[[eyeless muriatic acid]]
+[[kashmiri baroness emmusca orczy]]
+[[oncoming speed skating]]
+[[unliveried toothbrush tree]]
+[[shakespearian yellow jasmine]]
+[[misogynic mandibular joint]]
+[[backlink load test]]

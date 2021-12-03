@@ -84,6 +84,6 @@ Everything's got thrown out to
 
 ## Wikilinks load test
 
-[[outlawed amazon river]]
-[[spearhead-shaped blok]]
-[[driving banded rudderfish]]
+[[beltlike payables]]
+[[ethnologic triumvir]]
+[[backlink load test]]

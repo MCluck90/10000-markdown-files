@@ -75,4 +75,9 @@ It doesn't like ears and punching
 
 ## Wikilinks load test
 
-[[daring sawdust doll]]
+[[unpublishable make-work]]
+[[spread-out hardback]]
+[[inspiring basidiomycotina]]
+[[herbivorous gasterosteus]]
+[[thinking plowing]]
+[[backlink load test]]

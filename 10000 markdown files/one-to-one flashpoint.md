@@ -82,8 +82,6 @@ I've said than that to
 
 ## Wikilinks load test
 
-[[deep-sea superorder malacopterygii]]
-[[dissipated goldfish]]
-[[unicuspid rockingham podocarp]]
-[[noxious concert]]
-[[outraged penstemon linarioides]]
+[[calcifugous tuck shop]]
+[[untrimmed family casuaridae]]
+[[backlink load test]]

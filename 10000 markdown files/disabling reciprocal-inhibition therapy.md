@@ -80,6 +80,9 @@ In a memorandum of settling
 
 ## Wikilinks load test
 
-[[bowleg sea change]]
-[[mandibulofacial hypertonicity]]
-[[shifty filename]]
+[[stiff-haired microcomputer]]
+[[ceremonial genus anabrus]]
+[[reflexive priestess]]
+[[slate-black pill roller]]
+[[nepali tremor]]
+[[backlink load test]]

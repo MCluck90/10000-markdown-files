@@ -86,8 +86,8 @@ Fourteenth of Hearts were placed
 
 ## Wikilinks load test
 
-[[estrous military recruit]]
-[[aflame tropopause]]
-[[pretended august wilhelm von hoffmann]]
-[[consoling impresario]]
-[[nonexploratory subornation]]
+[[outrageous amyloid]]
+[[overgenerous quercus garryana]]
+[[all-victorious joke]]
+[[pinnate-leafed blue cheese]]
+[[backlink load test]]

@@ -83,8 +83,5 @@ Half-past one Bill's got in
 
 ## Wikilinks load test
 
-[[hand-held midas]]
-[[propagandistic motrin]]
-[[freewill baseball card]]
-[[scraggly parterre]]
-[[unsinkable rembrandt]]
+[[icy false pretence]]
+[[backlink load test]]

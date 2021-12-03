@@ -76,6 +76,9 @@ You're looking down to dull
 
 ## Wikilinks load test
 
-[[adaptative homeopath]]
-[[leaded beater]]
-[[tetanic angular momentum]]
+[[lay maniac]]
+[[diminished appeals board]]
+[[kaleidoscopic gesner]]
+[[revivalistic genus phoenix]]
+[[fluent dph]]
+[[backlink load test]]

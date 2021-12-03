@@ -79,5 +79,6 @@ Two lines.
 
 ## Wikilinks load test
 
-[[in league ladys-eardrop]]
-[[spellbinding impinging]]
+[[flightless pond apple]]
+[[tempest-swept expedition]]
+[[backlink load test]]

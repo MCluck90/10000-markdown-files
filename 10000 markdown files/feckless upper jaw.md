@@ -86,8 +86,6 @@ Explain all except the treacle
 
 ## Wikilinks load test
 
-[[disclosed ectoproct]]
-[[enclosed luging]]
-[[cumuliform thromboplastin]]
-[[monaural cadmium yellow]]
-[[constituent sagacity]]
+[[terrible mastermind]]
+[[half-dozen california coffee]]
+[[backlink load test]]

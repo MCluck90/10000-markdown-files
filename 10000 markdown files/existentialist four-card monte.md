@@ -90,7 +90,6 @@ it unfolded its legs
 
 ## Wikilinks load test
 
-[[unthawed edward jean steichen]]
-[[deaf-mute northern lobster]]
-[[alcalescent sorghum bicolor]]
-[[mutative rip-off]]
+[[verificatory visual impairment]]
+[[wispy time constant]]
+[[backlink load test]]

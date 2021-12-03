@@ -90,7 +90,9 @@ That's different branches and rushed at
 
 ## Wikilinks load test
 
-[[biannual tusser]]
-[[platinum-blonde slavonic]]
-[[stalinist indigestion]]
-[[pinkish teacupful]]
+[[unmutilated cotton grass]]
+[[orthomolecular eastern ground snake]]
+[[egoistical catbrier]]
+[[inexpiable win]]
+[[semiconscious direct quotation]]
+[[backlink load test]]

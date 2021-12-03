@@ -79,6 +79,9 @@ later.
 
 ## Wikilinks load test
 
-[[meddlesome bargello]]
-[[congenial tupungatito]]
-[[venose prince otto eduard leopold von bismarck]]
+[[self-governing genus astragalus]]
+[[bone-covered modeling]]
+[[lithomantic sissoo]]
+[[interscholastic cuke]]
+[[nodding math]]
+[[backlink load test]]

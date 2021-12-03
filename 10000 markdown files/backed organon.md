@@ -85,6 +85,9 @@ added as you had accidentally
 
 ## Wikilinks load test
 
-[[squeaking aphakic]]
-[[self-centered storm petrel]]
-[[reborn wonder]]
+[[elastic acetonemia]]
+[[obliterate boris leonidovich pasternak]]
+[[curative genus mytilus]]
+[[afro-american gooseberry]]
+[[seeming meuse]]
+[[backlink load test]]

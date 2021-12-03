@@ -89,5 +89,6 @@ Stuff and what's the
 
 ## Wikilinks load test
 
-[[cut-rate pinus flexilis]]
-[[christlike baldness]]
+[[praetorial genus boletellus]]
+[[miry anadiplosis]]
+[[backlink load test]]

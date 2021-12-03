@@ -83,6 +83,9 @@ quite enough to trouble
 
 ## Wikilinks load test
 
-[[low-grade plaster of paris]]
-[[principal spassky]]
-[[rabble-rousing birthroot]]
+[[high-ticket date plum]]
+[[mephistophelian weeder]]
+[[uniform straddle]]
+[[silky-leafed incontinency]]
+[[knotted potato skin]]
+[[backlink load test]]

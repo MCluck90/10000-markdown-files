@@ -86,7 +86,5 @@ Once upon the Gryphon added the
 
 ## Wikilinks load test
 
-[[aflame tropopause]]
-[[unalike tinkle]]
-[[sour first-rater]]
-[[mute carpocapsa]]
+[[pillaged visiting card]]
+[[backlink load test]]

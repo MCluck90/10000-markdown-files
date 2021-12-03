@@ -93,7 +93,7 @@ as it's got into his remark
 
 ## Wikilinks load test
 
-[[maxillary mirabilis uniflora]]
-[[prismatic amnesiac]]
-[[sticky cathode-ray oscilloscope]]
-[[purple-blue equal opportunity]]
+[[unconvincing genus comatula]]
+[[cathodic gentleness]]
+[[preliminary recitative]]
+[[backlink load test]]

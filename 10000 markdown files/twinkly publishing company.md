@@ -91,8 +91,8 @@ Dinah was still just going
 
 ## Wikilinks load test
 
-[[knock-down-and-drag-out genus argyroxiphium]]
-[[verbatim francois charles mauriac]]
-[[nonoscillatory ankylosis]]
-[[deafened racer]]
-[[supernal fringilla]]
+[[pet pitchman]]
+[[unfenced valve rocker]]
+[[kitschy periwinkle plant derivative]]
+[[spearhead-shaped blok]]
+[[backlink load test]]

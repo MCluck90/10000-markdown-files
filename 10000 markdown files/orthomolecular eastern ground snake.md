@@ -84,8 +84,8 @@ Really now what you're a summer
 
 ## Wikilinks load test
 
-[[flaunty mutt]]
-[[hundred thousand cosmic microwave background radiation]]
-[[humped lords-and-ladies]]
-[[narcotising moneybag]]
-[[prefaded sialadenitis]]
+[[sparing nanga parbat]]
+[[unhealthful placer mining]]
+[[massive pahlavi]]
+[[setaceous allium paradoxum]]
+[[backlink load test]]

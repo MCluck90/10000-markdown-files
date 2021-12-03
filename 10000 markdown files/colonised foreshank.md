@@ -79,8 +79,6 @@ Quick now had fallen
 
 ## Wikilinks load test
 
-[[natural object lens]]
-[[copular pseudococcus]]
-[[tied up bel and the dragon]]
-[[discredited lake ilmen]]
-[[motherless bubble and squeak]]
+[[ursine basophile]]
+[[dire saddle oxford]]
+[[backlink load test]]

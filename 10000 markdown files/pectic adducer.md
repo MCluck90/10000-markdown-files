@@ -87,5 +87,5 @@ Run home thought over
 
 ## Wikilinks load test
 
-[[alphanumeric somersaulting]]
-[[botuliform coreopsis tinctoria]]
+[[violet-flowered indian millet]]
+[[backlink load test]]

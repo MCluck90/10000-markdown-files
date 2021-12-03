@@ -84,8 +84,7 @@ Herald read They were
 
 ## Wikilinks load test
 
-[[tight-laced nominalism]]
-[[in question altazimuth]]
-[[backswept rats-tail cactus]]
-[[ranked stablemate]]
-[[meridian jukebox]]
+[[piteous pitchstone]]
+[[afghani coffee royal]]
+[[splitting bowel]]
+[[backlink load test]]

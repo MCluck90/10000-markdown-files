@@ -84,8 +84,8 @@ Hadn't time after some more
 
 ## Wikilinks load test
 
-[[state-supported myrmecophyte]]
-[[calibrated american agave]]
-[[disklike lifer]]
-[[monotonous tientsin]]
-[[capricious family combretaceae]]
+[[flawless aspergillus fumigatus]]
+[[sporty pinpoint]]
+[[virucidal fielders choice]]
+[[unproblematic mountain lion]]
+[[backlink load test]]

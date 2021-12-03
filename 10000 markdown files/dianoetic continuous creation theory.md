@@ -84,8 +84,8 @@ Mine is only too but
 
 ## Wikilinks load test
 
-[[hedged spare part]]
-[[endogenous neuroglia]]
-[[landlubberly penicillin f]]
-[[fast-flying mexicano]]
-[[tabu good-naturedness]]
+[[frightened unoriginality]]
+[[permutable church festival]]
+[[dextrorse maitre d]]
+[[inanimate ceiba pentandra]]
+[[backlink load test]]

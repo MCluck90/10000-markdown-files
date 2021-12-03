@@ -82,8 +82,5 @@ Hardly knowing how this
 
 ## Wikilinks load test
 
-[[xc lisp program]]
-[[fuzzy crocodile river]]
-[[serial savings bank]]
-[[acid-loving fig marigold]]
-[[peroneal fetal movement]]
+[[palpitant gasterosteus aculeatus]]
+[[backlink load test]]

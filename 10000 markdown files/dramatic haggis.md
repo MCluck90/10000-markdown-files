@@ -78,6 +78,8 @@ Give your acceptance of
 
 ## Wikilinks load test
 
-[[valueless resettlement]]
-[[distensible commonwealth of the bahamas]]
-[[disgustful alder tree]]
+[[drupaceous meitnerium]]
+[[sensitizing genus tagetes]]
+[[inmost straight arrow]]
+[[tipsy petticoat]]
+[[backlink load test]]

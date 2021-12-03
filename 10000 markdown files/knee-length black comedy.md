@@ -91,8 +91,6 @@ ALICE'S RIGHT FOOT ESQ.
 
 ## Wikilinks load test
 
-[[medial family dactylopiidae]]
-[[pantheist baby-boom generation]]
-[[pushy practical politics]]
-[[dextral earphone]]
-[[mute carpocapsa]]
+[[sliding deracination]]
+[[meandering bass drum]]
+[[backlink load test]]

@@ -87,5 +87,6 @@ Herald read about a
 
 ## Wikilinks load test
 
-[[flavorous bornite]]
-[[violet-black raftsman]]
+[[permanent ancestor]]
+[[neat testimony]]
+[[backlink load test]]

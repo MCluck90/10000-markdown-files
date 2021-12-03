@@ -78,7 +78,9 @@ Repeat YOU manage better
 
 ## Wikilinks load test
 
-[[bowfront apolemia]]
-[[gibraltarian alfred eisenstaedt]]
-[[mint amaranthus graecizans]]
-[[unvulcanized arabidopsis thaliana]]
+[[one-sided fiddlestick]]
+[[elflike needlefish]]
+[[lionhearted cytologic specimen]]
+[[self-assertive suzerainty]]
+[[unimportant sandhopper]]
+[[backlink load test]]

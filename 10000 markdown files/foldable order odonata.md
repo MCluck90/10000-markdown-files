@@ -89,6 +89,5 @@ Pat what's more As there
 
 ## Wikilinks load test
 
-[[roast playfulness]]
-[[etiologic breakaway]]
-[[seething fringed gentian]]
+[[anodyne quantisation]]
+[[backlink load test]]

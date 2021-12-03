@@ -92,6 +92,5 @@ Have you shouldn't like ears
 
 ## Wikilinks load test
 
-[[lighting-up atherogenesis]]
-[[cloven-hoofed corythosaurus]]
-[[illuminating irish strawberry]]
+[[head-in-the-clouds vapour density]]
+[[backlink load test]]

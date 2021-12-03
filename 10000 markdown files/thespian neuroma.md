@@ -78,8 +78,6 @@ Last came trotting slowly
 
 ## Wikilinks load test
 
-[[sarcosomal statecraft]]
-[[aquicultural peppermint patty]]
-[[unconsumed electric fire]]
-[[considerate imaginative comparison]]
-[[actinal article of faith]]
+[[petty vocal]]
+[[consummated sparkleberry]]
+[[backlink load test]]

@@ -90,8 +90,8 @@ Can't remember remarked till
 
 ## Wikilinks load test
 
-[[carunculous garden pepper cress]]
-[[d trammel net]]
-[[unimpaired water chevrotain]]
-[[floury gigabit]]
-[[lower-class bottle screw]]
+[[unconformist black bile]]
+[[capitulary oreortyx]]
+[[unauthorised shoulder strap]]
+[[claustrophobic sky wave]]
+[[backlink load test]]

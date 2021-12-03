@@ -85,7 +85,9 @@ May it vanished quite finished
 
 ## Wikilinks load test
 
-[[psychedelic genus anemia]]
-[[weasel-worded organic]]
-[[whole-wheat genus juglans]]
-[[derivational long-tailed porcupine]]
+[[squinting cleavage cavity]]
+[[amalgamated malva neglecta]]
+[[ossiferous carpal]]
+[[sweetheart punchayet]]
+[[unsyllabled pt]]
+[[backlink load test]]

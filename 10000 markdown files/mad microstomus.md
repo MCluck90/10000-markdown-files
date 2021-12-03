@@ -81,7 +81,5 @@ Do you liked them up
 
 ## Wikilinks load test
 
-[[liberated new world]]
-[[compact pan]]
-[[bellicose bruce]]
-[[bar-shaped lime disease spirochete]]
+[[windy new world beaver]]
+[[backlink load test]]

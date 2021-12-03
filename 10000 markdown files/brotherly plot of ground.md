@@ -81,8 +81,6 @@ At this creature when I'm
 
 ## Wikilinks load test
 
-[[spiny-leafed meristem]]
-[[unartistic shiny lyonia]]
-[[color burke]]
-[[pitiable allowance]]
-[[pusillanimous carbohydrate]]
+[[niggardly foreign service]]
+[[ontological strachey]]
+[[backlink load test]]

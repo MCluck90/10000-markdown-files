@@ -93,8 +93,7 @@ Nobody asked it rather
 
 ## Wikilinks load test
 
-[[satisfiable acid halide]]
-[[anaerobiotic twirl]]
-[[tottery nuffield]]
-[[runaway liposome]]
-[[earthshaking stannic sulfide]]
+[[butch capital of northern ireland]]
+[[legislative tyro]]
+[[waggish seek]]
+[[backlink load test]]

@@ -76,7 +76,5 @@ Ah THAT'S a thousand times as
 
 ## Wikilinks load test
 
-[[deductive wild potato]]
-[[extraterrestrial bob woodward]]
-[[studied globigerina]]
-[[unambiguous sterculia rupestris]]
+[[eighty-fifth musicianship]]
+[[backlink load test]]

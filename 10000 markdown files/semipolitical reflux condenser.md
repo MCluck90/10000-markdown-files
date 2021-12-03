@@ -85,7 +85,7 @@ Shall we won't she succeeded
 
 ## Wikilinks load test
 
-[[fulgent patagonia]]
-[[puerile mirabilis oblongifolia]]
-[[palaeolithic vertebral column]]
-[[collapsable badlands]]
+[[clxx blechnum spicant]]
+[[buddhist cooperative]]
+[[well-ordered genus arius]]
+[[backlink load test]]

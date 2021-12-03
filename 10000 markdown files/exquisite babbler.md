@@ -85,6 +85,6 @@ No no idea what it trot
 
 ## Wikilinks load test
 
-[[eponymic tetrodotoxin]]
-[[al dente rouge plant]]
-[[unfashionable left atrium]]
+[[spare mexican tea]]
+[[aided funk]]
+[[backlink load test]]

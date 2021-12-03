@@ -81,8 +81,6 @@ Found IT the cat which
 
 ## Wikilinks load test
 
-[[thickspread phosphorus]]
-[[acyclic loblolly]]
-[[uncombable barmbrack]]
-[[prostrate ziziphus jujuba]]
-[[entertained technician]]
+[[roaring giorgio de chirico]]
+[[squinting cleavage cavity]]
+[[backlink load test]]

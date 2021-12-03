@@ -89,8 +89,6 @@ Off with my head's free
 
 ## Wikilinks load test
 
-[[untasted dolby]]
-[[two-sided arecaceae]]
-[[seljuk glossopharyngeal nerve]]
-[[abominable lexington and concord]]
-[[intercontinental sanctum sanctorum]]
+[[ongoing european black grouse]]
+[[featured panama canal zone]]
+[[backlink load test]]

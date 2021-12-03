@@ -80,8 +80,8 @@ Soon her little feeble
 
 ## Wikilinks load test
 
-[[tref rockchuck]]
-[[annunciatory contraindication]]
-[[moorish monarda punctata]]
-[[manufactured orchestiidae]]
-[[flimsy flume]]
+[[one hundred seventy blue grama]]
+[[assigned goldfish]]
+[[time-honoured julius marx]]
+[[knotted potato skin]]
+[[backlink load test]]

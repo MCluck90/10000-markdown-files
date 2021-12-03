@@ -92,7 +92,9 @@ Behead that a back-somersault
 
 ## Wikilinks load test
 
-[[overambitious liparis loeselii]]
-[[exodontic geography]]
-[[bilobated hatband]]
-[[injudicious ojibway]]
+[[serial hippo regius]]
+[[heraldic choroid coat]]
+[[close set cleistocarp]]
+[[immunodeficient voice part]]
+[[twiglike nyasaland]]
+[[backlink load test]]

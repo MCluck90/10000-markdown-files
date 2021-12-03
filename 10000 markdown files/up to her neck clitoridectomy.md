@@ -87,7 +87,7 @@ You'll get in March just
 
 ## Wikilinks load test
 
-[[connected james clerk maxwell]]
-[[terror-struck display panel]]
-[[testicular lever]]
-[[mounted disseminated lupus erythematosus]]
+[[jingoistic megaptera]]
+[[corporatist bedloes island]]
+[[obovate geophysicist]]
+[[backlink load test]]

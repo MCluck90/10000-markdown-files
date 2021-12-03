@@ -87,6 +87,6 @@ SAID was opened and
 
 ## Wikilinks load test
 
-[[kaleidoscopical awfulness]]
-[[registered fashion designer]]
-[[baboonish genus homogyne]]
+[[unconsumed electric fire]]
+[[rusty-brown bachelor of naval science]]
+[[backlink load test]]

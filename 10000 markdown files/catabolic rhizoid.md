@@ -92,7 +92,8 @@ Luckily for serpents do.
 
 ## Wikilinks load test
 
-[[heated census taker]]
-[[eparchial nephoscope]]
-[[extreme philibert delorme]]
-[[sumptuary everydayness]]
+[[friable aristocrat]]
+[[linnaean integrator]]
+[[dashed hot-button issue]]
+[[elvish small letter]]
+[[backlink load test]]

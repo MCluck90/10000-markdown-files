@@ -79,8 +79,6 @@ Reeling and left and stockings for
 
 ## Wikilinks load test
 
-[[lunate bad block]]
-[[largo daniel rutherford]]
-[[pockmarked date bar]]
-[[aeronautical hagiolatry]]
-[[headlong steamed pudding]]
+[[woolen beerbohm]]
+[[bashful genus frankliniella]]
+[[backlink load test]]

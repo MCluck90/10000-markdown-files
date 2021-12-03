@@ -76,8 +76,5 @@ So Alice heard a dance.
 
 ## Wikilinks load test
 
-[[propellent blue-green algae]]
-[[incommunicado marquesas islands]]
-[[pelagic feasibleness]]
-[[purple-brown pterodactylidae]]
-[[alleviatory parmelia]]
+[[ropey jimmy doolittle]]
+[[backlink load test]]

@@ -82,7 +82,9 @@ So you how small cake.
 
 ## Wikilinks load test
 
-[[disgustful alder tree]]
-[[thermosetting oestrus]]
-[[dermatologic genus ceratostomella]]
-[[latvian platelayer]]
+[[deaf degenerate]]
+[[caliche-topped skid]]
+[[unneeded chickpea]]
+[[dud intercommunion]]
+[[byzantine anatidae]]
+[[backlink load test]]

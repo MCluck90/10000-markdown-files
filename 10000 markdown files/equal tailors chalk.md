@@ -81,7 +81,5 @@ catch a letter written on messages
 
 ## Wikilinks load test
 
-[[edgy igd]]
-[[disorderly genus polyprion]]
-[[inflected genus nestor]]
-[[prakritic gurkha]]
+[[adventurous pandiculation]]
+[[backlink load test]]

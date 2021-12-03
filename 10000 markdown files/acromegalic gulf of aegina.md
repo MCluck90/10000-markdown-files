@@ -87,6 +87,5 @@ Is that you could
 
 ## Wikilinks load test
 
-[[hatted metronome]]
-[[botuliform coreopsis tinctoria]]
-[[coetaneous medley]]
+[[fore sium suave]]
+[[backlink load test]]

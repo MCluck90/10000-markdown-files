@@ -82,4 +82,8 @@ Pennyworth only say only as before
 
 ## Wikilinks load test
 
-[[oratorical jean giraudoux]]
+[[slovenly cyclorama]]
+[[sign-language frisian islands]]
+[[uncaused ocelot]]
+[[aberrant suspiciousness]]
+[[backlink load test]]

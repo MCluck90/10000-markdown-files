@@ -90,7 +90,9 @@ Change lobsters again using the cattle
 
 ## Wikilinks load test
 
-[[nontransferable chowder]]
-[[cloven-hoofed corythosaurus]]
-[[kindhearted he-huckleberry]]
-[[crescendo meccano]]
+[[mormon goat willow]]
+[[livelong clergy]]
+[[indigo five-finger]]
+[[iffy mm]]
+[[blockading toggle joint]]
+[[backlink load test]]

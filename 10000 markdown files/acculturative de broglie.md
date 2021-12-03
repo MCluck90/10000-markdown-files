@@ -91,5 +91,6 @@ Soo oop of white kid gloves
 
 ## Wikilinks load test
 
-[[kitschy periwinkle plant derivative]]
-[[cognisable genus agalinis]]
+[[celtic flying school]]
+[[deluxe tinea capitis]]
+[[backlink load test]]

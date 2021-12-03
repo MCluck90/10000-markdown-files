@@ -89,4 +89,9 @@ As a hoarse feeble voice
 
 ## Wikilinks load test
 
-[[collegiate lemon meringue pie]]
+[[niggardly foreign service]]
+[[andantino southern triangle]]
+[[doctoral acrocomia vinifera]]
+[[celtic flying school]]
+[[divers suborder marginocephalia]]
+[[backlink load test]]

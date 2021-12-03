@@ -84,4 +84,7 @@ See how old crab
 
 ## Wikilinks load test
 
-[[geosynchronous howard]]
+[[vulcanized lukasiewicz notation]]
+[[insurrectionary whipping post]]
+[[bureaucratic inherited disease]]
+[[backlink load test]]

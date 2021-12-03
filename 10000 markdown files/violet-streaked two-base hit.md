@@ -90,7 +90,6 @@ they'll do How doth the open
 
 ## Wikilinks load test
 
-[[sopranino sea squab]]
-[[in their right minds genus heteranthera]]
-[[overindulgent diagnostic technique]]
-[[stimulating apple nut]]
+[[reserved tweediness]]
+[[sandlike genus mikania]]
+[[backlink load test]]

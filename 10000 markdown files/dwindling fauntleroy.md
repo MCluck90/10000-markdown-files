@@ -90,8 +90,5 @@ won't do you a
 
 ## Wikilinks load test
 
-[[audacious grindelia squarrosa]]
-[[do-or-die pilotfish]]
-[[unprogressive davallia]]
-[[ceremonial gate]]
-[[wasp-waisted registered security]]
+[[helmet-shaped bipedalism]]
+[[backlink load test]]

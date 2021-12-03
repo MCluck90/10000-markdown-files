@@ -84,8 +84,7 @@ Boots and drinking.
 
 ## Wikilinks load test
 
-[[mundane life ring]]
-[[despondent chicken leg]]
-[[rheumy litter basket]]
-[[biodegradable lipstick plant]]
-[[agitated william james]]
+[[demotic athletic competition]]
+[[high-sounding saint luke]]
+[[unpatterned melchite]]
+[[backlink load test]]

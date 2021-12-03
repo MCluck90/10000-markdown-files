@@ -75,5 +75,7 @@ he pleases.
 
 ## Wikilinks load test
 
-[[dislikable genus abudefduf]]
-[[open-plan indirect expression]]
+[[vituperative genus pinicola]]
+[[umpteenth deicer]]
+[[metaphoric enlisting]]
+[[backlink load test]]

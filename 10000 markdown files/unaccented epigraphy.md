@@ -87,8 +87,7 @@ Our family always HATED
 
 ## Wikilinks load test
 
-[[paleoanthropological gold dust]]
-[[pleasing electronic surveillance]]
-[[contrasty lounge lizard]]
-[[synthetical atrium of the heart]]
-[[somatogenetic phytophthora]]
+[[bowleg half-term]]
+[[p.m. republic]]
+[[unsaid enfilade]]
+[[backlink load test]]

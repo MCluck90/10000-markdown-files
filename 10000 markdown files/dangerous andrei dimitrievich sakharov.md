@@ -80,8 +80,8 @@ later.
 
 ## Wikilinks load test
 
-[[shallow-draught beach plum]]
-[[seventy-four penstemon cyananthus]]
-[[gray-green week from monday]]
-[[tetragonal easy street]]
-[[sneezy sarracenia]]
+[[grievous wales]]
+[[receivable enterprisingness]]
+[[prehistorical black beech]]
+[[full of life crotch hair]]
+[[backlink load test]]

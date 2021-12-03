@@ -96,7 +96,9 @@ wow.
 
 ## Wikilinks load test
 
-[[hifalutin western lowland gorilla]]
-[[rattlepated pillock]]
-[[purple-blue equal opportunity]]
-[[spheric prairie rattlesnake]]
+[[lionhearted cytologic specimen]]
+[[self-sacrificing butternut squash]]
+[[hadal left atrium]]
+[[unedited velocipede]]
+[[enlightened hazard]]
+[[backlink load test]]

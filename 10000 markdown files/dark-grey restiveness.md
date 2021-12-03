@@ -94,8 +94,8 @@ pleaded poor hands so
 
 ## Wikilinks load test
 
-[[iritic seismology]]
-[[occult analog computer]]
-[[epistemic brute]]
-[[graphic scet]]
-[[schoolgirlish sarcoidosis]]
+[[churned-up lath and plaster]]
+[[trustworthy nervus accessorius]]
+[[unmitigated ivory coast franc]]
+[[allergenic blessing]]
+[[backlink load test]]

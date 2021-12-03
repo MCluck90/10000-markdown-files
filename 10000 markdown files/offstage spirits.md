@@ -92,5 +92,7 @@ Stupid things when it's angry and
 
 ## Wikilinks load test
 
-[[hurried calochortus macrocarpus]]
-[[vexed mawkishness]]
+[[oversuspicious april]]
+[[inexplicable home plate]]
+[[half taurotragus derbianus]]
+[[backlink load test]]

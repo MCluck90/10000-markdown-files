@@ -86,6 +86,8 @@ screamed the poor Alice quietly smoking
 
 ## Wikilinks load test
 
-[[machine-controlled hop]]
-[[glamorous claymore]]
-[[x-linked solicitor]]
+[[under-the-counter spotlight]]
+[[unnecessary long jump]]
+[[lancastrian numismatology]]
+[[rarefied adjuvant]]
+[[backlink load test]]

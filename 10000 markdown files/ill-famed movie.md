@@ -78,8 +78,7 @@ Of the ink that makes
 
 ## Wikilinks load test
 
-[[closed-ring calcite]]
-[[poetic preferred shares]]
-[[deep-rooted emg]]
-[[guttural jewelled headdress]]
-[[anorexic zenaidura macroura]]
+[[disclike astarte]]
+[[shadowed salmon]]
+[[ungusseted musculus pectoralis]]
+[[backlink load test]]

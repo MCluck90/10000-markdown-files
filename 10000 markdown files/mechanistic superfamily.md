@@ -84,5 +84,5 @@ Off with MINE said I'm doubtful
 
 ## Wikilinks load test
 
-[[transportable groundberry]]
-[[partial galago]]
+[[silver-bodied seeland]]
+[[backlink load test]]

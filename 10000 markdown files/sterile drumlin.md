@@ -89,7 +89,5 @@ Boots and put my
 
 ## Wikilinks load test
 
-[[minimum one]]
-[[all in umbrella sedge]]
-[[freehanded neomys]]
-[[chisel-like mary godwin wollstonecraft shelley]]
+[[disrespectful capital cost]]
+[[backlink load test]]

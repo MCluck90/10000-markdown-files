@@ -92,7 +92,6 @@ his scaly friend replied
 
 ## Wikilinks load test
 
-[[absorbing coccidia]]
-[[antigenic gourmet]]
-[[wooly-haired male orgasm]]
-[[cryogenic muscidae]]
+[[jet-propelled pathology]]
+[[churned-up lath and plaster]]
+[[backlink load test]]

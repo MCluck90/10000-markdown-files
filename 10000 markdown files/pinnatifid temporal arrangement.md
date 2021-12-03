@@ -89,6 +89,7 @@ See how many a dear.
 
 ## Wikilinks load test
 
-[[self-restraining champagne flute]]
-[[one hundred sixty-five common white dogwood]]
-[[psychiatrical bindery]]
+[[parenthetic hairgrip]]
+[[protrusible talker identification]]
+[[creditable cocaine]]
+[[backlink load test]]

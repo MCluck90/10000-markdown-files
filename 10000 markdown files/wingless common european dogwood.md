@@ -88,6 +88,5 @@ Suddenly she drew all
 
 ## Wikilinks load test
 
-[[balzacian capricorn]]
-[[sitting mama]]
-[[low-growing onomatomania]]
+[[unforceful tricolor television tube]]
+[[backlink load test]]

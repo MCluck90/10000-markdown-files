@@ -82,6 +82,6 @@ Your Majesty said advance twice
 
 ## Wikilinks load test
 
-[[friendly colophony]]
-[[wistful calque formation]]
-[[a priori genus paphiopedilum]]
+[[frightful endothelial myeloma]]
+[[thickly settled calling card]]
+[[backlink load test]]

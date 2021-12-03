@@ -80,4 +80,5 @@ catch a solemn as before.
 
 ## Wikilinks load test
 
-[[aphoristic ball of fire]]
+[[well-favoured indigo]]
+[[backlink load test]]

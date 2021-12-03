@@ -86,7 +86,6 @@ Soo oop.
 
 ## Wikilinks load test
 
-[[oriented supernumerary]]
-[[vertiginous erik alfred leslie satie]]
-[[laughing bilateral contract]]
-[[amphibian worship of heavenly bodies]]
+[[leisured gremlin]]
+[[unimpassioned champion lode]]
+[[backlink load test]]

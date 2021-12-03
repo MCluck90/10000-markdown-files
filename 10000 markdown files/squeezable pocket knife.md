@@ -84,5 +84,8 @@ persisted.
 
 ## Wikilinks load test
 
-[[mantled electric fan]]
-[[applied woolly monkey]]
+[[off-the-shoulder barrows goldeneye]]
+[[nonpersonal bowleg]]
+[[oversuspicious april]]
+[[embossed teetotum]]
+[[backlink load test]]

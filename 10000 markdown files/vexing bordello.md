@@ -88,4 +88,5 @@ Some of lamps hanging
 
 ## Wikilinks load test
 
-[[uniformed parking brake]]
+[[ilxx equatorial current]]
+[[backlink load test]]

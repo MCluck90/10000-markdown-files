@@ -78,8 +78,9 @@ thump.
 
 ## Wikilinks load test
 
-[[awheel browsing]]
-[[tainted adios]]
-[[supersonic morgen]]
-[[avenged dyeweed]]
-[[nuts raw material]]
+[[venezuelan nicaraguan monetary unit]]
+[[defenseless crocodile river]]
+[[distributional latex paint]]
+[[permeant dirty money]]
+[[consensual royal flush]]
+[[backlink load test]]

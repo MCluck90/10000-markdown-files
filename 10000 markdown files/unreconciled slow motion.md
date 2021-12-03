@@ -88,7 +88,8 @@ Stop this to quiver all
 
 ## Wikilinks load test
 
-[[biaxal throb]]
-[[amphitheatrical comedy]]
-[[popliteal callisto]]
-[[boxed in walker]]
+[[perilous cheapness]]
+[[wrapped up cosmopolitan]]
+[[broadloom belles-lettres]]
+[[boozy enlistee]]
+[[backlink load test]]

@@ -88,8 +88,8 @@ Stolen.
 
 ## Wikilinks load test
 
-[[mutafacient malagasy republic]]
-[[creamy-yellow callimorpha]]
-[[monstrous oral herpes]]
-[[sugarless absolute threshold]]
-[[deltoid simoom]]
+[[derivable pyramids of egypt]]
+[[epizoic addiction]]
+[[dolomitic puppet government]]
+[[rachitic laugher]]
+[[backlink load test]]

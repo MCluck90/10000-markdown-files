@@ -79,8 +79,8 @@ CHORUS.
 
 ## Wikilinks load test
 
-[[resettled bouillon]]
-[[seaborne physostegia virginiana]]
-[[intimal cather]]
-[[liberated new world]]
-[[moroccan club moss]]
+[[unlawful myotis leucifugus]]
+[[lying in wait recrudescence]]
+[[zesty subdivision zygomycota]]
+[[knee-length black comedy]]
+[[backlink load test]]

@@ -90,6 +90,5 @@ Fetch me Pat.
 
 ## Wikilinks load test
 
-[[cacogenic brassica oleracea gongylodes]]
-[[norse fad]]
-[[consolable ida tarbell]]
+[[percipient nanosecond]]
+[[backlink load test]]

@@ -84,7 +84,9 @@ You ought not long
 
 ## Wikilinks load test
 
-[[lamarckian philadelphus coronarius]]
-[[maximum gasmask]]
-[[u-shaped front porch]]
-[[occupational herbert blythe]]
+[[anatropous orudis]]
+[[algoid terence rattigan]]
+[[squalling viscount]]
+[[drug-addicted tablecloth]]
+[[flighted family moraceae]]
+[[backlink load test]]

@@ -88,7 +88,6 @@ WHAT are nobody in contemptuous tones
 
 ## Wikilinks load test
 
-[[cutaneous periodic law]]
-[[strikebound frost]]
-[[degenerative genus raphicerus]]
-[[bare-ass roman type]]
+[[mangy involuntariness]]
+[[forbearing restfulness]]
+[[backlink load test]]

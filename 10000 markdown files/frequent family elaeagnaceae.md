@@ -86,7 +86,5 @@ Soo oop.
 
 ## Wikilinks load test
 
-[[nonrepetitive astigmatism]]
-[[pushy practical politics]]
-[[up-to-date mount logan]]
-[[tai soothing syrup]]
+[[bigmouthed caul]]
+[[backlink load test]]

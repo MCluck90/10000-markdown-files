@@ -89,6 +89,7 @@ Twinkle twinkle and bread-and butter
 
 ## Wikilinks load test
 
-[[adjuvant africander]]
-[[cutting-edge haemulon]]
-[[strong arum family]]
+[[improvised rockfoil]]
+[[uncorrelated audio compact disc]]
+[[six-membered gripsack]]
+[[backlink load test]]

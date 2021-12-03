@@ -94,8 +94,5 @@ Dinah'll miss me your temper
 
 ## Wikilinks load test
 
-[[unhomogenized mountain climbing]]
-[[stonelike contextual definition]]
-[[philhellenic c battery]]
-[[bottom-feeding rack and pinion]]
-[[discontinuous swap]]
+[[rectangular farmyard]]
+[[backlink load test]]

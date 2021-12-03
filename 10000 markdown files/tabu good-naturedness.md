@@ -86,8 +86,5 @@ Don't go THERE again
 
 ## Wikilinks load test
 
-[[machine-driven profession]]
-[[ambiguous homepage]]
-[[suasible special jury]]
-[[covetous cesare borgia]]
-[[affixal diplopoda]]
+[[nonmodern reciprocality]]
+[[backlink load test]]

@@ -84,8 +84,7 @@ the fire licking her adventures
 
 ## Wikilinks load test
 
-[[corymbose waterlessness]]
-[[formic orangutang]]
-[[insolvable errand boy]]
-[[cherished grey poplar]]
-[[greyish-white last day]]
+[[unexcused drift]]
+[[austrian serum globulin]]
+[[inopportune maclura pomifera]]
+[[backlink load test]]

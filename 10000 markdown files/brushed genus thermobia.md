@@ -86,8 +86,8 @@ Nobody moved.
 
 ## Wikilinks load test
 
-[[diametric black and tan]]
-[[dolomitic puppet government]]
-[[well-mannered freewheel]]
-[[stemless preceptor]]
-[[slovakian multitudinousness]]
+[[scant shiah islam]]
+[[ahorse fiddler crab]]
+[[pucka ball cartridge]]
+[[colonnaded metaphase]]
+[[backlink load test]]

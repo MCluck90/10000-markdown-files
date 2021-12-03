@@ -88,6 +88,6 @@ Thank you haven't opened
 
 ## Wikilinks load test
 
-[[boughten corpuscular radiation]]
-[[unvulcanized arabidopsis thaliana]]
-[[forgetful polyconic projection]]
+[[improvised rockfoil]]
+[[splendid corn chowder]]
+[[backlink load test]]

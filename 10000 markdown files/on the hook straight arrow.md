@@ -86,8 +86,8 @@ After these in her shoulders that
 
 ## Wikilinks load test
 
-[[semiconscious direct quotation]]
-[[straight balaena mysticetus]]
-[[praetorian coax cable]]
-[[combustible utrecht]]
-[[bounderish judy garland]]
+[[surmounted drepanocytic anemia]]
+[[asphaltic bob marley]]
+[[consensual royal flush]]
+[[triangular mountain pride]]
+[[backlink load test]]

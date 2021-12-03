@@ -92,6 +92,6 @@ Does YOUR table for
 
 ## Wikilinks load test
 
-[[traditional adios]]
-[[capsulate dinornis giganteus]]
-[[eastward rhinostenosis]]
+[[o.k. immaculateness]]
+[[familial repartee]]
+[[backlink load test]]

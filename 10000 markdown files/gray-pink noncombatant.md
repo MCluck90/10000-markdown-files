@@ -83,8 +83,7 @@ about by it arrum.
 
 ## Wikilinks load test
 
-[[heightening dock worker]]
-[[unliveried toothbrush tree]]
-[[mastoid humorousness]]
-[[naughty hagfish]]
-[[candescent psychobabble]]
+[[reassuring dacryocystitis]]
+[[accoutred stephen spender]]
+[[perplexing louvre museum]]
+[[backlink load test]]

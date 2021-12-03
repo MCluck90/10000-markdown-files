@@ -92,6 +92,7 @@ on for his note-book hastily put
 
 ## Wikilinks load test
 
-[[scatty round steak]]
-[[streamlined busyness]]
-[[private destroyer]]
+[[cheap white beech]]
+[[cartographical commercial law]]
+[[exciting indri brevicaudatus]]
+[[backlink load test]]

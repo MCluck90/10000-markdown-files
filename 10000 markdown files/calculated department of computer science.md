@@ -86,7 +86,5 @@ _I_ shan't go at
 
 ## Wikilinks load test
 
-[[nonhuman class ciliata]]
-[[war-worn eucalytus stellulata]]
-[[auditory pawnee]]
-[[aryan bench mark]]
+[[unmortgaged spore]]
+[[backlink load test]]

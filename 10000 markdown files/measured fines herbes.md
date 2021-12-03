@@ -79,5 +79,9 @@ you must make me that person
 
 ## Wikilinks load test
 
-[[splotched blood line]]
-[[wrinkleproof sir robert walpole]]
+[[fixed flagstaff]]
+[[curly-leaved ilosone]]
+[[tinny sanies]]
+[[agelong edger]]
+[[rebarbative hylocichla fuscescens]]
+[[backlink load test]]

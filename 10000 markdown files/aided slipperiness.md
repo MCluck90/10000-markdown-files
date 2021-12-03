@@ -84,7 +84,6 @@ Pray don't think I WAS when
 
 ## Wikilinks load test
 
-[[umpteenth deicer]]
-[[semisoft rutabaga plant]]
-[[dreamless bouncing bet]]
-[[most-favored-nation work-clothing]]
+[[unversed fritz albert lipmann]]
+[[plumaged ripper]]
+[[backlink load test]]

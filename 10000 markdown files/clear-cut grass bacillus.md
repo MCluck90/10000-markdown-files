@@ -80,5 +80,9 @@ Twinkle twinkle and be punished for
 
 ## Wikilinks load test
 
-[[sceptred password]]
-[[hebephrenic hemianopia]]
+[[bigmouthed caul]]
+[[agape barunduki]]
+[[lay maniac]]
+[[on-site isogram]]
+[[opinionative silverspot]]
+[[backlink load test]]

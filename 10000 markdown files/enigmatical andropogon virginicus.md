@@ -81,8 +81,8 @@ Last came running on
 
 ## Wikilinks load test
 
-[[self-limited backlighting]]
-[[in force pantomime]]
-[[nonspherical atriplex]]
-[[sinuate dioon]]
-[[antonymous liparis liparis]]
+[[cellulosid brahe]]
+[[guttural jewelled headdress]]
+[[revered genus tibicen]]
+[[riblike signal level]]
+[[backlink load test]]

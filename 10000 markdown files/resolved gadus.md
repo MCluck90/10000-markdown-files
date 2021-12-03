@@ -83,5 +83,6 @@ Don't be quick about
 
 ## Wikilinks load test
 
-[[deaf-mute northern lobster]]
-[[outgoing typhlopidae]]
+[[practised channel catfish]]
+[[terrible mastermind]]
+[[backlink load test]]

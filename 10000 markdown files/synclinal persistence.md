@@ -87,8 +87,8 @@ Dinah'll miss me you hold of
 
 ## Wikilinks load test
 
-[[half-timber ophthalmitis]]
-[[clapped out pectoralis]]
-[[bleary-eyed scalp lock]]
-[[spidery altitude sickness]]
-[[favourite pancytopenia]]
+[[pole-handled divorce lawyer]]
+[[teary western big-eared bat]]
+[[unforested ascus]]
+[[pediatric dinoceras]]
+[[backlink load test]]

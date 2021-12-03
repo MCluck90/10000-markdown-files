@@ -86,8 +86,6 @@ Then they don't give the time
 
 ## Wikilinks load test
 
-[[alphanumeric ardeb]]
-[[brag egomania]]
-[[shock-headed quercus nigra]]
-[[beginning echidnophaga]]
-[[sulfuric shoestring fungus]]
+[[light-skinned mercury fulminate]]
+[[spare cardiovascular system]]
+[[backlink load test]]

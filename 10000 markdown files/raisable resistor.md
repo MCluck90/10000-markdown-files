@@ -82,6 +82,6 @@ Everybody looked down from beginning
 
 ## Wikilinks load test
 
-[[additive publicizer]]
-[[protective haemosporidian]]
-[[unshuttered projection]]
+[[boughless northern cross]]
+[[drunk hoummos]]
+[[backlink load test]]

@@ -91,5 +91,6 @@ Who cares for serpents.
 
 ## Wikilinks load test
 
-[[buried protestant church]]
-[[megascopic erik alfred leslie satie]]
+[[green-white blood cell]]
+[[idiopathic thumbnut]]
+[[backlink load test]]

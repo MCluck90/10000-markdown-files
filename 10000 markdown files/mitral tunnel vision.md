@@ -82,5 +82,7 @@ What's in about his history she
 
 ## Wikilinks load test
 
-[[hazy sid caesar]]
-[[inexplicit mary ii]]
+[[tetragonal easy street]]
+[[adventive black pudding]]
+[[prickly-leafed ethiopian banana]]
+[[backlink load test]]

@@ -87,4 +87,9 @@ Fetch me giddy.
 
 ## Wikilinks load test
 
-[[cubiform doctrine of analogy]]
+[[logistic pelycosaur]]
+[[revivalistic genus phoenix]]
+[[basifixed valvula]]
+[[insensible gelidity]]
+[[tartarean hereafter]]
+[[backlink load test]]

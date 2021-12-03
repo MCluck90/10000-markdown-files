@@ -83,5 +83,9 @@ Beau ootiful Soo oop of
 
 ## Wikilinks load test
 
-[[undiscerning cucumis sativus]]
-[[moneran peppercorn rent]]
+[[invalidating self-renewal]]
+[[feebleminded department of physics]]
+[[humiliated drummer]]
+[[endemic political prisoner]]
+[[tearing gps]]
+[[backlink load test]]

@@ -88,8 +88,8 @@ Beau ootiful Soo oop.
 
 ## Wikilinks load test
 
-[[irritated victor emanuel ii]]
-[[chafed defenestration]]
-[[deep pennyroyal oil]]
-[[corporatist bedloes island]]
-[[unforethoughtful word-worship]]
+[[monstrous oral herpes]]
+[[rum hornets nest]]
+[[blotched plantago]]
+[[antipathetical pugilist]]
+[[backlink load test]]

@@ -86,8 +86,5 @@ or so thin and an angry
 
 ## Wikilinks load test
 
-[[infirm genus lycopersicum]]
-[[wraithlike grease]]
-[[interdependent endurance]]
-[[meatless joliet]]
-[[cool-white lepidium alpina]]
+[[purple-white voluntary muscle]]
+[[backlink load test]]

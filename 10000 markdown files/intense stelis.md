@@ -88,5 +88,5 @@ Oh do to beat them
 
 ## Wikilinks load test
 
-[[geometrical roughrider]]
-[[sex-linked analyticity]]
+[[hard-of-hearing yves tanguy]]
+[[backlink load test]]

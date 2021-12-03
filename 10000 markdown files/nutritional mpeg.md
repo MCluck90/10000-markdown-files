@@ -84,6 +84,9 @@ By the fifth bend I
 
 ## Wikilinks load test
 
-[[skinless czech republic]]
-[[unacquainted with jam session]]
-[[apostolic literary hack]]
+[[funny visual range]]
+[[wide-eyed diurnal parallax]]
+[[ghostlike follicle]]
+[[unaccessible proctalgia]]
+[[pinchbeck mohawk haircut]]
+[[backlink load test]]

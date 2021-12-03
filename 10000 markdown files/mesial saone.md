@@ -79,8 +79,6 @@ Please Ma'am is I learn.
 
 ## Wikilinks load test
 
-[[tolerable sculpture]]
-[[refractive genus eretmochelys]]
-[[conflicting genus galictis]]
-[[pinnate-leafed blue cheese]]
-[[ravaging unilateral paralysis]]
+[[pragmatic pledge]]
+[[subordinating sprinter]]
+[[backlink load test]]

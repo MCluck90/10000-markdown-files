@@ -78,4 +78,9 @@ Stand up towards it marked
 
 ## Wikilinks load test
 
-[[some autoimmune diabetes]]
+[[lincolnian wagga wagga]]
+[[seriocomical psychotic person]]
+[[irreproachable renal vein]]
+[[morphological i.w.w.]]
+[[incoherent volcan de colima]]
+[[backlink load test]]

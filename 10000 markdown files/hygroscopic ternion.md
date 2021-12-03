@@ -89,6 +89,6 @@ Edwin and they doing here
 
 ## Wikilinks load test
 
-[[sweetened tic]]
-[[potent criollo]]
-[[free-spoken universe of discourse]]
+[[nonbearing petrarch]]
+[[unbent dale]]
+[[backlink load test]]

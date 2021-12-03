@@ -83,5 +83,9 @@ She'll get away without
 
 ## Wikilinks load test
 
-[[curly-leafed chunga]]
-[[occurrent somatosense]]
+[[riblike capitulum]]
+[[paintable barbital]]
+[[prongy firing squad]]
+[[censorial ethnic minority]]
+[[holophytic gore vidal]]
+[[backlink load test]]

@@ -84,4 +84,8 @@ Shall we put on growing
 
 ## Wikilinks load test
 
-[[infelicitous pulley-block]]
+[[vigilant camera lucida]]
+[[aciduric stropharia rugoso-annulata]]
+[[unbranded columbine]]
+[[staple porc]]
+[[backlink load test]]

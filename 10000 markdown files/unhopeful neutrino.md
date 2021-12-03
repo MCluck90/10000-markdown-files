@@ -82,6 +82,6 @@ Can't remember feeling at first but
 
 ## Wikilinks load test
 
-[[two-humped ornithischian]]
-[[long-shanked bris]]
-[[legato sorghum vulgare technicum]]
+[[marly genus lota]]
+[[watertight capsicum frutescens]]
+[[backlink load test]]

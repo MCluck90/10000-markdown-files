@@ -79,4 +79,8 @@ Don't talk at the
 
 ## Wikilinks load test
 
-[[choreographic acroclinium]]
+[[rimed kasparov]]
+[[etched levanter]]
+[[transcendental tracheophyte]]
+[[homocentric invocation]]
+[[backlink load test]]

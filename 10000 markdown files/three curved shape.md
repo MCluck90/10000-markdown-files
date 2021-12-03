@@ -89,8 +89,7 @@ A little bird as he finds
 
 ## Wikilinks load test
 
-[[plastic catchphrase]]
-[[sopranino sea squab]]
-[[honorific physical phenomenon]]
-[[flukey feudatory]]
-[[ash-grey xylol]]
+[[semihard clothespress]]
+[[unthawed edward jean steichen]]
+[[bestubbled hoof-mark]]
+[[backlink load test]]

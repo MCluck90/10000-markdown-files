@@ -86,6 +86,8 @@ Heads below.
 
 ## Wikilinks load test
 
-[[appalled antisocial personality disorder]]
-[[unstable subjunctive]]
-[[young-bearing sodium hypochlorite]]
+[[lipped os pisiforme]]
+[[masoretic mortmain]]
+[[tusked alexander graham bell]]
+[[alleviatory parmelia]]
+[[backlink load test]]

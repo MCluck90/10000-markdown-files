@@ -87,4 +87,9 @@ Either the look like
 
 ## Wikilinks load test
 
-[[liechtensteiner saint peters wreath]]
+[[hatless matthew walker knot]]
+[[neckless ophthalmology]]
+[[shortsighted creeping snowberry]]
+[[kind genus chilomeniscus]]
+[[aglitter footgear]]
+[[backlink load test]]

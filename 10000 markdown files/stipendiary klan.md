@@ -89,4 +89,8 @@ You've no notion how
 
 ## Wikilinks load test
 
-[[efficacious horse race]]
+[[waterproof platystemon]]
+[[eleven-sided japanese cherry]]
+[[grapy norma]]
+[[jewish masquerader]]
+[[backlink load test]]

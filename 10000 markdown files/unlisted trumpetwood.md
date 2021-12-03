@@ -91,7 +91,7 @@ Soles and those of neck of
 
 ## Wikilinks load test
 
-[[fluffy puzzler]]
-[[soldierly horn button]]
-[[satisfying recoil]]
-[[hourglass-shaped lyallpur]]
+[[moneymaking outthrust]]
+[[disbelieving inhalation general anaesthetic]]
+[[phonologic meg]]
+[[backlink load test]]

@@ -76,6 +76,7 @@ he spoke we went hunting
 
 ## Wikilinks load test
 
-[[chaldee leftfield]]
-[[lukewarm sacred scripture]]
-[[epitheliod secular]]
+[[tenth mammee apple]]
+[[nonhierarchic tsuga heterophylla]]
+[[end-rhymed maternity ward]]
+[[backlink load test]]

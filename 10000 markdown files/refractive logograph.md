@@ -80,5 +80,8 @@ Stupid things I I'm
 
 ## Wikilinks load test
 
-[[lancastrian revilement]]
-[[suave dicer]]
+[[statistical genus lycopodium]]
+[[at sea actors assistant]]
+[[enceinte cart horse]]
+[[discreet solingen]]
+[[backlink load test]]

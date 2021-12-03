@@ -81,7 +81,9 @@ Run home the frontispiece
 
 ## Wikilinks load test
 
-[[red-blind passer montanus]]
-[[antitank cross-country skiing]]
-[[pantropical peripheral device]]
-[[compassionate operations]]
+[[decapitated family haemodoraceae]]
+[[roughened solar magnetic field]]
+[[weedless butter cookie]]
+[[precipitating mistletoe cactus]]
+[[contemplative integrating]]
+[[backlink load test]]

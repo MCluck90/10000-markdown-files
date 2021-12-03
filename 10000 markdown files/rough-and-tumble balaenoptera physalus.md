@@ -87,8 +87,7 @@ but if nothing better
 
 ## Wikilinks load test
 
-[[blebbed mysore]]
-[[brachiate separationism]]
-[[utile john chapman]]
-[[unfilled l. monocytogenes]]
-[[kitschy periwinkle plant derivative]]
+[[meretricious stalk]]
+[[blastemic working man]]
+[[glittering slimness]]
+[[backlink load test]]

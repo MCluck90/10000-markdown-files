@@ -93,4 +93,8 @@ which way I used and
 
 ## Wikilinks load test
 
-[[star schlep]]
+[[telephonic playfellow]]
+[[mechanized sitka]]
+[[analogue baby boomer]]
+[[self-acting crockett]]
+[[backlink load test]]

@@ -86,5 +86,7 @@ Never imagine yourself some
 
 ## Wikilinks load test
 
-[[bahamian wyeth]]
-[[unidimensional dingo]]
+[[gratuitous nordic]]
+[[wedged phantom limb]]
+[[jerry-built altocumulus cloud]]
+[[backlink load test]]

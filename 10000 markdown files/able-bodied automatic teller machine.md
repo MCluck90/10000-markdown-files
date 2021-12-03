@@ -81,8 +81,8 @@ Poor Alice dodged behind us get
 
 ## Wikilinks load test
 
-[[kaleidoscopical awfulness]]
-[[eased horse-head]]
-[[unsettled peul]]
-[[off your guard sit-up]]
-[[undisputable nipa palm]]
+[[y2k compliant aviatress]]
+[[volute gag order]]
+[[homey genus loasa]]
+[[asyndetic english lady crab]]
+[[backlink load test]]

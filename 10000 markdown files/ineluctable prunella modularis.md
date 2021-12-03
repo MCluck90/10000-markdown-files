@@ -73,7 +73,8 @@ You couldn't have some difficulty
 
 ## Wikilinks load test
 
-[[self-respecting seljuk]]
-[[unvitrified autogeny]]
-[[operatic vocational rehabilitation]]
-[[equidistant long whist]]
+[[best necrobiosis lipoidica]]
+[[feudatory conodontophorida]]
+[[meshed silkworm seed]]
+[[afrikaans viola ocellata]]
+[[backlink load test]]

@@ -12,10 +12,14 @@ const getRandomLinks = () =>
 
 for (const file of files) {
   const filePath = path.join(__dirname, '10000 markdown files', file)
-  const links = getRandomLinks().join('\n')
+  const links = getRandomLinks()
+  // Make sure a link to the backlink load test is included
+  if (!links.includes('[[backlink load test]]')) {
+    links.push('[[backlink load test]]')
+  }
   const contents = fs.readFileSync(filePath).toString()
   if (contents.includes('## Wikilinks load test')) {
     fs.writeFileSync(filePath, contents.replace(/\n## Wikilinks load test[\s\S]+/gm, ''))
   }
-  fs.appendFileSync(filePath, `\n## Wikilinks load test\n\n${links}`)
+  fs.appendFileSync(filePath, `\n## Wikilinks load test\n\n${links.join('\n')}`)
 }

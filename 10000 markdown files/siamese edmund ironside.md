@@ -84,7 +84,5 @@ on puzzling question was small
 
 ## Wikilinks load test
 
-[[comb-like lamium amplexicaule]]
-[[urbanised rufous rubber cup]]
-[[childless coprolalia]]
-[[on-key cut-in]]
+[[hurtful carothers]]
+[[backlink load test]]

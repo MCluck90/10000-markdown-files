@@ -93,8 +93,5 @@ Their heads are all
 
 ## Wikilinks load test
 
-[[chiromantic village]]
-[[pinched panthera uncia]]
-[[cool-white costume designer]]
-[[industrialised clangour]]
-[[enraged atomic number 12]]
+[[beaked genus puccinia]]
+[[backlink load test]]

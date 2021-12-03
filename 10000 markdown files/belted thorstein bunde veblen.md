@@ -83,8 +83,8 @@ Same as an old thing I've
 
 ## Wikilinks load test
 
-[[clubby magnesium carbonate]]
-[[nonmechanical moharram]]
-[[arciform cardium]]
-[[ice-cold roger bannister]]
-[[libellous honoring]]
+[[confederative coffee mill]]
+[[bicyclic spurious wing]]
+[[sufferable calluna vulgaris]]
+[[airless hematolysis]]
+[[backlink load test]]

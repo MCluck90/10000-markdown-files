@@ -92,6 +92,9 @@ I'll manage on messages
 
 ## Wikilinks load test
 
-[[phonogramic oculus dexter]]
-[[classifiable nicker nut]]
-[[shut up thyroidectomy]]
+[[languorous lynx rufus]]
+[[curly-leafed chunga]]
+[[sour first-rater]]
+[[sinhala arrester hook]]
+[[ptolemaic xyridales]]
+[[backlink load test]]

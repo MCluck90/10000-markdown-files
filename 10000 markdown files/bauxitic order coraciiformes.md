@@ -80,7 +80,6 @@ Stupid things.
 
 ## Wikilinks load test
 
-[[climbable compunction]]
-[[fictile hypophosphorous acid]]
-[[punk brass]]
-[[treed black humor]]
+[[exogenous quoter]]
+[[getable sewage works]]
+[[backlink load test]]

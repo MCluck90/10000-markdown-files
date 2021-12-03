@@ -80,6 +80,9 @@ Explain all would go.
 
 ## Wikilinks load test
 
-[[deadening diuretic drug]]
-[[transitive vascularization]]
-[[lancelike scalene triangle]]
+[[opencut schreibers aster]]
+[[devoted genus malus]]
+[[travel-worn conestoga wagon]]
+[[diffusing torch song]]
+[[virtuoso anoxemia]]
+[[backlink load test]]

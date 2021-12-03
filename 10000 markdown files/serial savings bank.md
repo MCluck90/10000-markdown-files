@@ -92,6 +92,9 @@ Nothing WHATEVER.
 
 ## Wikilinks load test
 
-[[energizing calochortus elegans]]
-[[pointillist grand total]]
-[[pessimum crude]]
+[[plane shaggy dog story]]
+[[confutable waffle]]
+[[pachydermal debriefing]]
+[[biting redeye flight]]
+[[censorial ethnic minority]]
+[[backlink load test]]

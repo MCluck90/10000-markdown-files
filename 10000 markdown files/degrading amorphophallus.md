@@ -81,7 +81,7 @@ Up lazy thing Mock
 
 ## Wikilinks load test
 
-[[satisfying recoil]]
-[[bulbaceous chloral hydrate]]
-[[large-cap inverted pleat]]
-[[augean dance master]]
+[[head-in-the-clouds hypochondriac]]
+[[spearhead-shaped blok]]
+[[temporal it]]
+[[backlink load test]]

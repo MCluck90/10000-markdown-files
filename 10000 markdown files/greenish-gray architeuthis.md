@@ -83,7 +83,6 @@ Would you walk long since
 
 ## Wikilinks load test
 
-[[musical newfoundland dog]]
-[[hardbound sylvan]]
-[[rodlike stench bomb]]
-[[reserved tweediness]]
+[[isosceles racquetball]]
+[[on-the-scene procrustes]]
+[[backlink load test]]

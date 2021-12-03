@@ -84,8 +84,8 @@ For instance there's an
 
 ## Wikilinks load test
 
-[[algolagnic geological time]]
-[[laureate refugee]]
-[[deafened embiodea]]
-[[indiscriminate thermos flask]]
-[[custard-like genus seriphidium]]
+[[suppressive fenestration]]
+[[sweetened tic]]
+[[evitable crataegus tomentosa]]
+[[belittling sicilian pizza]]
+[[backlink load test]]

@@ -86,6 +86,6 @@ Behead that size and wags
 
 ## Wikilinks load test
 
-[[consensual royal flush]]
-[[unobservant harold pinter]]
-[[rich cat and rat]]
+[[calcifugous tuck shop]]
+[[vituperative genus pinicola]]
+[[backlink load test]]

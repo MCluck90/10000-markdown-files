@@ -85,6 +85,5 @@ Ahem.
 
 ## Wikilinks load test
 
-[[indurate bonnet shark]]
-[[epiphyseal frank]]
-[[temperate 12]]
+[[collective shame plant]]
+[[backlink load test]]

@@ -84,7 +84,8 @@ Repeat YOU are ferrets
 
 ## Wikilinks load test
 
-[[assumed light adaptation]]
-[[flirtatious ploy]]
-[[computable schmoose]]
-[[overlooking solar dish]]
+[[philosophical unfairness]]
+[[punk brass]]
+[[semicentenary snake dance]]
+[[back-to-back nikolai ivanovich bukharin]]
+[[backlink load test]]

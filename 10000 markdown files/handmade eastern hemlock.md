@@ -92,7 +92,6 @@ Coming in With no
 
 ## Wikilinks load test
 
-[[miserly chou en-lai]]
-[[two-channel output-to-input ratio]]
-[[custom-made tattler]]
-[[manipulable battle of little bighorn]]
+[[bicylindrical selenium]]
+[[fisheye turban]]
+[[backlink load test]]

@@ -83,6 +83,6 @@ Hand it directed at dinn
 
 ## Wikilinks load test
 
-[[unpaired cursorius cursor]]
-[[prizewinning russula]]
-[[variable galloway]]
+[[unspent cladoniaceae]]
+[[wriggling genus ostryopsis]]
+[[backlink load test]]

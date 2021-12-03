@@ -88,5 +88,5 @@ Nothing whatever happens.
 
 ## Wikilinks load test
 
-[[thirsty pruning saw]]
-[[fried tornillo]]
+[[crimson at]]
+[[backlink load test]]

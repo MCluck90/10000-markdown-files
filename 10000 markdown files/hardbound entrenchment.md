@@ -85,4 +85,8 @@ wow.
 
 ## Wikilinks load test
 
-[[chirpy blackpoll]]
+[[sinistral inciter]]
+[[pantheistic connecticut]]
+[[localised undersurface]]
+[[denaturised blue baby]]
+[[backlink load test]]

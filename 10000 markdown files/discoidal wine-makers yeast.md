@@ -83,5 +83,5 @@ As wet cross and
 
 ## Wikilinks load test
 
-[[norwegian alertness]]
-[[insolvable errand boy]]
+[[rife cubbyhole]]
+[[backlink load test]]

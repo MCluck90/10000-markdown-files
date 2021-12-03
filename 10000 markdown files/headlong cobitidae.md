@@ -79,7 +79,6 @@ persisted.
 
 ## Wikilinks load test
 
-[[permanent ancestor]]
-[[blasting towing rope]]
-[[chthonic menstrual blood]]
-[[monandrous daniel morgan]]
+[[excess mortise]]
+[[lateral six]]
+[[backlink load test]]

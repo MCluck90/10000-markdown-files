@@ -86,5 +86,6 @@ Why Mary Ann and
 
 ## Wikilinks load test
 
-[[sciatic norfolk]]
-[[unchallenged sumo]]
+[[correct tosh]]
+[[word-perfect posterior naris]]
+[[backlink load test]]

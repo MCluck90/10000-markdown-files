@@ -83,8 +83,6 @@ This is what an hour or
 
 ## Wikilinks load test
 
-[[incised table tennis]]
-[[appalled antisocial personality disorder]]
-[[particularistic power cable]]
-[[heedful genus rhodymenia]]
-[[pharmacologic toxostoma rufums]]
+[[numerable skiffle group]]
+[[dilettanteish gregorian mode]]
+[[backlink load test]]

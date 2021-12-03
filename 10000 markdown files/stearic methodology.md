@@ -82,8 +82,6 @@ Turn a minute and eels of
 
 ## Wikilinks load test
 
-[[spidery altitude sickness]]
-[[cloudy rheum palmatum]]
-[[annular garlic chive]]
-[[interscholastic cuke]]
-[[neo-lamarckian yagi]]
+[[blackish-gray kotex]]
+[[fuggy gregory pincus]]
+[[backlink load test]]

@@ -76,5 +76,8 @@ you mayn't believe.
 
 ## Wikilinks load test
 
-[[intertribal steerageway]]
-[[acerose freedom rider]]
+[[moblike laryngitis]]
+[[x-linked solicitor]]
+[[subversive diamagnet]]
+[[apprehensible alec guinness]]
+[[backlink load test]]

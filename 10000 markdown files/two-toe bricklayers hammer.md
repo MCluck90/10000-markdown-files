@@ -85,8 +85,7 @@ ALICE'S RIGHT FOOT ESQ.
 
 ## Wikilinks load test
 
-[[fast-flying mexicano]]
-[[unambiguous well water]]
-[[full-bosomed ormosia monosperma]]
-[[present battle of magenta]]
-[[curly-grained skim]]
+[[ammoniacal tutsi]]
+[[double-breasted giant granadilla]]
+[[binding indian hemp]]
+[[backlink load test]]

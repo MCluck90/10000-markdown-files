@@ -86,6 +86,8 @@ thump.
 
 ## Wikilinks load test
 
-[[puerile mirabilis oblongifolia]]
-[[quadruple electronic warfare-support measures]]
-[[fried tornillo]]
+[[snuggled adelie penguin]]
+[[clear-eyed viperidae]]
+[[quick actias luna]]
+[[cd retired person]]
+[[backlink load test]]

@@ -85,5 +85,8 @@ Never mind and whiskers.
 
 ## Wikilinks load test
 
-[[lovelorn stinking chamomile]]
-[[with child genus ceratophyllum]]
+[[earsplitting stiff]]
+[[tailored nymphaea alba]]
+[[malign patchouli]]
+[[mellisonant chasuble]]
+[[backlink load test]]

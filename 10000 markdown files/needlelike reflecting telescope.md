@@ -79,4 +79,6 @@ Thinking again.
 
 ## Wikilinks load test
 
-[[downcast chlorpromazine]]
+[[rootless genus malosma]]
+[[protruding porphyria]]
+[[backlink load test]]

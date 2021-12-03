@@ -87,6 +87,8 @@ they'll do very absurd
 
 ## Wikilinks load test
 
-[[spellbound jainism]]
-[[self-restraining bishkek]]
-[[skim intonation pattern]]
+[[equilateral utilisation]]
+[[microcrystalline cakehole]]
+[[behaviourist shoe collar]]
+[[unexplained cuculiformes]]
+[[backlink load test]]

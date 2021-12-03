@@ -85,4 +85,6 @@ Wake up one.
 
 ## Wikilinks load test
 
-[[elephantine stripper well]]
+[[aguish trimmer arch]]
+[[brumal multiplicative inverse]]
+[[backlink load test]]

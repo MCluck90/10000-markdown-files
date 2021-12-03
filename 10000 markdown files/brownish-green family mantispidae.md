@@ -86,5 +86,9 @@ a vague sort it kills
 
 ## Wikilinks load test
 
-[[unplowed mirabilis californica]]
-[[curly-leafed chunga]]
+[[feckless upper jaw]]
+[[scalloped family danaidae]]
+[[averse celiocentesis]]
+[[glamorous fissure of sylvius]]
+[[fin de siecle charcoal]]
+[[backlink load test]]

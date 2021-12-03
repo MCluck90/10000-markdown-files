@@ -87,8 +87,7 @@ Seven jogged my forehead ache.
 
 ## Wikilinks load test
 
-[[boughten corpuscular radiation]]
-[[fifty-six subclass euascomycetes]]
-[[overemotional inattention]]
-[[borderline daniel chester french]]
-[[armillary sickness benefit]]
+[[sleeved rubus chamaemorus]]
+[[congenial tupungatito]]
+[[umbelliform rorippa islandica]]
+[[backlink load test]]

@@ -83,8 +83,7 @@ Yes we needn't try and throw
 
 ## Wikilinks load test
 
-[[weedless butter cookie]]
-[[gripping brachial plexus]]
-[[shelfy street theater]]
-[[czechoslovakian eastern chinquapin]]
-[[bouncing 17 november]]
+[[grovelling family malpighiaceae]]
+[[agreed keratonosus]]
+[[unartistic shiny lyonia]]
+[[backlink load test]]

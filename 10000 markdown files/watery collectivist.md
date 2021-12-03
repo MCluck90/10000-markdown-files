@@ -75,6 +75,6 @@ WHAT.
 
 ## Wikilinks load test
 
-[[assignable soddy]]
-[[coal-burning marlinspike]]
-[[seagirt rickover]]
+[[take-away manawyddan]]
+[[metallic-colored kalantas]]
+[[backlink load test]]

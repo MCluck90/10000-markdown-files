@@ -80,8 +80,6 @@ Seals turtles all else
 
 ## Wikilinks load test
 
-[[imprecise genus calocarpum]]
-[[ratty mother seton]]
-[[unvulcanized arabidopsis thaliana]]
-[[lambent poppy seed]]
-[[tuberculoid aalborg]]
+[[crosshatched virtual memory]]
+[[defenseless crocodile river]]
+[[backlink load test]]

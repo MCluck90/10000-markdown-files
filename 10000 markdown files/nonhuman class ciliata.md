@@ -87,8 +87,9 @@ Sing her French music
 
 ## Wikilinks load test
 
-[[icelandic inside]]
-[[clamatorial hexahedron]]
-[[off-guard genus erithacus]]
-[[grade-appropriate fragaria virginiana]]
-[[anisogametic ness]]
+[[microelectronic spontaneous generation]]
+[[caloric consolation]]
+[[felicitous nicolson]]
+[[wire-haired foredeck]]
+[[manipulative bilharziasis]]
+[[backlink load test]]

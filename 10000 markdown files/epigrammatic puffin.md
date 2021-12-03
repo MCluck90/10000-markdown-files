@@ -86,8 +86,7 @@ holding and turning into that looked
 
 ## Wikilinks load test
 
-[[biddable anzac]]
-[[audio-lingual atomic mass unit]]
-[[telltale arts]]
-[[ferned cirsium heterophylum]]
-[[prosy homeowner]]
+[[algonkian emesis]]
+[[gandhian pekan]]
+[[middle-aged jakob boehm]]
+[[backlink load test]]

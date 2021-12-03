@@ -81,4 +81,6 @@ Visit either way was good English
 
 ## Wikilinks load test
 
-[[wishy-washy arnold palmer]]
+[[whacking le]]
+[[irreducible wyethia amplexicaulis]]
+[[backlink load test]]

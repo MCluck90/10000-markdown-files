@@ -83,8 +83,6 @@ Hand it were placed along
 
 ## Wikilinks load test
 
-[[emphysematous stump spud]]
-[[norwegian alertness]]
-[[youthful tangiers]]
-[[asiatic energy secretary]]
-[[bespectacled genus chamaeleo]]
+[[telltale arts]]
+[[sylvan cranberry]]
+[[backlink load test]]

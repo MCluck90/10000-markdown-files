@@ -76,8 +76,7 @@ See how confusing it
 
 ## Wikilinks load test
 
-[[hair-raising rene antoine ferchault de reaumur]]
-[[anaclitic military censorship]]
-[[paying attention temperature change]]
-[[earlyish suttee]]
-[[utile muscle relaxant]]
+[[sophistic genus desmodium]]
+[[antenatal ethnic slur]]
+[[psychoneurotic alundum]]
+[[backlink load test]]

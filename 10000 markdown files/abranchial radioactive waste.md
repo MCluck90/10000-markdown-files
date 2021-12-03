@@ -83,7 +83,6 @@ Keep your interesting and everybody
 
 ## Wikilinks load test
 
-[[hellenistical bennettitis]]
-[[meddlesome bargello]]
-[[clear-cut grass bacillus]]
-[[venezuelan somerset maugham]]
+[[thirsty bulgarian capital]]
+[[energy-absorbing r-2]]
+[[backlink load test]]

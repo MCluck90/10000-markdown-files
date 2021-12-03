@@ -77,4 +77,7 @@ a mouse she tried
 
 ## Wikilinks load test
 
-[[current macer]]
+[[intact psycholinguist]]
+[[mind-bending euclids second axiom]]
+[[subservient cave]]
+[[backlink load test]]

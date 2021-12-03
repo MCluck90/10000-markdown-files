@@ -84,8 +84,6 @@ Tis the prizes.
 
 ## Wikilinks load test
 
-[[affine erythrina indica]]
-[[gold objective lens]]
-[[comme il faut admission day]]
-[[honeycombed fosbury flop]]
-[[buggy light bread]]
+[[materialistic south west africa]]
+[[unbleached coniferous tree]]
+[[backlink load test]]

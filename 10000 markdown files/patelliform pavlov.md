@@ -89,4 +89,8 @@ Soup of white one else
 
 ## Wikilinks load test
 
-[[two-pronged galliformes]]
+[[near-blind index]]
+[[thalassic edward james muggeridge]]
+[[rife cubbyhole]]
+[[icy false pretence]]
+[[backlink load test]]

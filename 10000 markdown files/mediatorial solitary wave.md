@@ -78,7 +78,5 @@ Please Ma'am is rather
 
 ## Wikilinks load test
 
-[[mutual sursum corda]]
-[[recessionary devils urn]]
-[[textured latten]]
-[[ovine sacrament of the eucharist]]
+[[inexpensive buckingham palace]]
+[[backlink load test]]

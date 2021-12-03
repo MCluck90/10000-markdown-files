@@ -89,5 +89,9 @@ Prizes.
 
 ## Wikilinks load test
 
-[[unsaturated oil palm]]
-[[marred octopus]]
+[[sole wind scale]]
+[[trained exploding cucumber]]
+[[einsteinian himalayan cedar]]
+[[discriminatory phenacomys]]
+[[streamlined busyness]]
+[[backlink load test]]

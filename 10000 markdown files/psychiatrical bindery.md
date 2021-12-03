@@ -82,5 +82,6 @@ CHORUS.
 
 ## Wikilinks load test
 
-[[ranked stablemate]]
-[[double-quick outfall]]
+[[living smoking car]]
+[[catamenial anisoptera]]
+[[backlink load test]]

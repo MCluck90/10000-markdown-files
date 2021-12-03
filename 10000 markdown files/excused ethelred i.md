@@ -87,6 +87,5 @@ WHAT.
 
 ## Wikilinks load test
 
-[[semantic bokmal]]
-[[godlike chemical diabetes]]
-[[pituitary technophile]]
+[[larboard genus linaria]]
+[[backlink load test]]

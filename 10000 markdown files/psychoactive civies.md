@@ -95,5 +95,7 @@ London is something splashing about by
 
 ## Wikilinks load test
 
-[[myalgic wildcatter]]
-[[bar-shaped morrison]]
+[[mousy racing shell]]
+[[aphasic maternity hospital]]
+[[unintelligent genus macropus]]
+[[backlink load test]]

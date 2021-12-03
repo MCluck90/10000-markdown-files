@@ -87,8 +87,6 @@ Dinah'll miss me but as
 
 ## Wikilinks load test
 
-[[savourless swede]]
-[[cram full nervus spinalis]]
-[[sanious ditty bag]]
-[[talismanic leg]]
-[[romani viktor lvovich korchnoi]]
+[[frolicsome auction bridge]]
+[[faithless economic condition]]
+[[backlink load test]]

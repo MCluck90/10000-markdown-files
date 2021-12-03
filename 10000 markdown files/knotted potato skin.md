@@ -78,8 +78,5 @@ Consider my own mind
 
 ## Wikilinks load test
 
-[[serial exculpation]]
-[[marred octopus]]
-[[aversive ladylikeness]]
-[[frantic makeready]]
-[[metaphoric enlisting]]
+[[shortsighted creeping snowberry]]
+[[backlink load test]]

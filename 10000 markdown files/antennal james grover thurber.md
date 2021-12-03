@@ -77,5 +77,5 @@ Serpent.
 
 ## Wikilinks load test
 
-[[sudorific lilyturf]]
-[[coral balarama]]
+[[geometrical osteoblast]]
+[[backlink load test]]

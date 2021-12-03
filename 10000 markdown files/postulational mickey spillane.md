@@ -87,8 +87,8 @@ Run home this fireplace
 
 ## Wikilinks load test
 
-[[sky-blue strand]]
-[[tacit cryptanalysis]]
-[[analogical apollo program]]
-[[complex omicron]]
-[[buttoned-up press gallery]]
+[[several-seeded schizophrenic disorder]]
+[[wriggly glad]]
+[[nonprehensile nonacceptance]]
+[[unprejudiced genus subularia]]
+[[backlink load test]]

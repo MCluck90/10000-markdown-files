@@ -84,6 +84,6 @@ She'd soon left the sands
 
 ## Wikilinks load test
 
-[[single-barreled cranberry juice]]
-[[roofless landing strip]]
-[[coreferential saunter]]
+[[buddhist cooperative]]
+[[scaphoid desert sand verbena]]
+[[backlink load test]]

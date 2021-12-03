@@ -84,6 +84,5 @@ While the pig-baby was
 
 ## Wikilinks load test
 
-[[filial capra hircus]]
-[[true-false closed-loop system]]
-[[hazardous klutz]]
+[[confident miltown]]
+[[backlink load test]]

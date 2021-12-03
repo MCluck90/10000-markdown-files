@@ -86,6 +86,7 @@ IF you ARE OLD FATHER
 
 ## Wikilinks load test
 
-[[wiped out charles frederick menninger]]
-[[inoffensive piper nigrum]]
-[[appreciable grad]]
+[[handmade eastern hemlock]]
+[[adaptational hijinks]]
+[[peritrichous nor-q-d]]
+[[backlink load test]]

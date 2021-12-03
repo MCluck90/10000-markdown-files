@@ -85,6 +85,9 @@ Thank you advance twice half the
 
 ## Wikilinks load test
 
-[[alone double first]]
-[[thoriated warder]]
-[[flighted family moraceae]]
+[[unsounded locknut]]
+[[itinerant latchkey child]]
+[[upstage chocolate truffle]]
+[[bully billy sunday]]
+[[boxed-in jumpiness]]
+[[backlink load test]]

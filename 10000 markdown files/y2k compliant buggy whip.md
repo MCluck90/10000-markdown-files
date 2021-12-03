@@ -89,7 +89,6 @@ William's conduct at present at this
 
 ## Wikilinks load test
 
-[[diarrhoeic demotic]]
-[[accoutred stephen spender]]
-[[half-evergreen family taeniidae]]
-[[steamy geological fault]]
+[[amoebous disease of the neuromuscular junction]]
+[[cultivatable autosomal recessive disease]]
+[[backlink load test]]

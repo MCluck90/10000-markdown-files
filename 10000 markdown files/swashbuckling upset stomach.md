@@ -93,5 +93,5 @@ After these were INSIDE
 
 ## Wikilinks load test
 
-[[precise punk]]
-[[motiveless homeland]]
+[[self-important scarlet musk flower]]
+[[backlink load test]]

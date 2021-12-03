@@ -89,5 +89,8 @@ Up lazy thing with
 
 ## Wikilinks load test
 
-[[bahamian wyeth]]
-[[savourless claustrophobe]]
+[[evitable wood garlic]]
+[[fisheye prima donna]]
+[[denumerable alpine bearberry]]
+[[foremost peacock ore]]
+[[backlink load test]]

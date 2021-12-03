@@ -74,8 +74,5 @@ Luckily for the Conqueror
 
 ## Wikilinks load test
 
-[[vernal plaintiveness]]
-[[alphabetised genus strepsiceros]]
-[[preponderating sinus coronarius]]
-[[overbearing serif]]
-[[alphabetised genus strepsiceros]]
+[[a posteriori corrigendum]]
+[[backlink load test]]

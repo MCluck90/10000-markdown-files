@@ -86,8 +86,6 @@ CHORUS.
 
 ## Wikilinks load test
 
-[[pleural balata]]
-[[impaired bush vetch]]
-[[antisemitic humber bridge]]
-[[inappropriate anemone riparia]]
-[[unsounded napoleon bonaparte]]
+[[fine causation]]
+[[last-place american oriole]]
+[[backlink load test]]

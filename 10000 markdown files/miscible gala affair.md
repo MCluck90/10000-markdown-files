@@ -75,6 +75,6 @@ CHORUS.
 
 ## Wikilinks load test
 
-[[vocational closed primary]]
-[[colicky auto-changer]]
-[[undated arundinaria gigantea]]
+[[bone-covered modeling]]
+[[amnionic jelly egg]]
+[[backlink load test]]

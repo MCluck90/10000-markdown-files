@@ -91,6 +91,8 @@ Stupid things of you what
 
 ## Wikilinks load test
 
-[[malformed sheep dip]]
-[[gi arianism]]
-[[orthodontic birth]]
+[[audile osmunda cinnamonea]]
+[[impeded kwakiutl]]
+[[thick-skinned sutural bone]]
+[[amateurish bagger]]
+[[backlink load test]]

@@ -81,8 +81,6 @@ ALICE'S LOVE.
 
 ## Wikilinks load test
 
-[[sharp-cornered western gray squirrel]]
-[[manufactured orchestiidae]]
-[[implacable vamper]]
-[[out of true leucotomy]]
-[[unbeknownst kin]]
+[[ultimo numidia]]
+[[drupaceous meitnerium]]
+[[backlink load test]]

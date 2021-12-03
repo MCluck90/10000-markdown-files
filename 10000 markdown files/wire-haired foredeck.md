@@ -81,4 +81,7 @@ Alice kept all what CAN all
 
 ## Wikilinks load test
 
-[[inertial hot potato]]
+[[fiducial comoros]]
+[[majuscule 2]]
+[[flukey feudatory]]
+[[backlink load test]]

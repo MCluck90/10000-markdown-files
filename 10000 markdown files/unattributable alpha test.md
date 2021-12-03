@@ -84,7 +84,9 @@ _I_ don't put my
 
 ## Wikilinks load test
 
-[[horrid atomic number 15]]
-[[basaltic dashboard]]
-[[araceous phylogeny]]
-[[sticking petit point]]
+[[biggish genus volvox]]
+[[fossiliferous darner]]
+[[westerly genus angrecum]]
+[[blue-blooded genus ptilonorhynchus]]
+[[prohibitive hypoglossal nerve]]
+[[backlink load test]]

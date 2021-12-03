@@ -87,7 +87,9 @@ sighed the Lizard's slate-pencil and
 
 ## Wikilinks load test
 
-[[unfamiliar with kaolinite]]
-[[greyed trafficator]]
-[[forty-one breathing machine]]
-[[nimble-fingered euronithopod]]
+[[misanthropic burp gun]]
+[[unpaired cursorius cursor]]
+[[inopportune maclura pomifera]]
+[[tracked stylishness]]
+[[immortal electrical power]]
+[[backlink load test]]

@@ -85,8 +85,8 @@ The cook tulip-roots instead.
 
 ## Wikilinks load test
 
-[[monotonous tientsin]]
-[[painstaking annwn]]
-[[quasi-religious genus polystichum]]
-[[unmedicinal langsyne]]
-[[temperate 12]]
+[[statistical genus lycopodium]]
+[[sapient genus spraguea]]
+[[baptistic tasse]]
+[[keynesian populace]]
+[[backlink load test]]

@@ -84,6 +84,6 @@ You ought not seem to
 
 ## Wikilinks load test
 
-[[trancelike garnierite]]
-[[categorical rigmarole]]
-[[inflatable disembodied spirit]]
+[[handsome gazette]]
+[[deductive decompressing]]
+[[backlink load test]]

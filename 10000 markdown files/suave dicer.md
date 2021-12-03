@@ -89,7 +89,8 @@ It's the Lizard Bill
 
 ## Wikilinks load test
 
-[[put-up tuscaloosa]]
-[[informed specs]]
-[[partial galago]]
-[[potent criollo]]
+[[one-sided fiddlestick]]
+[[italic horseshow]]
+[[mutable equisetales]]
+[[heart-whole chukchi peninsula]]
+[[backlink load test]]

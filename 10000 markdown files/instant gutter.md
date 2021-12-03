@@ -77,7 +77,8 @@ An obstacle that looked up
 
 ## Wikilinks load test
 
-[[hedged quercus wizlizenii]]
-[[thermoelectric henri toulouse-lautrec]]
-[[nonpregnant genus pueraria]]
-[[eccentric unavoidability]]
+[[extortionate genus funka]]
+[[speculative platycephalidae]]
+[[racemose genus sciara]]
+[[itinerant latchkey child]]
+[[backlink load test]]

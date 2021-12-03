@@ -88,8 +88,5 @@ added Come let's try to
 
 ## Wikilinks load test
 
-[[heartfelt kitchenware]]
-[[disadvantageous anasazi]]
-[[dorsoventral tripper]]
-[[petrous sterculia gum]]
-[[velvety-haired hemizygous vein]]
+[[soigne pregnancy]]
+[[backlink load test]]

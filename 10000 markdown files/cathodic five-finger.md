@@ -88,8 +88,6 @@ they'll remember them said
 
 ## Wikilinks load test
 
-[[censorious dusk]]
-[[inedible william jennings bryan]]
-[[good-hearted man jack]]
-[[cytophotometric advance]]
-[[button-shaped daughter-in-law]]
+[[acerose freedom rider]]
+[[handless climbing maidenhair]]
+[[backlink load test]]

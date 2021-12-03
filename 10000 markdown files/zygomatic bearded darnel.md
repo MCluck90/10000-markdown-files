@@ -89,7 +89,9 @@ Tut tut child.
 
 ## Wikilinks load test
 
-[[weaponless giraffidae]]
-[[propulsive paviour]]
-[[ex post facto variorum edition]]
-[[inertial hot potato]]
+[[squeaking aphakic]]
+[[batrachian cd drive]]
+[[lean pyxidium]]
+[[butterfingered universalism]]
+[[unassisted mongolic language]]
+[[backlink load test]]

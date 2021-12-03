@@ -76,6 +76,6 @@ Reeling and said and whiskers.
 
 ## Wikilinks load test
 
-[[declarable advocator]]
-[[sluttish stockholdings]]
-[[rectangular psephologist]]
+[[blabbermouthed privatization]]
+[[agelong edger]]
+[[backlink load test]]

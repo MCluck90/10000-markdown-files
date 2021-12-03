@@ -82,6 +82,5 @@ Only a present at
 
 ## Wikilinks load test
 
-[[addlebrained refrigerator car]]
-[[snow-blind garage sale]]
-[[appreciative chermidae]]
+[[accretionary pansy]]
+[[backlink load test]]

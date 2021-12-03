@@ -83,7 +83,5 @@ Now I'll write out into
 
 ## Wikilinks load test
 
-[[anaclitic military censorship]]
-[[unblinking twenty-two rifle]]
-[[major noontide]]
-[[cosmogonical teleologist]]
+[[shelvy pliny]]
+[[backlink load test]]

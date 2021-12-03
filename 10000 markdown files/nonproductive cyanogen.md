@@ -75,6 +75,5 @@ Found IT DOES THE KING AND
 
 ## Wikilinks load test
 
-[[framed greaseball]]
-[[subtractive staple gun]]
-[[surmountable femtometer]]
+[[hair-shirt blackfriar]]
+[[backlink load test]]

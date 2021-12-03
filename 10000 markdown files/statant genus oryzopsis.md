@@ -79,6 +79,6 @@ But why I kept
 
 ## Wikilinks load test
 
-[[pink-purple landing net]]
-[[uncontested surveying]]
-[[broody marsh buggy]]
+[[psychiatrical bindery]]
+[[garrulous bridge hand]]
+[[backlink load test]]

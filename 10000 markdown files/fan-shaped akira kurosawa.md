@@ -86,8 +86,7 @@ Besides SHE'S she turned to know
 
 ## Wikilinks load test
 
-[[opencut schreibers aster]]
-[[vapourised ca]]
-[[subtractive witch hazel]]
-[[salubrious cappadocia]]
-[[bicorned 1830s]]
+[[redolent tachyglossidae]]
+[[double-breasted giant granadilla]]
+[[indecisive diva]]
+[[backlink load test]]

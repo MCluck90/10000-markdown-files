@@ -80,8 +80,9 @@ Fetch me who at all
 
 ## Wikilinks load test
 
-[[half-baked arctic moss]]
-[[alphabetised genus strepsiceros]]
-[[uninformed wheelchair]]
-[[strong-boned chenopodium rubrum]]
-[[fifty-six vlaminck]]
+[[ionian daisywheel printer]]
+[[unasked adrenarche]]
+[[single-humped catchment basin]]
+[[eel-shaped sneezer]]
+[[yellow-tinged assayer]]
+[[backlink load test]]

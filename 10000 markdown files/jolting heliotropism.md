@@ -80,8 +80,9 @@ one finger and Pepper mostly
 
 ## Wikilinks load test
 
-[[alligatored japanese radish]]
-[[copper-bottomed boar]]
-[[in the public eye forceps]]
-[[hard-of-hearing mansi]]
-[[thalassic edward james muggeridge]]
+[[labor-intensive cold feet]]
+[[cometary gregory vii]]
+[[noxious detective agency]]
+[[celibate burthen]]
+[[lively cloud seeder]]
+[[backlink load test]]

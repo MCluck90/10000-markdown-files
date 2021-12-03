@@ -85,8 +85,8 @@ That'll be as its
 
 ## Wikilinks load test
 
-[[catabolic rhizoid]]
-[[fifty-one adornment]]
-[[saw-like statistical mechanics]]
-[[pet arcus]]
-[[classifiable genus nuphar]]
+[[petalless andreas vesalius]]
+[[transformed pussley]]
+[[fifteenth isogonal line]]
+[[ciliate vancomycin]]
+[[backlink load test]]

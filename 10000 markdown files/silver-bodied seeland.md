@@ -90,6 +90,9 @@ catch hold of one
 
 ## Wikilinks load test
 
-[[classical lammergeier]]
-[[choosy hosiery]]
-[[chirpy ramjet engine]]
+[[tortured spasm]]
+[[sharp-angled dominican mahogany]]
+[[unplayable family haloragidaceae]]
+[[wily chimney breast]]
+[[saccadic equivalence]]
+[[backlink load test]]

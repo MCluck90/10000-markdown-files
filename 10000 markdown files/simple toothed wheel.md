@@ -93,7 +93,5 @@ sh.
 
 ## Wikilinks load test
 
-[[archaeozoic pillowcase]]
-[[thirty-ninth thankfulness]]
-[[ingenuous tapioca pudding]]
-[[mediaeval three-dimensionality]]
+[[nonmetallic jamestown]]
+[[backlink load test]]

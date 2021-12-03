@@ -86,6 +86,7 @@ IF you fond of footsteps in
 
 ## Wikilinks load test
 
-[[dicey 24-karat gold]]
-[[impure ash cake]]
-[[irrecoverable wonderer]]
+[[mere aftershaft]]
+[[mere aftershaft]]
+[[casteless pelvis]]
+[[backlink load test]]

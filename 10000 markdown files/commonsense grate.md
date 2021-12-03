@@ -83,4 +83,9 @@ Hush.
 
 ## Wikilinks load test
 
-[[rosy-purple pace car]]
+[[cholinergic stakes]]
+[[white-collar million floating point operations per second]]
+[[eyeless david roland smith]]
+[[nonsurgical teapot dome scandal]]
+[[past limiting]]
+[[backlink load test]]

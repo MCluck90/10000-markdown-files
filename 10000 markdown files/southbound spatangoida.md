@@ -92,6 +92,8 @@ shouted at any that better not
 
 ## Wikilinks load test
 
-[[polygamous amianthum]]
-[[ectodermic snakeroot]]
-[[wily james joyce]]
+[[endogamic micrometer]]
+[[best necrobiosis lipoidica]]
+[[steamy georges clemenceau]]
+[[wooden-headed nonfeasance]]
+[[backlink load test]]

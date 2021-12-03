@@ -80,7 +80,7 @@ Same as all would seem to
 
 ## Wikilinks load test
 
-[[chanceful donatism]]
-[[consensual royal flush]]
-[[articled hesperiphona vespertina]]
-[[nasopharyngeal 1728]]
+[[botuliform symphilid]]
+[[umbrageous hospital chaplain]]
+[[x-linked solicitor]]
+[[backlink load test]]

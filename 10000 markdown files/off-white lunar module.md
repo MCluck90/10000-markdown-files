@@ -84,6 +84,5 @@ Who cares for the most extraordinary
 
 ## Wikilinks load test
 
-[[futurist portable computer]]
-[[dark-coloured pall mall]]
-[[isoclinal accusative]]
+[[stannous george segal]]
+[[backlink load test]]

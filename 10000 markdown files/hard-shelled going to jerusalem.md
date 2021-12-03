@@ -90,5 +90,9 @@ Stupid things that person of saying
 
 ## Wikilinks load test
 
-[[bibliographic allium sphaerocephalum]]
-[[washy moxie plum]]
+[[ice-cold roger bannister]]
+[[gloomful swedish mile]]
+[[flirtatious ploy]]
+[[lxi quiver]]
+[[bone-covered modeling]]
+[[backlink load test]]

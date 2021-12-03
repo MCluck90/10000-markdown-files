@@ -90,5 +90,7 @@ Coming in but out-of the-way
 
 ## Wikilinks load test
 
-[[dearly-won erotica]]
-[[permeant dirty money]]
+[[songful telopea speciosissima]]
+[[well-preserved glory pea]]
+[[white-lipped spiny anteater]]
+[[backlink load test]]

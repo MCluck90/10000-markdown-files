@@ -84,7 +84,7 @@ No they're like that had any
 
 ## Wikilinks load test
 
-[[godlike chemical diabetes]]
-[[silky-haired bald eagle]]
-[[blue-blooded genus ptilonorhynchus]]
-[[multivariate cancer]]
+[[unseductive pork barrel]]
+[[faustian corkboard]]
+[[extensional labial vein]]
+[[backlink load test]]

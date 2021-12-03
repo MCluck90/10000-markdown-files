@@ -75,7 +75,5 @@ it kills all can really.
 
 ## Wikilinks load test
 
-[[perilous john milton]]
-[[numeral phaseolus caracalla]]
-[[geared burlap bag]]
-[[paniculate gastrogavage]]
+[[discourteous dapsang]]
+[[backlink load test]]

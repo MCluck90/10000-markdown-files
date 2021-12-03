@@ -87,6 +87,6 @@ Back to half-past one could
 
 ## Wikilinks load test
 
-[[tympanitic locust]]
-[[comradely inflation therapy]]
-[[inertial leatherfish]]
+[[conjugal prime number]]
+[[hooked genus lagothrix]]
+[[backlink load test]]

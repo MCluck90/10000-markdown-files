@@ -81,6 +81,6 @@ Off Nonsense.
 
 ## Wikilinks load test
 
-[[political desk phone]]
-[[vast sebs]]
-[[washy moxie plum]]
+[[corrugated megalosaurus]]
+[[swollen-headed insightfulness]]
+[[backlink load test]]

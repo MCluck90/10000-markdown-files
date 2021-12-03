@@ -80,7 +80,5 @@ RABBIT engraved upon tiptoe and Derision.
 
 ## Wikilinks load test
 
-[[finable brittle star]]
-[[coin-operated nervus vestibulocochlearis]]
-[[southerly bumpiness]]
-[[tortured spasm]]
+[[sensible genus bowiea]]
+[[backlink load test]]

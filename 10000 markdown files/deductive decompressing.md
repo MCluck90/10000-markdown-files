@@ -84,4 +84,9 @@ WHAT are YOU ARE
 
 ## Wikilinks load test
 
-[[cuspated full professor]]
+[[inseparable rolf]]
+[[momentary gironde]]
+[[undocumented she-goat]]
+[[unarbitrary humulus]]
+[[heralded chlorura]]
+[[backlink load test]]

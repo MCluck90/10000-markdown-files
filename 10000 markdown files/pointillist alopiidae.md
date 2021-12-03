@@ -80,8 +80,6 @@ sh.
 
 ## Wikilinks load test
 
-[[sunless russell]]
-[[uncategorized rugged individualism]]
-[[contrasty pterocarpus santalinus]]
-[[unfearing samia walkeri]]
-[[smart harness]]
+[[wide-eyed diurnal parallax]]
+[[card-playing genus mesembryanthemum]]
+[[backlink load test]]

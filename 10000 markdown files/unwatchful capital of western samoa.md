@@ -91,5 +91,5 @@ Sure it into it I
 
 ## Wikilinks load test
 
-[[piddling capital of guinea-bissau]]
-[[diagrammatic duplex]]
+[[sea-level broth]]
+[[backlink load test]]

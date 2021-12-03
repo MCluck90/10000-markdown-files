@@ -85,6 +85,5 @@ Shan't said nothing else but if
 
 ## Wikilinks load test
 
-[[disillusioned balanoposthitis]]
-[[heartfelt kitchenware]]
-[[feebleminded department of physics]]
+[[coterminous moon]]
+[[backlink load test]]

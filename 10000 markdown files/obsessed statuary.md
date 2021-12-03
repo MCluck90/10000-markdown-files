@@ -80,8 +80,5 @@ sh.
 
 ## Wikilinks load test
 
-[[unforgiving velocipede]]
-[[bad tn]]
-[[grey-white news event]]
-[[succulent saxifraga oppositifolia]]
-[[predisposed pinhead]]
+[[real colon]]
+[[backlink load test]]

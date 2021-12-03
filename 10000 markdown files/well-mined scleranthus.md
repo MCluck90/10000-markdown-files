@@ -76,5 +76,5 @@ IF you incessantly stand down
 
 ## Wikilinks load test
 
-[[showery paragrapher]]
-[[choreographic acroclinium]]
+[[undigested octopodidae]]
+[[backlink load test]]

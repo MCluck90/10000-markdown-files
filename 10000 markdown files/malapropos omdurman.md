@@ -86,8 +86,8 @@ I'll tell him as loud
 
 ## Wikilinks load test
 
-[[populous corticosteroid]]
-[[severed juvenile body]]
-[[ineluctable szilard]]
-[[formalistic cargo cult]]
-[[extrinsic hepaticae]]
+[[unceremonial stovepipe iron]]
+[[impotent cercidiphyllum japonicum]]
+[[harum-scarum salp]]
+[[certified customs service]]
+[[backlink load test]]

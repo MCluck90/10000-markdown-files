@@ -76,8 +76,8 @@ HE went out of
 
 ## Wikilinks load test
 
-[[youthful tangiers]]
-[[coreferential saunter]]
-[[asiatic air force academy]]
-[[magnified muharram]]
-[[exigent euphorbia exigua]]
+[[hard up genus podocarpus]]
+[[overawed pseudoscorpiones]]
+[[inanimate ceiba pentandra]]
+[[anthophilous amide]]
+[[backlink load test]]

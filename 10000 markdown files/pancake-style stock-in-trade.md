@@ -79,7 +79,9 @@ Cheshire Puss she too close
 
 ## Wikilinks load test
 
-[[happy bethel]]
-[[syncretical coefficient of self induction]]
-[[in force pantomime]]
-[[straightaway personal line of credit]]
+[[wonder-struck tussilago farfara]]
+[[al dente downside]]
+[[combat-ready navigator]]
+[[civil latin alphabet]]
+[[yugoslavian misreading]]
+[[backlink load test]]

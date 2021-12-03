@@ -90,8 +90,7 @@ Right as this here
 
 ## Wikilinks load test
 
-[[mint amaranthus graecizans]]
-[[cabalistic machilid]]
-[[avascular star of the veldt]]
-[[sterile drumlin]]
-[[architectonic princeton]]
+[[fumbling grosbeak]]
+[[downtown biohazard]]
+[[armour-clad neckar]]
+[[backlink load test]]

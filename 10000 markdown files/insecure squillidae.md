@@ -89,4 +89,8 @@ Explain all what Latitude was for
 
 ## Wikilinks load test
 
-[[pumped-up packing nut]]
+[[addressed object code]]
+[[wise to canada lynx]]
+[[fatless coffee shop]]
+[[entrancing exemption]]
+[[backlink load test]]

@@ -85,7 +85,5 @@ RABBIT engraved upon them
 
 ## Wikilinks load test
 
-[[purple-blue equal opportunity]]
-[[uninominal suit]]
-[[unaccustomed basic principle]]
-[[ecologic stingaree-bush]]
+[[less-traveled igd]]
+[[backlink load test]]

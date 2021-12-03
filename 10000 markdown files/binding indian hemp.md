@@ -76,8 +76,8 @@ IF I growl the refreshments.
 
 ## Wikilinks load test
 
-[[crural dead language]]
-[[mind-blowing woodshed]]
-[[subsidized algorithmic program]]
-[[buff-coloured denotation]]
-[[overlooking solar dish]]
+[[ambagious temperateness]]
+[[yellow-tinged hepatomegaly]]
+[[lead-free som]]
+[[at sea actors assistant]]
+[[backlink load test]]

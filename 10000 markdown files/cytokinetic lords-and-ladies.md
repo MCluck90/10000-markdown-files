@@ -91,8 +91,8 @@ There ought not as steady
 
 ## Wikilinks load test
 
-[[gold kwacha]]
-[[reserved tweediness]]
-[[succulent small cell carcinoma]]
-[[appreciable grad]]
-[[purposeful genus mammuthus]]
+[[low-lying overbite]]
+[[acidulent rana clamitans]]
+[[atrophic police]]
+[[darned ethel merman]]
+[[backlink load test]]

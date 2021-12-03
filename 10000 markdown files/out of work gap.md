@@ -88,5 +88,9 @@ ALL RETURNED FROM HIM
 
 ## Wikilinks load test
 
-[[extradural penn]]
-[[underclothed magician]]
+[[sabbatical gypsywort]]
+[[self-forgetful elucidation]]
+[[short-stalked martes americana]]
+[[calcitic negativism]]
+[[hand-held kaffir pox]]
+[[backlink load test]]

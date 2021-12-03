@@ -85,6 +85,8 @@ Perhaps it down that
 
 ## Wikilinks load test
 
-[[hapless x-linked scid]]
-[[unscrupulous housing project]]
-[[crenulated consonantal system]]
+[[crimson passing tone]]
+[[liplike umbellifer]]
+[[assonant eyre]]
+[[panicked tricholoma venenata]]
+[[backlink load test]]

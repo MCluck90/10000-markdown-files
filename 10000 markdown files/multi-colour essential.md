@@ -86,8 +86,8 @@ asked triumphantly.
 
 ## Wikilinks load test
 
-[[comose fountain grass]]
-[[ordinal big sioux river]]
-[[slav intima]]
-[[burbling tianjin]]
-[[encroaching erasable programmable read-only memory]]
+[[onomatopoetic venality]]
+[[beakless heat flash]]
+[[insular wahabism]]
+[[unreportable gelignite]]
+[[backlink load test]]

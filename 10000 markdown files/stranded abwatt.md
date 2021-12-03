@@ -87,8 +87,5 @@ As if not seem to
 
 ## Wikilinks load test
 
-[[decreasing monotonic trompe loeil]]
-[[blastospheric combustible material]]
-[[supportive callitris parlatorei]]
-[[unlighted word of farewell]]
-[[isochronous gspc]]
+[[purplish-brown andira]]
+[[backlink load test]]

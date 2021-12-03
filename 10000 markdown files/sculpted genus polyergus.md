@@ -78,7 +78,5 @@ that only by far below.
 
 ## Wikilinks load test
 
-[[hemiparasitic tactical maneuver]]
-[[palpitant gasterosteus aculeatus]]
-[[pantropical peripheral device]]
-[[gilbertian bowling]]
+[[tricked-out mirish]]
+[[backlink load test]]

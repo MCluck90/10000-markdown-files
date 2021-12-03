@@ -82,5 +82,9 @@ ARE OLD FATHER WILLIAM
 
 ## Wikilinks load test
 
-[[waiting basso]]
-[[achromic soda water]]
+[[yellowed lord high chancellor]]
+[[unprofessional dyirbal]]
+[[hardhearted erythroxylon]]
+[[horrid mysoline]]
+[[diffusing torch song]]
+[[backlink load test]]

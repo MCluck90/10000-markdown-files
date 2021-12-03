@@ -83,8 +83,7 @@ Stuff and such dainties would feel
 
 ## Wikilinks load test
 
-[[vituperative genus pinicola]]
-[[unchecked moustache]]
-[[uncarved yerupaja]]
-[[speculative subheading]]
-[[minty homyel]]
+[[carmelite nitrostat]]
+[[other sexton]]
+[[regional whirligig]]
+[[backlink load test]]

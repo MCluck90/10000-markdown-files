@@ -77,6 +77,6 @@ Pat.
 
 ## Wikilinks load test
 
-[[mexican stellers sea lion]]
-[[arcadian sugar beet]]
-[[testate hardening of the arteries]]
+[[decreasing monotonic croat]]
+[[quadrisonic sls]]
+[[backlink load test]]

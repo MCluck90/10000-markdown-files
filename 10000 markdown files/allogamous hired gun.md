@@ -83,4 +83,8 @@ _I_ shan't be two it
 
 ## Wikilinks load test
 
-[[unthoughtful claxon]]
+[[thermoelectric henri toulouse-lautrec]]
+[[anal retentive count ferdinand von zeppelin]]
+[[slurred onion]]
+[[gushy bottom rot]]
+[[backlink load test]]

@@ -92,6 +92,7 @@ Did you learn lessons
 
 ## Wikilinks load test
 
-[[bolometric tiresias]]
-[[planar innovator]]
-[[oppositive volvocaceae]]
+[[grapelike anaclisis]]
+[[rabbinic lead tetraethyl]]
+[[embossed teetotum]]
+[[backlink load test]]

@@ -90,8 +90,8 @@ Once said on again as ever
 
 ## Wikilinks load test
 
-[[guarded strip cropping]]
-[[inflected genus nestor]]
-[[x-linked solicitor]]
-[[tegular var]]
-[[slimy cleanthes]]
+[[silvery-blue chicle]]
+[[lavish styler]]
+[[genitourinary fourth deck]]
+[[virginal brittany spaniel]]
+[[backlink load test]]

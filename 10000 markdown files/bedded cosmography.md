@@ -85,6 +85,6 @@ I'M not here poor little
 
 ## Wikilinks load test
 
-[[calculous maui]]
-[[tribadistic braincase]]
-[[delicate fulminate]]
+[[affixal diplopoda]]
+[[custom-made genus andropogon]]
+[[backlink load test]]

@@ -87,7 +87,7 @@ Where are ferrets.
 
 ## Wikilinks load test
 
-[[splenic molding]]
-[[breasted bowstring hemp]]
-[[fluent dph]]
-[[selfless lower court]]
+[[insupportable train oil]]
+[[unelaborate sundew plant]]
+[[single-bedded freeholder]]
+[[backlink load test]]

@@ -82,7 +82,8 @@ Ahem.
 
 ## Wikilinks load test
 
-[[sinistrorsal genus onobrychis]]
-[[deweyan matronymic]]
-[[short-term eared grebe]]
-[[ninety-one chortle]]
+[[freehanded neomys]]
+[[tortious hypothermia]]
+[[decapitated aeneas]]
+[[unlaurelled amygdalaceae]]
+[[backlink load test]]

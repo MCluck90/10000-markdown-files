@@ -85,5 +85,9 @@ Begin at me giddy.
 
 ## Wikilinks load test
 
-[[grief-stricken autumn crocus]]
-[[wedged phantom limb]]
+[[personable strawberry tomato]]
+[[confederate cheetah]]
+[[slangy bottlenose dolphin]]
+[[biaural paleostriatum]]
+[[glutted sinai desert]]
+[[backlink load test]]

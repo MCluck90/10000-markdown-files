@@ -90,6 +90,5 @@ SAID I then and close
 
 ## Wikilinks load test
 
-[[latin-american ukrayina]]
-[[motherless bubble and squeak]]
-[[sectioned fairbanks]]
+[[warm-blooded seneca lake]]
+[[backlink load test]]

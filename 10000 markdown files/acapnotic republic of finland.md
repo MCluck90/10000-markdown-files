@@ -92,7 +92,5 @@ Nothing whatever happens when they
 
 ## Wikilinks load test
 
-[[bioluminescent wildebeest]]
-[[frank agendum]]
-[[zimbabwean squirmer]]
-[[prohibitive hypoglossal nerve]]
+[[drawn anal phase]]
+[[backlink load test]]

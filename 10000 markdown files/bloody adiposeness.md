@@ -85,8 +85,9 @@ My dear how delightful thing
 
 ## Wikilinks load test
 
-[[denotative plight]]
-[[sectioned fairbanks]]
-[[celibate suksdorfia]]
-[[monthly genus gentiana]]
-[[umbrageous hospital chaplain]]
+[[ferial carpinus caroliniana]]
+[[standardised frisbee]]
+[[dyadic buddy]]
+[[twinkly publishing company]]
+[[systematic libertarian]]
+[[backlink load test]]

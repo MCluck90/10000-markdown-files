@@ -83,7 +83,5 @@ they'll do once while
 
 ## Wikilinks load test
 
-[[ring-shaped petroleum]]
-[[flagellate centrosome]]
-[[olde worlde jewel orchid]]
-[[associable psidium cattleianum]]
+[[contrasty pterocarpus santalinus]]
+[[backlink load test]]

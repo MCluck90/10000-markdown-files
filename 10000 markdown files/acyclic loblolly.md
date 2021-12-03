@@ -75,6 +75,9 @@ Poor Alice coming.
 
 ## Wikilinks load test
 
-[[showery clockwise rotation]]
-[[spheroidal broiling]]
-[[sporogenous simultaneity]]
+[[dwarfish lead time]]
+[[empowered family spheniscidae]]
+[[massive pahlavi]]
+[[hebdomadary phaeton]]
+[[sulphuric trioxide]]
+[[backlink load test]]

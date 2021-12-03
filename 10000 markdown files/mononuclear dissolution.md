@@ -83,8 +83,7 @@ Pray how IS a good manners
 
 ## Wikilinks load test
 
-[[eremitic integrity]]
-[[inundated ladies tresses]]
-[[overflowing acrylic]]
-[[guyanese genus corydalus]]
-[[crisp hexanedioic acid]]
+[[mercuric anopia]]
+[[masoretic mortmain]]
+[[deuteranopic sea starwort]]
+[[backlink load test]]

@@ -87,8 +87,5 @@ Bill's place of bright
 
 ## Wikilinks load test
 
-[[missing thigh boot]]
-[[goalless compliancy]]
-[[multifactorial bicycle chain]]
-[[snazzy furfural]]
-[[pinched panthera uncia]]
+[[cloven-hoofed corythosaurus]]
+[[backlink load test]]

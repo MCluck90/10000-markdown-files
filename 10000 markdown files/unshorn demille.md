@@ -91,8 +91,5 @@ Mine is this ointment
 
 ## Wikilinks load test
 
-[[irreligious rg]]
-[[deflated sanskrit]]
-[[comic packing plant]]
-[[roaring giorgio de chirico]]
-[[cast-off lebanese]]
+[[delirious gene]]
+[[backlink load test]]

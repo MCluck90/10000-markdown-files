@@ -83,8 +83,8 @@ Everything is Dinah was out again
 
 ## Wikilinks load test
 
-[[unfueled flare path]]
-[[unliveried toothbrush tree]]
-[[metaphoric enlisting]]
-[[smouldering cavity resonator]]
-[[equiangular tallith]]
+[[unfading bodily cavity]]
+[[tipsy petticoat]]
+[[frugal ophryon]]
+[[rodlike stench bomb]]
+[[backlink load test]]

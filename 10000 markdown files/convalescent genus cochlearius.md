@@ -86,5 +86,7 @@ Ten hours a frightened Mouse
 
 ## Wikilinks load test
 
-[[fashioned andelmin]]
-[[protruding porphyria]]
+[[ludicrous castilian]]
+[[platinum-blonde slavonic]]
+[[corrugated megalosaurus]]
+[[backlink load test]]

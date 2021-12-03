@@ -83,8 +83,6 @@ Your hair has won.
 
 ## Wikilinks load test
 
-[[ebony peke]]
-[[single-barrelled intestine]]
-[[deep pennyroyal oil]]
-[[erect genus ephippiorhynchus]]
-[[intergalactic accusal]]
+[[unadventurous corkwood]]
+[[unrecognized bob hope]]
+[[backlink load test]]

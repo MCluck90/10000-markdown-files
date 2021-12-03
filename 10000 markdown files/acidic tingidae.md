@@ -90,8 +90,6 @@ How do hope I used up
 
 ## Wikilinks load test
 
-[[gripping brachial plexus]]
-[[accredited fructidor]]
-[[discretional crataegus apiifolia]]
-[[mesic key]]
-[[getable sewage works]]
+[[deuteranopic sea starwort]]
+[[hypertonic rubia]]
+[[backlink load test]]

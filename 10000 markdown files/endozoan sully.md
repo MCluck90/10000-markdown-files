@@ -85,5 +85,9 @@ Silence in less than
 
 ## Wikilinks load test
 
-[[amerindic edible-podded pea]]
-[[anastomotic ear]]
+[[unsoluble colombo]]
+[[coordinated north dakotan]]
+[[profligate renegade state]]
+[[vegetational evergreen]]
+[[totalitarian zygomycotina]]
+[[backlink load test]]

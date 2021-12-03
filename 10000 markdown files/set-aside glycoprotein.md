@@ -87,6 +87,5 @@ Tis so mad.
 
 ## Wikilinks load test
 
-[[elderly calliphora]]
-[[unsounded locknut]]
-[[accumulated mysoline]]
+[[obliterable mercouri]]
+[[backlink load test]]

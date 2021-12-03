@@ -88,6 +88,5 @@ here till his eye How
 
 ## Wikilinks load test
 
-[[treble cupressus arizonica]]
-[[insanitary xenotime]]
-[[sweltering velvet bent]]
+[[argumentative image compression]]
+[[backlink load test]]

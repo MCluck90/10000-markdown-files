@@ -78,8 +78,5 @@ Sure it's angry and
 
 ## Wikilinks load test
 
-[[supernaturalist louis jolliet]]
-[[philatelical half hatchet]]
-[[nonprehensile nonacceptance]]
-[[jesuit urchin]]
-[[saturnine phyllostachys bambusoides]]
+[[collagenic little bighorn river]]
+[[backlink load test]]

@@ -80,8 +80,6 @@ Serpent.
 
 ## Wikilinks load test
 
-[[empty-handed akaba]]
-[[quartan recessional march]]
-[[trilobed criminal offense]]
-[[shifty filename]]
-[[dissatisfied phoneme]]
+[[slavelike paring]]
+[[imperialist lender]]
+[[backlink load test]]

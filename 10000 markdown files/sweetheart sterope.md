@@ -82,8 +82,5 @@ They're putting down on each
 
 ## Wikilinks load test
 
-[[sixty-one order cydippea]]
-[[bimolecular apple jelly]]
-[[teenage fallopius]]
-[[focal corpus mamillare]]
-[[unlighted word of farewell]]
+[[synesthetic coryphaenidae]]
+[[backlink load test]]

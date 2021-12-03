@@ -80,6 +80,9 @@ Last came running a
 
 ## Wikilinks load test
 
-[[overindulgent diagnostic technique]]
-[[enveloping newsagent]]
-[[brown-haired fennel flower]]
+[[irreligious rg]]
+[[unstable subjunctive]]
+[[anosmic hesperus]]
+[[undisputed henry louis aaron]]
+[[nonmechanical moharram]]
+[[backlink load test]]

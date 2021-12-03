@@ -85,7 +85,6 @@ ever so shiny.
 
 ## Wikilinks load test
 
-[[wonderworking rocket larkspur]]
-[[anapaestic herniated disc]]
-[[untouchable power system]]
-[[manful polarography]]
+[[supporting archbishop]]
+[[neo-lamarckian yagi]]
+[[backlink load test]]

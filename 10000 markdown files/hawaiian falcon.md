@@ -86,8 +86,9 @@ either way it only things
 
 ## Wikilinks load test
 
-[[leisured gremlin]]
-[[textured latten]]
-[[discourteous dapsang]]
-[[pinched panthera uncia]]
-[[quaternate tombigbee]]
+[[soporific chelonethida]]
+[[whitened tongs]]
+[[unclouded intelligibility]]
+[[satisfactory social service]]
+[[prissy turfing daisy]]
+[[backlink load test]]

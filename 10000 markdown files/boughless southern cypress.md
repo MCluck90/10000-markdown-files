@@ -81,6 +81,5 @@ his face like then the shock
 
 ## Wikilinks load test
 
-[[empirical chimney swift]]
-[[illuminating blu-82]]
-[[diversionary pasadena]]
+[[coupled mynah bird]]
+[[backlink load test]]

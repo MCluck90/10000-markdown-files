@@ -77,8 +77,6 @@ Shan't said these were out loud
 
 ## Wikilinks load test
 
-[[wormlike grandchild]]
-[[otherworldly synanceja verrucosa]]
-[[antenatal ethnic slur]]
-[[protozoal swim]]
-[[gray-haired undergraduate]]
+[[scrabbly harlow shapley]]
+[[cosmic genus arvicola]]
+[[backlink load test]]

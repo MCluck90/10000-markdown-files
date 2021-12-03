@@ -83,4 +83,8 @@ on muttering to run in
 
 ## Wikilinks load test
 
-[[untheatrical kern]]
+[[brown-gray steinberg]]
+[[tempest-tost zebrawood]]
+[[cortical inhospitality]]
+[[unharmed bopeep]]
+[[backlink load test]]

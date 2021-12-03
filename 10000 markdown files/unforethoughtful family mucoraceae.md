@@ -78,5 +78,7 @@ Let's go.
 
 ## Wikilinks load test
 
-[[sericeous bloch]]
-[[sadducean waxmallow]]
+[[red-lavender glycyrrhiza]]
+[[intuitionist arctium minus]]
+[[buggy staple fibre]]
+[[backlink load test]]

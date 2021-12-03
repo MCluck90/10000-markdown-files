@@ -84,7 +84,5 @@ London is queer noises would
 
 ## Wikilinks load test
 
-[[splenic molding]]
-[[pachydermal visualization]]
-[[blunt immediacy]]
-[[burnished war to end war]]
+[[peripteral prairia sabbatia]]
+[[backlink load test]]

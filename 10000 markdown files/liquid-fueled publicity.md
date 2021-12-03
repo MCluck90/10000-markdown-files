@@ -87,8 +87,8 @@ Stand up one for its wings.
 
 ## Wikilinks load test
 
-[[partisan visualiser]]
-[[spring-loaded golf stroke]]
-[[off calfskin]]
-[[intense henry the great]]
-[[informative pomaderris]]
+[[prevailing hawaii time]]
+[[day-old gasterophilidae]]
+[[pleasant collar cell]]
+[[untaught osprey]]
+[[backlink load test]]

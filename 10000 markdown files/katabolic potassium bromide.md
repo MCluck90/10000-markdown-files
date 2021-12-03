@@ -79,6 +79,8 @@ added with fright.
 
 ## Wikilinks load test
 
-[[anechoic globularness]]
-[[communal reaumur scale]]
-[[disheartened fumbler]]
+[[cambial muffle]]
+[[achlamydeous trap play]]
+[[swart harakiri]]
+[[abolitionary annotation]]
+[[backlink load test]]

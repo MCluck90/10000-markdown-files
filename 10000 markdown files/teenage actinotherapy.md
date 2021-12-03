@@ -73,4 +73,7 @@ IT the cur Such
 
 ## Wikilinks load test
 
-[[enfeebling sapsago]]
+[[qabalistic ontogenesis]]
+[[hard-pressed scutigera coleoptrata]]
+[[outbound folding]]
+[[backlink load test]]

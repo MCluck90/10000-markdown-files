@@ -76,8 +76,8 @@ that all spoke fancy Who's
 
 ## Wikilinks load test
 
-[[shamed saroyan]]
-[[ferine phi coefficient]]
-[[world-weary pinus contorta]]
-[[piebald chopstick]]
-[[uniovular nivose]]
+[[predisposed chimneypiece]]
+[[amerciable laminariaceae]]
+[[thickening appaloosa]]
+[[unsalable eyeshadow]]
+[[backlink load test]]

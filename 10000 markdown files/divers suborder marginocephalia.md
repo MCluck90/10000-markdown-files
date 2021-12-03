@@ -76,7 +76,5 @@ Never heard yet you you usually
 
 ## Wikilinks load test
 
-[[homocentric invocation]]
-[[psychic tomatillo]]
-[[neglectful electric receptacle]]
-[[shrinkable clique]]
+[[peroneal mugging]]
+[[backlink load test]]

@@ -87,7 +87,9 @@ I cut it turned
 
 ## Wikilinks load test
 
-[[spoon-shaped pepto-bismal]]
-[[knockabout ravelling]]
-[[chaste water pill]]
-[[anagrammatical tacamahac]]
+[[investigative bondage]]
+[[glabrescent eleven-plus]]
+[[swank footfault]]
+[[set-aside glycoprotein]]
+[[straightaway personal line of credit]]
+[[backlink load test]]

@@ -87,8 +87,9 @@ for turns quarrelling with
 
 ## Wikilinks load test
 
-[[full-bosomed ormosia monosperma]]
-[[sensationalistic shrimp-fish]]
-[[clawlike little giant]]
-[[one-time synchronisation]]
-[[purging strip cropping]]
+[[prakritic gurkha]]
+[[inaccurate gum olibanum]]
+[[detected fulbe]]
+[[estrous military recruit]]
+[[substandard south platte river]]
+[[backlink load test]]

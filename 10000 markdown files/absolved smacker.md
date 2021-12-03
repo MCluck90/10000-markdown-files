@@ -88,7 +88,7 @@ Turn that curious croquet-ground.
 
 ## Wikilinks load test
 
-[[agape barunduki]]
-[[childish gummed label]]
-[[pyrotechnic trigeminal neuralgia]]
-[[verifiable alpha brass]]
+[[basal pouched mole]]
+[[current macer]]
+[[sophistic genus desmodium]]
+[[backlink load test]]

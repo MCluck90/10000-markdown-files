@@ -84,5 +84,9 @@ Whoever lives.
 
 ## Wikilinks load test
 
-[[a priori genus paphiopedilum]]
-[[antiferromagnetic genus aegiceras]]
+[[subocean parks]]
+[[singaporean circular plane]]
+[[bowfront apolemia]]
+[[low-growing onomatomania]]
+[[thick-billed tetanus]]
+[[backlink load test]]

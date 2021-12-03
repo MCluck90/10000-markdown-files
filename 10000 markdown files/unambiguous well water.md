@@ -88,8 +88,6 @@ wow.
 
 ## Wikilinks load test
 
-[[dreamed meteorology]]
-[[hundred-and-seventieth footpad]]
-[[sinful spanish civil war]]
-[[explosive iris foetidissima]]
-[[unpublished boltzmanns constant]]
+[[forcible troubler]]
+[[olden santa]]
+[[backlink load test]]

@@ -84,6 +84,5 @@ It was this question
 
 ## Wikilinks load test
 
-[[digitigrade apricot]]
-[[colored adipose tissue]]
-[[inboard archaeologist]]
+[[coriaceous samba]]
+[[backlink load test]]

@@ -80,5 +80,8 @@ ever to call it
 
 ## Wikilinks load test
 
-[[sluttish blocking agent]]
-[[lubricated hatchet job]]
+[[isoclinal accusative]]
+[[indivisible by mycoplasma]]
+[[seaborne physostegia virginiana]]
+[[regrettable dental amalgam]]
+[[backlink load test]]

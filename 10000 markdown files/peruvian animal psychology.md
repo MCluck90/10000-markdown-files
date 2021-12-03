@@ -82,5 +82,7 @@ Stupid things when Alice
 
 ## Wikilinks load test
 
-[[denaturized pyracantha]]
-[[well-favored pyrophosphate]]
+[[ampullary herculius]]
+[[mind-bending euclids second axiom]]
+[[hierarchical portrayal]]
+[[backlink load test]]

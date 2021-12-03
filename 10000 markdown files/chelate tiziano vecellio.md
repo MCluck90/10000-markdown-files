@@ -84,8 +84,6 @@ cried.
 
 ## Wikilinks load test
 
-[[lancelike scalene triangle]]
-[[strong-minded paleocene epoch]]
-[[bionomic high-vitamin diet]]
-[[lancastrian revilement]]
-[[indigestible cecil blount demille]]
+[[blended john hanning speke]]
+[[godforsaken stropharia]]
+[[backlink load test]]

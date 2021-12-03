@@ -89,8 +89,9 @@ The Knave.
 
 ## Wikilinks load test
 
-[[napped genus lavandula]]
-[[star schlep]]
-[[empirical chimney swift]]
-[[perked up spit and polish]]
-[[insecticidal sod house]]
+[[bastioned weltanschauung]]
+[[nucleate naja nigricollis]]
+[[amenorrhoeal fucoid]]
+[[diseased david grun]]
+[[muciferous chatterbox]]
+[[backlink load test]]

@@ -78,6 +78,8 @@ Twinkle twinkle and find
 
 ## Wikilinks load test
 
-[[rubbery inopportuneness]]
-[[opening corneum]]
-[[focused bridge circuit]]
+[[tapered greenling]]
+[[edified sniper]]
+[[butterfingered ferdinand ii]]
+[[cigar-shaped melodic line]]
+[[backlink load test]]

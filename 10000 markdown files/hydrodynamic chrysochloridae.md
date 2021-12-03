@@ -78,8 +78,5 @@ Certainly not got the Lizard's
 
 ## Wikilinks load test
 
-[[rateable tenability]]
-[[acid-forming medical checkup]]
-[[classical lammergeier]]
-[[awless logomach]]
-[[crabwise holstein-friesian]]
+[[distal transylvania]]
+[[backlink load test]]

@@ -87,4 +87,6 @@ Tis the first then always
 
 ## Wikilinks load test
 
-[[absolvitory tipulidae]]
+[[bicentenary tolkien]]
+[[competitory fig]]
+[[backlink load test]]

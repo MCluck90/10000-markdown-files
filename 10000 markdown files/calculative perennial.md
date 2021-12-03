@@ -77,8 +77,9 @@ Either the shelves as curious sensation
 
 ## Wikilinks load test
 
-[[thalamocortical allentown]]
-[[pungent master race]]
-[[tabular calabura]]
-[[peeled semiepiphyte]]
-[[squabby linen]]
+[[excursive plug-in]]
+[[fistular georges cuvier]]
+[[burbling tianjin]]
+[[irreproachable radio beam]]
+[[modular hydroplane]]
+[[backlink load test]]

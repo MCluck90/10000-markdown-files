@@ -73,7 +73,8 @@ Stuff and decidedly uncivil.
 
 ## Wikilinks load test
 
-[[accident-prone golden calf]]
-[[unwilled linseed]]
-[[pro forma pangaea]]
-[[razor-sharp mexican spanish]]
+[[slow ob river]]
+[[dyslexic scrutinizer]]
+[[aramean ollari]]
+[[simulated riga]]
+[[backlink load test]]

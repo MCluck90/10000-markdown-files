@@ -86,8 +86,8 @@ Let me see.
 
 ## Wikilinks load test
 
-[[uninitiate maurice ravel]]
-[[hebdomadary pink wine]]
-[[wing-shaped apologia]]
-[[long-handled social group]]
-[[unsung damp course]]
+[[tricked-out bayard]]
+[[holey i. m. pei]]
+[[tired sustaining pedal]]
+[[autotomic cotton rose]]
+[[backlink load test]]

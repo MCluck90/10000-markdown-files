@@ -90,7 +90,7 @@ shouted in the second
 
 ## Wikilinks load test
 
-[[slovenly iconoclast]]
-[[interstellar percophidae]]
-[[deterrent whalesucker]]
-[[fanatic natural gas]]
+[[autochthonous sir john douglas cockcroft]]
+[[inextirpable beefwood]]
+[[ukrainian fast reactor]]
+[[backlink load test]]

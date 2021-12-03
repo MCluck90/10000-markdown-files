@@ -89,7 +89,7 @@ Dinah my boy I
 
 ## Wikilinks load test
 
-[[anti-intellectual airplane ticket]]
-[[long-distance chinese cork oak]]
-[[unscalable ashtray]]
-[[monitory genus satureia]]
+[[begrimed delacroix]]
+[[orphaned junco hyemalis]]
+[[noncommissioned illegitimate child]]
+[[backlink load test]]

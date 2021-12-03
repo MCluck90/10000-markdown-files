@@ -82,7 +82,6 @@ Beautiful beautiful Soup.
 
 ## Wikilinks load test
 
-[[taxonomical exercising]]
-[[corticifugal eucalyptus rostrata]]
-[[drunk refining]]
-[[defective parrot fever]]
+[[metaphoric standoff]]
+[[shuttered class acrasiomycetes]]
+[[backlink load test]]

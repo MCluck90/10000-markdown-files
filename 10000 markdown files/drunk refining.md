@@ -77,5 +77,8 @@ After that Dormouse not noticed
 
 ## Wikilinks load test
 
-[[squabby lunch meat]]
-[[teachable exodontics]]
+[[averse celiocentesis]]
+[[susceptible scallion]]
+[[norse fad]]
+[[reserved tweediness]]
+[[backlink load test]]

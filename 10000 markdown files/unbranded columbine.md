@@ -84,5 +84,5 @@ Everybody says come over at
 
 ## Wikilinks load test
 
-[[architectural lament]]
-[[uncategorized rugged individualism]]
+[[fusiform dork]]
+[[backlink load test]]

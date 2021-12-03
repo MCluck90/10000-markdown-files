@@ -80,6 +80,6 @@ Or would not above
 
 ## Wikilinks load test
 
-[[self-centered storm petrel]]
-[[duty-bound telegraph plant]]
-[[cramped romance language]]
+[[unprophetic sandpiper]]
+[[tensile defacement]]
+[[backlink load test]]

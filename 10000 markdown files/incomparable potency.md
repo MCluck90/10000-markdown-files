@@ -86,7 +86,5 @@ By-the bye what you did they
 
 ## Wikilinks load test
 
-[[receptive pilot balloon]]
-[[civil latin alphabet]]
-[[supererogatory effusion]]
-[[carpellary vinca major]]
+[[ad hominem lockjaw]]
+[[backlink load test]]

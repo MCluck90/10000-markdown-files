@@ -79,8 +79,6 @@ for tastes.
 
 ## Wikilinks load test
 
-[[powdery-blue hard drive]]
-[[utter hercules]]
-[[favourite pancytopenia]]
-[[snakelike lean-to tent]]
 [[alleviatory parmelia]]
+[[parisian softness]]
+[[backlink load test]]

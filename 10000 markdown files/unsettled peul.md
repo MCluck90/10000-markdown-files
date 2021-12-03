@@ -91,5 +91,8 @@ Ten hours I shouldn't want to
 
 ## Wikilinks load test
 
-[[balzacian capricorn]]
-[[trusty chukchi sea]]
+[[mexican stellers sea lion]]
+[[small general agent]]
+[[reassuring crinoidea]]
+[[revitalizing sphagnum moss]]
+[[backlink load test]]

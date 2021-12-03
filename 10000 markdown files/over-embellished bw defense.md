@@ -82,7 +82,5 @@ Are they set of putting
 
 ## Wikilinks load test
 
-[[insecticidal bestseller]]
-[[nonterritorial hydroelectric turbine]]
-[[raisable resistor]]
-[[undefended genus capreolus]]
+[[inherent curse word]]
+[[backlink load test]]

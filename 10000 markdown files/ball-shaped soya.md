@@ -75,8 +75,5 @@ Ten hours I know
 
 ## Wikilinks load test
 
-[[inattentive darter]]
-[[buff-colored graveyard shift]]
-[[unkind splash]]
-[[juridical torture chamber]]
-[[green-white blood cell]]
+[[tea-scented apostrophe]]
+[[backlink load test]]

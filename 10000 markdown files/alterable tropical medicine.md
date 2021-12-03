@@ -84,8 +84,6 @@ Hardly knowing how odd
 
 ## Wikilinks load test
 
-[[billowy rate of inflation]]
-[[afrikaans viola ocellata]]
-[[farming zambezi]]
-[[unchanging tea tray]]
-[[regional cold shoulder]]
+[[unflavoured biotechnology]]
+[[word-perfect posterior naris]]
+[[backlink load test]]

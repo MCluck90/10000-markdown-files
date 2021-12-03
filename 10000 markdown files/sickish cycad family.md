@@ -89,5 +89,7 @@ I'll just what this
 
 ## Wikilinks load test
 
-[[countryfied snake doctor]]
-[[self-giving antiaircraft gun]]
+[[calligraphic clon]]
+[[perfumed extermination]]
+[[conveyable poet-singer]]
+[[backlink load test]]

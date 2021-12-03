@@ -88,6 +88,7 @@ CHORUS.
 
 ## Wikilinks load test
 
-[[finical dinner theater]]
-[[insusceptible fever pitch]]
-[[dependant on genus cepphus]]
+[[branchless washbowl]]
+[[tangential tasman sea]]
+[[sweet-smelling genetic science]]
+[[backlink load test]]

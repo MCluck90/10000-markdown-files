@@ -85,5 +85,5 @@ William and reaching half
 
 ## Wikilinks load test
 
-[[dehumanised omelette pan]]
-[[close-hauled gordie howe]]
+[[trochaic grandeur]]
+[[backlink load test]]

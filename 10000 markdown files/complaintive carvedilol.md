@@ -88,8 +88,5 @@ You'll get out in by
 
 ## Wikilinks load test
 
-[[intact psycholinguist]]
-[[ascosporic toilet articles]]
-[[pharmaceutic guesswork]]
-[[rectified elaboration]]
-[[broken-field false bugbane]]
+[[armillary sickness benefit]]
+[[backlink load test]]

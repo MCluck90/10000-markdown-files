@@ -82,5 +82,5 @@ Heads below.
 
 ## Wikilinks load test
 
-[[purple-blue equal opportunity]]
-[[straightaway personal line of credit]]
+[[sitting mama]]
+[[backlink load test]]

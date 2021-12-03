@@ -79,8 +79,8 @@ Of course they couldn't answer
 
 ## Wikilinks load test
 
-[[legato meclofenamate sodium]]
-[[round finocchio]]
-[[arduous stunt flier]]
-[[gutless advanced research and development activity]]
-[[semi-erect br]]
+[[squinting cleavage cavity]]
+[[unquotable meteor]]
+[[thronged crochet needle]]
+[[unmitigable physalis peruviana]]
+[[backlink load test]]

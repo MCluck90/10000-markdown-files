@@ -83,8 +83,9 @@ Everybody looked like herself so
 
 ## Wikilinks load test
 
-[[aeschylean quicksilver]]
-[[punic firewheel tree]]
-[[convivial felis manul]]
-[[walking columbite-tantalite]]
-[[acapnial sea gooseberry]]
+[[eldest electronic device]]
+[[homeward egyptian water lily]]
+[[heart-shaped coiffeuse]]
+[[one-seed tricolor tube]]
+[[aeschylean government issue]]
+[[backlink load test]]

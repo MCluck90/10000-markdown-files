@@ -83,6 +83,5 @@ You'll get them word
 
 ## Wikilinks load test
 
-[[self-satisfied theodosius]]
-[[superposable defecator]]
-[[sedgy saving]]
+[[unbloody coast lily]]
+[[backlink load test]]

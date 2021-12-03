@@ -89,6 +89,7 @@ Don't let you manage the snail.
 
 ## Wikilinks load test
 
-[[steadfast loading dock]]
-[[seagoing highness]]
-[[statistical blackfoot]]
+[[copular pseudococcus]]
+[[walloping noun]]
+[[squared frisia]]
+[[backlink load test]]

@@ -80,7 +80,6 @@ yelled the Caterpillar's making
 
 ## Wikilinks load test
 
-[[statuesque camelot]]
-[[antibiotic secretary of health and human services]]
-[[cortico-hypothalamic genus psychotria]]
-[[controversial pterygoid plexus]]
+[[rectilinear overgrowth]]
+[[nonsweet hemoglobinuria]]
+[[backlink load test]]

@@ -88,5 +88,9 @@ exclaimed.
 
 ## Wikilinks load test
 
-[[belittling sicilian pizza]]
-[[voluble antonius pius]]
+[[tainted adios]]
+[[amerindic decalitre]]
+[[sick-abed pathogenesis]]
+[[antlered paul hindemith]]
+[[cycloidal married person]]
+[[backlink load test]]

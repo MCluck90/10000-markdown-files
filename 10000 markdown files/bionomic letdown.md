@@ -89,8 +89,8 @@ Soo oop.
 
 ## Wikilinks load test
 
-[[tantrik allioniaceae]]
-[[pale blue porcellionidae]]
-[[albinotic immunoglobulin g]]
-[[effaceable toona calantas]]
-[[polydactylous beardless iris]]
+[[fly-by-night spinning frame]]
+[[rabble-rousing birthroot]]
+[[dressed-up appeasement]]
+[[coarsened seizure]]
+[[backlink load test]]

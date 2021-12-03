@@ -86,8 +86,5 @@ Mind that perhaps.
 
 ## Wikilinks load test
 
-[[blowsy kaffir corn]]
-[[washed-up esox lucius]]
-[[lecherous verst]]
-[[decadent order rickettsiales]]
-[[creditworthy porterhouse]]
+[[unthoughtful claxon]]
+[[backlink load test]]

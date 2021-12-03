@@ -78,6 +78,6 @@ Stand up this way
 
 ## Wikilinks load test
 
-[[blebby thamnophilus]]
-[[whipping humanities]]
-[[odoriferous riverbed]]
+[[mutative rip-off]]
+[[delusive green mountain state]]
+[[backlink load test]]

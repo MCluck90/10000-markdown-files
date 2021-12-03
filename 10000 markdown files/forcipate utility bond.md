@@ -90,8 +90,6 @@ I'LL soon the jelly-fish out
 
 ## Wikilinks load test
 
-[[neo-darwinian larcenist]]
-[[inextirpable beefwood]]
-[[drizzling esotropia]]
-[[vociferous effluent]]
-[[at sea ko punch]]
+[[tenable cooker]]
+[[left over japanese cedar]]
+[[backlink load test]]

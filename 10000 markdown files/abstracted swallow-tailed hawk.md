@@ -93,8 +93,8 @@ An obstacle that used and
 
 ## Wikilinks load test
 
-[[pie-eyed golden pea]]
-[[maximum luggage carrousel]]
-[[noteworthy kalahari]]
-[[lateral national geospatial-intelligence agency]]
-[[glued hawkweed]]
+[[super thyme]]
+[[taken for granted twilight vision]]
+[[unfledged fish tank]]
+[[wash-and-wear snuff]]
+[[backlink load test]]

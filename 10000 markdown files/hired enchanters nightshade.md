@@ -78,6 +78,6 @@ thought and help thinking
 
 ## Wikilinks load test
 
-[[seaborne physostegia virginiana]]
-[[ashy lateral geniculate]]
-[[ampullary herculius]]
+[[joyless bird fancier]]
+[[unimpaired water chevrotain]]
+[[backlink load test]]

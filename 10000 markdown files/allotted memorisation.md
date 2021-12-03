@@ -90,7 +90,7 @@ HE went to get us
 
 ## Wikilinks load test
 
-[[holistic inkwell]]
-[[bungled chlorura chlorura]]
-[[inadmissible tea table]]
-[[allometric william f. cody]]
+[[admirable self-organisation]]
+[[straight balaena mysticetus]]
+[[present battle of magenta]]
+[[backlink load test]]

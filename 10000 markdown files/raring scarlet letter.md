@@ -89,7 +89,9 @@ Beau ootiful Soo oop of feet
 
 ## Wikilinks load test
 
-[[undoable trapping]]
-[[hammy payment]]
-[[spice-scented bibliographer]]
-[[prenatal spotted crake]]
+[[thinking plowing]]
+[[unreportable gelignite]]
+[[lentissimo bise]]
+[[unwritten treasure house]]
+[[killable polypodium]]
+[[backlink load test]]

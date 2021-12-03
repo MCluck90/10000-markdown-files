@@ -92,8 +92,5 @@ either way and take
 
 ## Wikilinks load test
 
-[[microbic deerberry]]
-[[cinematic ball cock]]
-[[diverse beech marten]]
-[[norse tritanopia]]
-[[distributed garget]]
+[[white-collar million floating point operations per second]]
+[[backlink load test]]

@@ -76,8 +76,8 @@ catch a song I'd better.
 
 ## Wikilinks load test
 
-[[weaponless giraffidae]]
-[[painless hearts]]
-[[static white mulberry]]
-[[half-dozen california coffee]]
-[[panhellenic broomstick]]
+[[low-altitude checkup]]
+[[addlepated chloranthaceae]]
+[[isolable pussys-paw]]
+[[warmhearted genus elymus]]
+[[backlink load test]]

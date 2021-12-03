@@ -85,7 +85,6 @@ Mary Ann what are not
 
 ## Wikilinks load test
 
-[[representative disease of the skin]]
-[[falling tansy mustard]]
-[[pilose whitener]]
-[[interfaith commercial letter of credit]]
+[[churned-up lath and plaster]]
+[[self-righteous caesium clock]]
+[[backlink load test]]

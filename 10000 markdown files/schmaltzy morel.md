@@ -82,8 +82,8 @@ Shall we don't know where Alice
 
 ## Wikilinks load test
 
-[[literary stypsis]]
-[[bicolour absentee rate]]
-[[half-witted francois villon]]
-[[stony-broke radio operator]]
-[[obstructive skydiver]]
+[[clubby magnesium carbonate]]
+[[butterfingered universalism]]
+[[lacerate triangulation]]
+[[raffish costa rica]]
+[[backlink load test]]

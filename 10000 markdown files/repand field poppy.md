@@ -83,6 +83,6 @@ Pig.
 
 ## Wikilinks load test
 
-[[paniculate gastrogavage]]
-[[spatula-shaped rising slope]]
-[[broody crib]]
+[[fisheye prima donna]]
+[[miry salutatorian]]
+[[backlink load test]]

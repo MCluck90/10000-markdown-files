@@ -90,8 +90,7 @@ Poor little hot day
 
 ## Wikilinks load test
 
-[[hand-to-hand fjord]]
-[[bantu-speaking refractometer]]
-[[waste gravitational mass]]
-[[potent criollo]]
-[[west african pindolol]]
+[[featherless lens capsule]]
+[[mitigative blue elder]]
+[[aeromechanic genus chordeiles]]
+[[backlink load test]]

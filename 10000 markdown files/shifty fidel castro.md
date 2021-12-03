@@ -78,8 +78,6 @@ Those whom she repeated angrily really
 
 ## Wikilinks load test
 
-[[chipper warlock]]
-[[pop genus sturnella]]
-[[metallic-colored kalantas]]
-[[at sea skiff]]
-[[heraldic microprocessor]]
+[[fleecy hotplate]]
+[[dauntless redundancy]]
+[[backlink load test]]

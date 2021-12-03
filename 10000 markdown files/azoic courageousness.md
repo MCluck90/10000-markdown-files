@@ -85,4 +85,6 @@ Let us all would
 
 ## Wikilinks load test
 
-[[registered gambol]]
+[[semicentenary snake dance]]
+[[crabbed liquid pred]]
+[[backlink load test]]

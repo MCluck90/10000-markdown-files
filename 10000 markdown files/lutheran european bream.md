@@ -87,7 +87,7 @@ sighed wearily.
 
 ## Wikilinks load test
 
-[[sierra leonean curve]]
-[[impelling arborescent plant]]
-[[appeasable felt tip]]
-[[degenerate tammany]]
+[[helmet-shaped bipedalism]]
+[[adaptative homeopath]]
+[[frivolous great-nephew]]
+[[backlink load test]]

@@ -84,8 +84,6 @@ Bill's got to kneel down
 
 ## Wikilinks load test
 
-[[dilute quercus wislizenii]]
-[[ice-cold roger bannister]]
-[[miasmic ulmus carpinifolia]]
-[[cytopathogenic anal personality]]
-[[anatropous orudis]]
+[[best necrobiosis lipoidica]]
+[[erythematous alton glenn miller]]
+[[backlink load test]]

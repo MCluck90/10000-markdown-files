@@ -79,6 +79,5 @@ Sentence first really clever thing
 
 ## Wikilinks load test
 
-[[vincible tabun]]
-[[with-it leukorrhea]]
-[[annihilating caplin]]
+[[lumpy hooded seal]]
+[[backlink load test]]

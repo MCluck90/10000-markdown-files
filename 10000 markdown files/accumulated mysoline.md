@@ -82,6 +82,5 @@ inquired Alice besides that's a
 
 ## Wikilinks load test
 
-[[ranked rube goldberg]]
-[[decapitated aeneas]]
-[[straight balaena mysticetus]]
+[[lengthy lindy hop]]
+[[backlink load test]]

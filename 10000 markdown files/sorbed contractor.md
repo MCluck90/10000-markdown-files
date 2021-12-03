@@ -83,8 +83,9 @@ added turning into a White Rabbit.
 
 ## Wikilinks load test
 
-[[aseptic computer graphic]]
-[[empyrean alfred charles kinsey]]
-[[determined francis turner palgrave]]
-[[hydrodynamic chrysochloridae]]
-[[heraldic microprocessor]]
+[[nonenterprising wine tasting]]
+[[patrimonial vladimir lenin]]
+[[insecure squillidae]]
+[[bumptious segno]]
+[[fly-by-night spinning frame]]
+[[backlink load test]]

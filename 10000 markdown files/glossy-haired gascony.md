@@ -84,5 +84,6 @@ A barrowful of trials
 
 ## Wikilinks load test
 
-[[mnemonic dog racing]]
-[[intact psycholinguist]]
+[[nonflammable linin]]
+[[fly-by-night spinning frame]]
+[[backlink load test]]

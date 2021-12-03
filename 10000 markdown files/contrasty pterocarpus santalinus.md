@@ -79,7 +79,7 @@ Thinking again You couldn't get away
 
 ## Wikilinks load test
 
-[[wiped out charles frederick menninger]]
-[[polyphonic segmented worm]]
-[[silvery-blue toadfish]]
-[[consummated sparkleberry]]
+[[subocean sorex cinereus]]
+[[scummy pornography]]
+[[unalterable cheesemonger]]
+[[backlink load test]]

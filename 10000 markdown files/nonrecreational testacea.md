@@ -84,8 +84,5 @@ exclaimed Alice allow without Maybe
 
 ## Wikilinks load test
 
-[[beaked genus puccinia]]
-[[aimless ranee]]
-[[nonunionized nomenclature]]
-[[rotten floret]]
-[[impoverished sixty-fourth note]]
+[[adjunctive decor]]
+[[backlink load test]]

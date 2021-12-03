@@ -83,8 +83,5 @@ Beau ootiful Soo oop.
 
 ## Wikilinks load test
 
-[[botswanan shyness]]
-[[tameable hani]]
-[[copulative v-1]]
-[[bronchoscopic pewter]]
-[[godforsaken stropharia]]
+[[awed limpness]]
+[[backlink load test]]

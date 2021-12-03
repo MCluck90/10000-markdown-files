@@ -75,6 +75,9 @@ Mind that there ought to
 
 ## Wikilinks load test
 
-[[anosmatic pusan]]
-[[axiological tocsin]]
-[[three-petalled greenhood]]
+[[singsong nationalism]]
+[[subordinating sprinter]]
+[[snappish atomic weight]]
+[[opportunistic policeman bird]]
+[[intense honey eater]]
+[[backlink load test]]

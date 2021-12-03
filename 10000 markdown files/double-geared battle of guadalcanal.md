@@ -83,4 +83,7 @@ Fetch me see anything near.
 
 ## Wikilinks load test
 
-[[allomorphic berserker]]
+[[vendible sweet pea]]
+[[inanimate ceiba pentandra]]
+[[altruistic sphyrna]]
+[[backlink load test]]

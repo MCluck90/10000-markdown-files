@@ -86,6 +86,6 @@ After a bit and stupid
 
 ## Wikilinks load test
 
-[[ready-cooked swiss chard]]
-[[chylaceous okra plant]]
-[[convincible grout]]
+[[ok groundwork]]
+[[well-favoured indigo]]
+[[backlink load test]]

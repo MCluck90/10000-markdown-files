@@ -84,6 +84,8 @@ Down the queerest thing
 
 ## Wikilinks load test
 
-[[unceremonial stovepipe iron]]
-[[callous effulgence]]
-[[piagetian mercilessness]]
+[[menopausal romantic]]
+[[twelve leaf blade]]
+[[belittled angelica sylvestris]]
+[[tabu good-naturedness]]
+[[backlink load test]]

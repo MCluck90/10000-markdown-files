@@ -88,4 +88,8 @@ I'd better Alice only walk
 
 ## Wikilinks load test
 
-[[armour-plated shooting star]]
+[[anfractuous unsoundness]]
+[[treed black humor]]
+[[brachycranic statesman]]
+[[fluffy puzzler]]
+[[backlink load test]]

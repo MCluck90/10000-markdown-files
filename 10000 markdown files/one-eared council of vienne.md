@@ -77,8 +77,7 @@ HE was scratching and several things
 
 ## Wikilinks load test
 
-[[unsubtle untrustiness]]
-[[closed-ring calcite]]
-[[center drosophyllum]]
-[[unproblematic mountain lion]]
-[[galilean laity]]
+[[infuriating cannon fodder]]
+[[nonextant swimming cap]]
+[[cool-white lepidium alpina]]
+[[backlink load test]]

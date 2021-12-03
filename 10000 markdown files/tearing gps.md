@@ -86,5 +86,8 @@ Will you cut it before Alice
 
 ## Wikilinks load test
 
-[[tricked-out mirish]]
-[[passable dodecahedron]]
+[[ornithological pine mouse]]
+[[cismontane tenorist]]
+[[federal curb roof]]
+[[snooty genus corydalis]]
+[[backlink load test]]

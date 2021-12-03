@@ -88,5 +88,6 @@ down among those tarts
 
 ## Wikilinks load test
 
-[[enlivened glazier]]
-[[artsy-craftsy laboratory]]
+[[reproducible straw boss]]
+[[zygomatic apetalous flower]]
+[[backlink load test]]

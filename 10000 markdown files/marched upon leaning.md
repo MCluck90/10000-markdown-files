@@ -91,6 +91,9 @@ YOU like what they
 
 ## Wikilinks load test
 
-[[quadrisonic sls]]
-[[hydrometric alice walker]]
-[[improvable clitoris]]
+[[discriminatory diatonic scale]]
+[[sterile drumlin]]
+[[rainy wonderer]]
+[[vegetational evergreen]]
+[[bathyal interdiction]]
+[[backlink load test]]

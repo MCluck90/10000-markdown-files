@@ -79,8 +79,7 @@ said very interesting.
 
 ## Wikilinks load test
 
-[[azoic proctoplasty]]
-[[usufructuary genus juniperus]]
-[[dependent on ring rot]]
-[[anisometric common scurvy grass]]
-[[tranquil coal tar]]
+[[second-sighted cynodontia]]
+[[prewar sauterne]]
+[[poikilothermous indecorum]]
+[[backlink load test]]

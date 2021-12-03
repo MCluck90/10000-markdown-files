@@ -92,6 +92,6 @@ quite natural way Do as
 
 ## Wikilinks load test
 
-[[familiar ericales]]
-[[self-acting water tank]]
-[[aeromechanic genus chordeiles]]
+[[paradigmatic dashiell hammett]]
+[[greedy cotoneaster]]
+[[backlink load test]]

@@ -84,6 +84,5 @@ IT the unjust things
 
 ## Wikilinks load test
 
-[[cinnamon colored telecast]]
-[[reprehensible ware]]
-[[addlebrained refrigerator car]]
+[[longish acupuncture]]
+[[backlink load test]]

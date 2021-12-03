@@ -85,7 +85,9 @@ While the cupboards and
 
 ## Wikilinks load test
 
-[[two-fold full stop]]
-[[brachycranial humectant]]
-[[coral-red operoseness]]
-[[noninstitutionalised genus salicornia]]
+[[cleanable monocular vision]]
+[[accurate kitul tree]]
+[[iffy mm]]
+[[collectable ringlet]]
+[[cephalopodan nuclear warhead]]
+[[backlink load test]]

@@ -76,5 +76,5 @@ Fetch me help of her for
 
 ## Wikilinks load test
 
-[[inductive school ship]]
-[[nonnomadic penstemon]]
+[[testate hardening of the arteries]]
+[[backlink load test]]

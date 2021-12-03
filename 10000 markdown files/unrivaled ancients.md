@@ -81,8 +81,5 @@ Dinah at each hand
 
 ## Wikilinks load test
 
-[[uncluttered aegean civilization]]
-[[self-effacing genus nepeta]]
-[[immunocompromised diagnostician]]
-[[must mare nostrum]]
-[[sentient mountain range]]
+[[skinless czech republic]]
+[[backlink load test]]

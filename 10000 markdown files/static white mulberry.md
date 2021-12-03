@@ -80,4 +80,8 @@ Will you can't understand
 
 ## Wikilinks load test
 
-[[sensitizing genus tagetes]]
+[[chiasmal resonant circuit]]
+[[white-edged afferent fiber]]
+[[petty rhyme]]
+[[holistic inkwell]]
+[[backlink load test]]

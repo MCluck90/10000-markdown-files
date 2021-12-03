@@ -92,6 +92,6 @@ My name is right
 
 ## Wikilinks load test
 
-[[caramel glissando]]
-[[sticking petit point]]
-[[hook-shaped merry-go-round]]
+[[ash-grey xylol]]
+[[flukey bvds]]
+[[backlink load test]]

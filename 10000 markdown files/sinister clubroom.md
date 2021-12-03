@@ -83,7 +83,7 @@ Oh I'm getting its right
 
 ## Wikilinks load test
 
-[[one hundred sixty sac]]
-[[cherubic soupspoon]]
-[[bhutanese katari]]
-[[naming self-education]]
+[[self-effacing genus nepeta]]
+[[devoted genus malus]]
+[[unconstrained anemic anoxia]]
+[[backlink load test]]

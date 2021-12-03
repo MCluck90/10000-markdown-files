@@ -74,8 +74,6 @@ Call it that followed by
 
 ## Wikilinks load test
 
-[[baccivorous synentognathi]]
-[[eclectic methanogen]]
-[[award-winning psychiatric hospital]]
-[[unpainted star-nosed mole]]
-[[pivotal kalaallit nunaat]]
+[[homoecious topical anaesthetic]]
+[[literary stypsis]]
+[[backlink load test]]

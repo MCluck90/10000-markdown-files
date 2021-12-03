@@ -78,8 +78,9 @@ Hand it purring not
 
 ## Wikilinks load test
 
-[[guarded auctioneer]]
-[[heterometabolic patrology]]
-[[toothy makedonija]]
-[[inebriated reading teacher]]
-[[desk-bound christs resurrection]]
+[[tricked-out bayard]]
+[[photochemical canadian goose]]
+[[chunky invalidity]]
+[[biracial genus hoheria]]
+[[knock-down-and-drag-out genus argyroxiphium]]
+[[backlink load test]]

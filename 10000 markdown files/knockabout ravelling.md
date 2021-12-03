@@ -79,8 +79,5 @@ Good-bye feet.
 
 ## Wikilinks load test
 
-[[allergenic orientalist]]
-[[tortured spasm]]
-[[heritable false teeth]]
-[[german vertical circle]]
-[[endozoan ravenousness]]
+[[uncombed contumacy]]
+[[backlink load test]]

@@ -95,8 +95,8 @@ either the singers.
 
 ## Wikilinks load test
 
-[[many genus aplodontia]]
-[[ornithological pine mouse]]
-[[armour-clad cavernous sinus]]
-[[diffusing wire gage]]
-[[irreplaceable seduction]]
+[[invisible clotbur]]
+[[uncrystallised tannia]]
+[[slanted bombus]]
+[[calycular prairie trillium]]
+[[backlink load test]]

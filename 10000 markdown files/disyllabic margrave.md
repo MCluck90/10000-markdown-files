@@ -83,8 +83,6 @@ Wouldn't it please go and dishes.
 
 ## Wikilinks load test
 
-[[early-flowering proboscidea]]
-[[long-wooled whalebone whale]]
-[[boring strut]]
-[[piagetian mercilessness]]
-[[suntanned concavity]]
+[[semidetached phone bill]]
+[[all-devouring magnetomotive force]]
+[[backlink load test]]

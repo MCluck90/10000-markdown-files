@@ -82,4 +82,5 @@ Twinkle twinkle twinkle little
 
 ## Wikilinks load test
 
-[[destructible ricinus]]
+[[compatible ninety]]
+[[backlink load test]]

@@ -78,8 +78,7 @@ screamed Off Nonsense.
 
 ## Wikilinks load test
 
-[[nonalcoholic berg]]
-[[wraithlike grease]]
-[[rimy obstruction of justice]]
-[[icterogenic disconcertion]]
-[[pursued scincid lizard]]
+[[branchiopodan ecstasy]]
+[[lxi quiver]]
+[[neutralized dystopia]]
+[[backlink load test]]

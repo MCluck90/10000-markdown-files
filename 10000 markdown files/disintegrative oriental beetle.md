@@ -93,7 +93,6 @@ Very soon finished it all is
 
 ## Wikilinks load test
 
-[[one-handed digital clock]]
-[[pointless genus lyonia]]
-[[in play ceding back]]
-[[unmortgaged spore]]
+[[doubled reconditeness]]
+[[stormproof tamarao]]
+[[backlink load test]]

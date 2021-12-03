@@ -89,8 +89,7 @@ wow.
 
 ## Wikilinks load test
 
-[[neuroanatomical erudition]]
-[[seeded osmunda cinnamonea]]
-[[noncarbonated half-moon]]
-[[collected hieracium venosum]]
-[[ethnologic triumvir]]
+[[graphic puppet state]]
+[[treble cupressus arizonica]]
+[[early-flowering proboscidea]]
+[[backlink load test]]

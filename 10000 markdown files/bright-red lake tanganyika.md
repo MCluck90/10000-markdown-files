@@ -86,6 +86,6 @@ Tell us.
 
 ## Wikilinks load test
 
-[[san marinese chinquapin oak]]
-[[neuroanatomical castle in the air]]
-[[sedulous moneron]]
+[[cosmetic toaster oven]]
+[[self-coloured basuco]]
+[[backlink load test]]

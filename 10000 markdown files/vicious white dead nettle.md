@@ -92,6 +92,5 @@ Consider my tail but
 
 ## Wikilinks load test
 
-[[bardic devanagari script]]
-[[hook-shaped merry-go-round]]
-[[lone hostage]]
+[[sulfuric shoestring fungus]]
+[[backlink load test]]

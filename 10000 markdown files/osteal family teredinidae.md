@@ -86,5 +86,6 @@ sh.
 
 ## Wikilinks load test
 
-[[fungible american crow]]
-[[unhurried greenskeeper]]
+[[inapt rectal reflex]]
+[[comatose haemoglobin]]
+[[backlink load test]]

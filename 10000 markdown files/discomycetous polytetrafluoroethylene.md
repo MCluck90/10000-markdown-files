@@ -82,5 +82,5 @@ wow.
 
 ## Wikilinks load test
 
-[[smooth-tongued palestine liberation organization]]
-[[tweedy riot control operation]]
+[[biblical revelation]]
+[[backlink load test]]

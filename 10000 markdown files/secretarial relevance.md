@@ -83,8 +83,8 @@ This piece of of Uglification and
 
 ## Wikilinks load test
 
-[[achondritic direct examination]]
-[[socioeconomic musculus quadriceps femoris]]
-[[transplantable genus pedioecetes]]
-[[pusillanimous carbohydrate]]
-[[slippy genus araucaria]]
+[[stipendiary klan]]
+[[ambivalent ascomycetes]]
+[[jocose peoples party]]
+[[partial galago]]
+[[backlink load test]]

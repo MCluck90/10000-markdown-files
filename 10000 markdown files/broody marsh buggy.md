@@ -78,5 +78,7 @@ they'll do well in
 
 ## Wikilinks load test
 
-[[postwar red panda]]
-[[featherless lens capsule]]
+[[aminic robert andrews millikan]]
+[[reassuring dacryocystitis]]
+[[knock-down-and-drag-out genus argyroxiphium]]
+[[backlink load test]]

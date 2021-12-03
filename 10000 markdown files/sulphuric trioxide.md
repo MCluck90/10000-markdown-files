@@ -88,8 +88,7 @@ You've no such thing
 
 ## Wikilinks load test
 
-[[knotty cortinarius subfoetidus]]
-[[searing potassium chlorate]]
-[[formulaic tunisian]]
-[[commonsensical sick berth]]
-[[coupled mynah bird]]
+[[sanious recording equipment]]
+[[swordlike woodwardia virginica]]
+[[longsighted canafistola]]
+[[backlink load test]]

@@ -87,8 +87,6 @@ Did you mayn't believe so
 
 ## Wikilinks load test
 
-[[checked resting potential]]
-[[attributive waste of money]]
-[[cacophonous gafsa]]
-[[low-key loin]]
-[[uncousinly aerosol can]]
+[[strong-minded paleocene epoch]]
+[[chalybeate reason]]
+[[backlink load test]]

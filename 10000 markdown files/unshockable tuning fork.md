@@ -81,8 +81,6 @@ that they both sat silent and
 
 ## Wikilinks load test
 
-[[prismatic west indian jasmine]]
-[[roasted gab]]
-[[dioecian barbados cherry]]
-[[philosophical unfairness]]
-[[cultural sense organ]]
+[[nonpolar hypophysectomy]]
+[[tight-fitting mendelianism]]
+[[backlink load test]]

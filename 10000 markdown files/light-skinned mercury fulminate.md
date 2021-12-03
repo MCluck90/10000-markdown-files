@@ -83,8 +83,6 @@ the best cat may kiss my
 
 ## Wikilinks load test
 
-[[sulphuric myroxylon pereirae]]
-[[bluish black brown lacewing]]
-[[purple-black willard frank libby]]
-[[slavelike paring]]
-[[uncousinly aerosol can]]
+[[self-limited backlighting]]
+[[seventy-five jointworm]]
+[[backlink load test]]

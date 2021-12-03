@@ -92,6 +92,9 @@ Beau ootiful Soo oop.
 
 ## Wikilinks load test
 
-[[dehumanized pinwheel wind collector]]
-[[unregulated bellerophon]]
-[[callous gansu]]
+[[clip-on fuji-san]]
+[[flexile backspin]]
+[[eccentric left hander]]
+[[endoscopic megacycle per second]]
+[[unexpected analytical geometry]]
+[[backlink load test]]

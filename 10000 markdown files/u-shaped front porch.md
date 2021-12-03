@@ -86,6 +86,6 @@ Either the master was playing
 
 ## Wikilinks load test
 
-[[proprietary ash grey]]
-[[thai hatbox]]
-[[atrophic gaia]]
+[[informed specs]]
+[[special golden oldie]]
+[[backlink load test]]

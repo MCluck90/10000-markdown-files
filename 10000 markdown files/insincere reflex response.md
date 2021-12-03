@@ -84,6 +84,5 @@ Thinking again.
 
 ## Wikilinks load test
 
-[[hopeful northern bog lemming]]
-[[pineal lacer]]
-[[uninitiate hurt]]
+[[outward-moving gantanol]]
+[[backlink load test]]

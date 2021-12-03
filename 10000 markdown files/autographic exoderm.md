@@ -81,5 +81,7 @@ First it teases.
 
 ## Wikilinks load test
 
-[[ball-hawking diathermy machine]]
-[[energizing calochortus elegans]]
+[[tranquilizing james dewey watson]]
+[[convivial felis manul]]
+[[trinuclear iron overload]]
+[[backlink load test]]

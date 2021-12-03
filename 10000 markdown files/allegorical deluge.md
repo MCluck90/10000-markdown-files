@@ -94,4 +94,6 @@ Repeat YOU.
 
 ## Wikilinks load test
 
-[[slummy wilt disease]]
+[[bullying peppercorn]]
+[[bilinear seven wonders of the ancient world]]
+[[backlink load test]]

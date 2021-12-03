@@ -79,5 +79,5 @@ Silence.
 
 ## Wikilinks load test
 
-[[heat-absorbing palometa simillima]]
-[[brittle kingdom of god]]
+[[fire-resisting deep middle cerebral vein]]
+[[backlink load test]]

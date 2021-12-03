@@ -87,5 +87,7 @@ Idiot.
 
 ## Wikilinks load test
 
-[[inattentive darter]]
-[[piscine leopard lizard]]
+[[mellifluous independence day]]
+[[tzarist otho of lagery]]
+[[preexistent spicery]]
+[[backlink load test]]

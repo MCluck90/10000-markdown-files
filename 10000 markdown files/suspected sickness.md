@@ -88,5 +88,6 @@ screamed Off Nonsense.
 
 ## Wikilinks load test
 
-[[foliate case in point]]
-[[thirty-ninth thankfulness]]
+[[fleecy hotplate]]
+[[happy bethel]]
+[[backlink load test]]

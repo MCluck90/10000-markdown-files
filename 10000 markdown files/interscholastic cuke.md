@@ -85,6 +85,8 @@ Begin at home.
 
 ## Wikilinks load test
 
-[[hot-blooded shad roe]]
-[[clownish galiella rufa]]
-[[comme il faut admission day]]
+[[desiccated piscary]]
+[[half-witted francois villon]]
+[[amphibiotic general lien]]
+[[synchronised arthur schopenhauer]]
+[[backlink load test]]

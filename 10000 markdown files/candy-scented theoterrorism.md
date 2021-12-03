@@ -82,8 +82,6 @@ Alice sighed the waters
 
 ## Wikilinks load test
 
-[[dermal great auk]]
-[[unbeknownst kin]]
-[[adust black music]]
-[[life-threatening quiscalus quiscula]]
-[[plugged idol worshiper]]
+[[mellowed cyril]]
+[[glittering slimness]]
+[[backlink load test]]

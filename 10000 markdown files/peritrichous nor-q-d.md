@@ -92,7 +92,6 @@ London is here with fright.
 
 ## Wikilinks load test
 
-[[stifled vasoconstrictive]]
-[[impotent psa blood test]]
-[[clogging arame]]
-[[puddingheaded horology]]
+[[chinked blue fox]]
+[[dicey 24-karat gold]]
+[[backlink load test]]

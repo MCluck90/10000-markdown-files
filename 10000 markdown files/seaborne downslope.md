@@ -76,6 +76,5 @@ his whiskers.
 
 ## Wikilinks load test
 
-[[trustworthy nervus accessorius]]
-[[apish strangler fig]]
-[[reflecting habitant]]
+[[warm-blooded seneca lake]]
+[[backlink load test]]

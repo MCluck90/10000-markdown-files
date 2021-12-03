@@ -96,6 +96,9 @@ Soo oop of expecting to
 
 ## Wikilinks load test
 
-[[abscessed bath linen]]
-[[sensuous kosciusko]]
-[[self-satisfied theodosius]]
+[[oxidized rocket salad]]
+[[homothermic contrast medium]]
+[[unfriendly b vitamin]]
+[[aryan bench mark]]
+[[donnean yellow cypress]]
+[[backlink load test]]

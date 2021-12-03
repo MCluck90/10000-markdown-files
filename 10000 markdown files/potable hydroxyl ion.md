@@ -74,8 +74,5 @@ They are so indeed said do
 
 ## Wikilinks load test
 
-[[descending twin towers]]
-[[prizewinning russula]]
-[[organicistic interspersion]]
-[[absolutistic strikebreaking]]
-[[huffish tragelaphus imberbis]]
+[[knotted potato skin]]
+[[backlink load test]]

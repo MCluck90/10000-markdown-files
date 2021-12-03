@@ -90,5 +90,9 @@ CHORUS.
 
 ## Wikilinks load test
 
-[[put-up tuscaloosa]]
-[[diffusing torch song]]
+[[tameable jamison]]
+[[prognosticative klick]]
+[[ambivalent ascomycetes]]
+[[trinidadian porkfish]]
+[[sneering saccade]]
+[[backlink load test]]

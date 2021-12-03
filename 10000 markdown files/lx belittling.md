@@ -74,7 +74,6 @@ Then turn round it chuckled.
 
 ## Wikilinks load test
 
-[[preachy helleri]]
-[[gamey chromatic scale]]
-[[outmoded grant wood]]
-[[glaswegian upstage]]
+[[stalemated count nikolaus ludwig von zinzendorf]]
+[[blase croton bug]]
+[[backlink load test]]

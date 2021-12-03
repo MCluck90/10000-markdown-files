@@ -86,8 +86,6 @@ Beautiful beautiful Soup is
 
 ## Wikilinks load test
 
-[[three-sided skinheads]]
-[[unfilled l. monocytogenes]]
-[[sanguineous acheson]]
-[[supernatural finger-root]]
-[[unlabeled mouth]]
+[[prestigious ammoniac]]
+[[greenish-gray architeuthis]]
+[[backlink load test]]

@@ -81,6 +81,5 @@ Five.
 
 ## Wikilinks load test
 
-[[shaven africanized bee]]
-[[acrid aragon]]
-[[machine-controlled hop]]
+[[wobbling shawn]]
+[[backlink load test]]

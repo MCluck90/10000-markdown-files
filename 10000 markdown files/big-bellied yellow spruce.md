@@ -90,7 +90,9 @@ Chorus again using the
 
 ## Wikilinks load test
 
-[[wittgensteinian sir james augustus murray]]
-[[documental arc sine]]
-[[overgenerous quercus garryana]]
-[[frail surface lift]]
+[[shambolic archaebacteria]]
+[[olive-colored seal of approval]]
+[[nonsuppurative odontaspididae]]
+[[vulval tabor pipe]]
+[[nonenterprising trifler]]
+[[backlink load test]]

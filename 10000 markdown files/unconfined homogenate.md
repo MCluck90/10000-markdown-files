@@ -94,8 +94,8 @@ Thank you haven't opened
 
 ## Wikilinks load test
 
-[[ineffable typing]]
-[[blue-eyed bill poster]]
-[[linear hitler]]
-[[silver-bodied seeland]]
-[[grassy-leafed parietal placentation]]
+[[hairsplitting brown bent]]
+[[runcinate khat]]
+[[telepathic watt second]]
+[[spacy sea cucumber]]
+[[backlink load test]]

@@ -91,8 +91,6 @@ you ask.
 
 ## Wikilinks load test
 
-[[noncollapsable freshness]]
-[[manipulative bilharziasis]]
-[[unapprehensive meteor shower]]
-[[ill-mannered curtain raiser]]
-[[mellowed cyril]]
+[[in agreement brix scale]]
+[[prototypic nalline]]
+[[backlink load test]]

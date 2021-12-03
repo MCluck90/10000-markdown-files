@@ -86,5 +86,5 @@ Wouldn't it settled down
 
 ## Wikilinks load test
 
-[[smooth-faced consequence]]
-[[wry wild sensitive plant]]
+[[clogging arame]]
+[[backlink load test]]

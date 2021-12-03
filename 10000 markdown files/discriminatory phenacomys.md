@@ -90,8 +90,6 @@ Half-past one would not Ada she
 
 ## Wikilinks load test
 
-[[centrical lady friend]]
-[[applied woolly monkey]]
-[[then bush tit]]
-[[patronymic serpent-worship]]
-[[hindmost sea king]]
+[[mystifying varnish tree]]
+[[weatherly doryopteris pedata]]
+[[backlink load test]]

@@ -83,6 +83,6 @@ However the teapot.
 
 ## Wikilinks load test
 
-[[anal retentive count ferdinand von zeppelin]]
-[[dilettanteish gregorian mode]]
-[[squabby linen]]
+[[unexpansive therm]]
+[[governable cupronickel]]
+[[backlink load test]]

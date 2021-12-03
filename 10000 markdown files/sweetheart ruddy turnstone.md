@@ -85,7 +85,7 @@ IT.
 
 ## Wikilinks load test
 
-[[antipathetical pugilist]]
-[[chemisorptive genus conilurus]]
-[[prefatorial missioner]]
-[[pyrochemical nowness]]
+[[glossy-haired opium den]]
+[[bronchoscopic pewter]]
+[[anisometric common scurvy grass]]
+[[backlink load test]]

@@ -85,8 +85,5 @@ fetch me smaller and Alice's
 
 ## Wikilinks load test
 
-[[grotty vetluga river]]
-[[ineluctable szilard]]
-[[verticillated pseudoscorpiones]]
-[[comforting asuncion]]
-[[variable galloway]]
+[[tumultuous blue ribbon]]
+[[backlink load test]]

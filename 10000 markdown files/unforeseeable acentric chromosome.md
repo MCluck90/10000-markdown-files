@@ -82,6 +82,6 @@ then raised herself for
 
 ## Wikilinks load test
 
-[[self-assertive suzerainty]]
-[[atheistical teaching aid]]
-[[unsurprising secretin]]
+[[sinuate oscitance]]
+[[sorrowing anthill]]
+[[backlink load test]]

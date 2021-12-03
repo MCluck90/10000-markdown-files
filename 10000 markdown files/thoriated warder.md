@@ -81,8 +81,6 @@ exclaimed turning purple.
 
 ## Wikilinks load test
 
-[[top-hole nervus ulnaris]]
-[[rending subtopia]]
-[[frilled communication channel]]
-[[debasing preoccupancy]]
-[[eternal siberian elm]]
+[[crosswise grams method]]
+[[fusiform genus allium]]
+[[backlink load test]]

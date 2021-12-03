@@ -83,8 +83,7 @@ Hand it ran wildly up
 
 ## Wikilinks load test
 
-[[cosmogonical baby boom]]
-[[abominable lexington and concord]]
-[[annexal first-degree burn]]
-[[refreshing genus serratia]]
-[[interlocutory guild socialism]]
+[[red-handed hymie]]
+[[subtropic rondo]]
+[[west african trigonometrician]]
+[[backlink load test]]

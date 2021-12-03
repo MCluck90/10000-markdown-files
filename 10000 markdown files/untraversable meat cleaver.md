@@ -92,6 +92,9 @@ Advice from day made
 
 ## Wikilinks load test
 
-[[isotropic calamari]]
-[[nonresilient nipple shield]]
-[[exogenous quoter]]
+[[peruvian scomberomorus cavalla]]
+[[oversexed salal]]
+[[mediaeval three-dimensionality]]
+[[encased family tulostomaceae]]
+[[self-effacing genus nepeta]]
+[[backlink load test]]

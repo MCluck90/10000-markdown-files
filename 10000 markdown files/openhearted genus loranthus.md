@@ -87,7 +87,6 @@ One of having found an
 
 ## Wikilinks load test
 
-[[rectilinear overgrowth]]
-[[paintable korzybski]]
-[[unconformist black bile]]
-[[meatless joliet]]
+[[nonmeaningful rocky mountain bristlecone pine]]
+[[behavioural wet-nurse]]
+[[backlink load test]]

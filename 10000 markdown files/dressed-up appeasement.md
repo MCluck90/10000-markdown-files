@@ -86,5 +86,6 @@ Then turn and curiouser.
 
 ## Wikilinks load test
 
-[[last-place american oriole]]
-[[half-timbered genus cottus]]
+[[triumphant liver fluke]]
+[[devoted genus malus]]
+[[backlink load test]]

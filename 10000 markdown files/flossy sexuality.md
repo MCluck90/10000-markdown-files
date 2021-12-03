@@ -80,7 +80,6 @@ It's the loveliest garden
 
 ## Wikilinks load test
 
-[[uninterested haematoxylum campechianum]]
-[[trilateral bellow]]
-[[fingered toy box]]
-[[laureate sedulity]]
+[[incompatible genus aspis]]
+[[unstatesmanlike distributor]]
+[[backlink load test]]

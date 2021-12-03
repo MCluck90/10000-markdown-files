@@ -91,7 +91,6 @@ Idiot.
 
 ## Wikilinks load test
 
-[[mendicant bladderwrack]]
-[[polygynous fjord]]
-[[swordlike staffordshire bull terrier]]
-[[hapless x-linked scid]]
+[[preachy glutamic oxalacetic transaminase]]
+[[pimpled rubia tinctorum]]
+[[backlink load test]]

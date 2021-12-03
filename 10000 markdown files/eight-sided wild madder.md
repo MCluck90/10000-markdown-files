@@ -84,7 +84,7 @@ By the key and
 
 ## Wikilinks load test
 
-[[whitened tongs]]
-[[bibliographic allium sphaerocephalum]]
-[[exculpatory honey buzzard]]
-[[disintegrative oriental beetle]]
+[[andalusian gook]]
+[[diaphanous bristletail]]
+[[depreciating anaphalis margaritacea]]
+[[backlink load test]]

@@ -77,7 +77,6 @@ Last came the while all
 
 ## Wikilinks load test
 
-[[velvety litmus test]]
-[[advertised genus plesiosaurus]]
-[[bigeneric mad cow disease]]
-[[monotonic gospels]]
+[[easterly hurrying]]
+[[briny parchment]]
+[[backlink load test]]

@@ -75,8 +75,8 @@ Somebody said for poor
 
 ## Wikilinks load test
 
-[[taillike war dance]]
-[[expert discouragement]]
-[[autotrophic foreshank]]
-[[unsuccessful neo-lamarckism]]
-[[cinnamon-red perceptual experience]]
+[[lambent poppy seed]]
+[[joyous malnutrition]]
+[[courageous modeler]]
+[[side pseudovariola]]
+[[backlink load test]]

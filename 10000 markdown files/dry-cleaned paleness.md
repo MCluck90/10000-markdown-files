@@ -87,6 +87,8 @@ as you dry again so awfully
 
 ## Wikilinks load test
 
-[[undramatic genus scincus]]
-[[formulaic tunisian]]
-[[aversive nooks and crannies]]
+[[spider-shaped midiron]]
+[[animistic domain name]]
+[[graecophile federal deposit insurance corporation]]
+[[mortified japanese angelica tree]]
+[[backlink load test]]

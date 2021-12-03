@@ -75,8 +75,9 @@ Idiot.
 
 ## Wikilinks load test
 
-[[breakable genus manduca]]
-[[swart mummichog]]
-[[unforceful tricolor television tube]]
-[[resinated concave shape]]
-[[stimulating cetraria islandica]]
+[[scoreless first-degree burn]]
+[[in ones birthday suit donna]]
+[[filipino morula]]
+[[sectioned scrupulousness]]
+[[inexact army officer]]
+[[backlink load test]]

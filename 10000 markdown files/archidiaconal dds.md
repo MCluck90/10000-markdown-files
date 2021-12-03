@@ -92,7 +92,5 @@ By this grand words
 
 ## Wikilinks load test
 
-[[disintegrative oriental beetle]]
-[[glacial polyuria]]
-[[annelidan bessemer]]
-[[terrific draught beer]]
+[[wayfaring fishpole bamboo]]
+[[backlink load test]]

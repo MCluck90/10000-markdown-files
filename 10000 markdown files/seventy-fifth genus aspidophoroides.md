@@ -86,8 +86,5 @@ cried.
 
 ## Wikilinks load test
 
-[[year-around new york aster]]
-[[peckish beef wellington]]
-[[inartistic bromthymol blue]]
-[[unequalized acanthisitta chloris]]
-[[unsounded subclass cirripedia]]
+[[north-polar cement]]
+[[backlink load test]]

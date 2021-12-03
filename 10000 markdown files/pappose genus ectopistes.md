@@ -89,5 +89,8 @@ IT the pictures of your
 
 ## Wikilinks load test
 
-[[liplike balloon flower]]
-[[biographical omelette pan]]
+[[three-petalled hearing dog]]
+[[shortsighted creeping snowberry]]
+[[steel-plated general relativity]]
+[[aberrant xeranthemum annuum]]
+[[backlink load test]]

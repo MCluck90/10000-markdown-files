@@ -78,7 +78,5 @@ ever Yet you begin
 
 ## Wikilinks load test
 
-[[inhuman sun parlor]]
-[[positivist uintatherium]]
-[[insentient diplotene]]
-[[countryfied xxvi]]
+[[filial capra hircus]]
+[[backlink load test]]

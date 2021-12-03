@@ -77,4 +77,8 @@ ALICE'S RIGHT FOOT ESQ.
 
 ## Wikilinks load test
 
-[[combat-ready navigator]]
+[[inflectional euarctos]]
+[[climbable compunction]]
+[[paddle-shaped aphesis]]
+[[gigantic laurel]]
+[[backlink load test]]

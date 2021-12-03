@@ -85,8 +85,8 @@ See how far below her
 
 ## Wikilinks load test
 
-[[norse tritanopia]]
-[[sex-starved sturdiness]]
-[[dilettanteish gregorian mode]]
-[[endoparasitic nine-spot]]
-[[collagenic little bighorn river]]
+[[self-abnegating screw propeller]]
+[[fractional ev]]
+[[serious fourth of july]]
+[[unprocurable accounts payable]]
+[[backlink load test]]

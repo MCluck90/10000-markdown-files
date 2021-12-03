@@ -82,5 +82,6 @@ IT TO BE TRUE that's
 
 ## Wikilinks load test
 
-[[globose mexican husk tomato]]
-[[supersonic morgen]]
+[[philhellene artillery]]
+[[confutable friction clutch]]
+[[backlink load test]]

@@ -83,4 +83,6 @@ the cur Such a
 
 ## Wikilinks load test
 
-[[utter weather map]]
+[[tricked-out mirish]]
+[[thundery nuclear propulsion]]
+[[backlink load test]]

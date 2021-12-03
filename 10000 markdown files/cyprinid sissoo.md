@@ -89,5 +89,5 @@ then turning to play with said
 
 ## Wikilinks load test
 
-[[inferior gill slit]]
-[[causal pry bar]]
+[[cherubic soupspoon]]
+[[backlink load test]]

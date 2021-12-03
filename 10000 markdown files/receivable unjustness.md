@@ -80,5 +80,7 @@ These words and people
 
 ## Wikilinks load test
 
-[[chaotic rhabdomancer]]
-[[mediocre micruroides]]
+[[enceinte marchand de vin]]
+[[knock-down-and-drag-out maldivian]]
+[[yellow-tinged hepatomegaly]]
+[[backlink load test]]

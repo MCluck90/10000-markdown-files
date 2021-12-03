@@ -79,8 +79,7 @@ There were white kid gloves
 
 ## Wikilinks load test
 
-[[vi antheropeas]]
-[[headstrong atypical pneumonia]]
-[[parietal fervour]]
-[[peruvian scomberomorus cavalla]]
-[[unfashionable left atrium]]
+[[perplexing protester]]
+[[palm-shaped deep temporal vein]]
+[[calculous maui]]
+[[backlink load test]]

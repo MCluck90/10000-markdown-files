@@ -79,5 +79,7 @@ I BEG your hair has won.
 
 ## Wikilinks load test
 
-[[panicked tricholoma venenata]]
-[[western george town]]
+[[divided boarding house]]
+[[wizened gobio]]
+[[irritated victor emanuel ii]]
+[[backlink load test]]

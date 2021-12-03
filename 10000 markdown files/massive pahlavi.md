@@ -93,5 +93,7 @@ He must needs come
 
 ## Wikilinks load test
 
-[[pustulate striped mullet]]
-[[simulated riga]]
+[[cinnamon colored telecast]]
+[[mastoid podsolic soil]]
+[[placental chorale prelude]]
+[[backlink load test]]

@@ -86,5 +86,9 @@ How should meet the
 
 ## Wikilinks load test
 
-[[slummy wilt disease]]
-[[aberrant suspiciousness]]
+[[distaff weathercock]]
+[[tweedy riot control operation]]
+[[surmountable femtometer]]
+[[enthralling spinal canal]]
+[[marketable kangaroo hare]]
+[[backlink load test]]

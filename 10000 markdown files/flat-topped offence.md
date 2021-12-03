@@ -90,5 +90,5 @@ In a muchness did Alice every
 
 ## Wikilinks load test
 
-[[crisp hexanedioic acid]]
-[[stimulating cetraria islandica]]
+[[kaleidoscopical awfulness]]
+[[backlink load test]]

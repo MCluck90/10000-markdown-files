@@ -80,8 +80,9 @@ What a most uncommonly fat Yet
 
 ## Wikilinks load test
 
-[[loyal good authority]]
-[[suspected sickness]]
-[[monogamous backstroker]]
-[[awl-shaped psycholinguist]]
-[[wonder-struck tussilago farfara]]
+[[dusky-coloured babys dummy]]
+[[taking genus vigna]]
+[[nonprehensile nonacceptance]]
+[[jamesian banquet song]]
+[[holistic inkwell]]
+[[backlink load test]]

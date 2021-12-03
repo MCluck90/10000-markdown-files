@@ -76,7 +76,7 @@ Leave off.
 
 ## Wikilinks load test
 
-[[peripteral prairia sabbatia]]
-[[subtractive vaccinium myrsinites]]
-[[listed speaking tube]]
-[[sick-abed pathogenesis]]
+[[undrinkable ngultrum]]
+[[reckless rau-sed]]
+[[intertidal dog breeding]]
+[[backlink load test]]

@@ -88,7 +88,8 @@ If I'd been of
 
 ## Wikilinks load test
 
-[[ambidextrous authority]]
-[[beaten-up nonsteroid]]
-[[dextral earphone]]
-[[fucked-up tritheist]]
+[[smoked genus lonicera]]
+[[bolshevistic spiderwort family]]
+[[evangelistic tickling]]
+[[dwindling fauntleroy]]
+[[backlink load test]]

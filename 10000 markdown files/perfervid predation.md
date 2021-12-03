@@ -86,4 +86,9 @@ Down down stupid for
 
 ## Wikilinks load test
 
-[[antidotal uncovering]]
+[[doughnut-shaped nitric bacteria]]
+[[plugged idol worshiper]]
+[[vestmental cruciferous vegetable]]
+[[instant gutter]]
+[[thistlelike junkyard]]
+[[backlink load test]]

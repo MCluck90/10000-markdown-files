@@ -76,8 +76,9 @@ Do cats nasty low
 
 ## Wikilinks load test
 
-[[serial exculpation]]
-[[fur-bearing wave]]
-[[inertial hot potato]]
-[[dauntless redundancy]]
-[[dark-brown meteorite]]
+[[geothermal vena tibialis]]
+[[toneless felt fungus]]
+[[asexual giant squid]]
+[[uninvited cucking stool]]
+[[brief paleo-amerind]]
+[[backlink load test]]

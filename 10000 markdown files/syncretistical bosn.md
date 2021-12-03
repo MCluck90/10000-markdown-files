@@ -86,8 +86,5 @@ Would the centre of
 
 ## Wikilinks load test
 
-[[interactive genus artemisia]]
-[[cognate defecator]]
-[[aeronautical hagiolatry]]
-[[unprofessional guanabenz]]
-[[fractional ev]]
+[[rhyming e-bomb]]
+[[backlink load test]]

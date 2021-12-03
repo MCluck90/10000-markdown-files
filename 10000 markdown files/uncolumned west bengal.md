@@ -84,8 +84,6 @@ Exactly as quickly that
 
 ## Wikilinks load test
 
-[[getable sewage works]]
-[[old-line blackboard]]
-[[astigmatic fiefdom]]
-[[bloodless stuff and nonsense]]
-[[pyrotechnical passenger vehicle]]
+[[up to his neck strawberry pigweed]]
+[[mistreated nomination]]
+[[backlink load test]]

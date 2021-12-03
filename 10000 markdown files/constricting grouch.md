@@ -86,6 +86,9 @@ so very civil of Canterbury
 
 ## Wikilinks load test
 
-[[abroad chocolate]]
-[[kidney-shaped rarefaction]]
-[[faustian corkboard]]
+[[nonappointive comte]]
+[[chubby costa rican monetary unit]]
+[[patriarchic brassica napus]]
+[[insentient diplotene]]
+[[adsorbable ionian sea]]
+[[backlink load test]]

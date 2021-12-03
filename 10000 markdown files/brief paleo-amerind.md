@@ -79,8 +79,6 @@ London is enough.
 
 ## Wikilinks load test
 
-[[custard-like cleaning woman]]
-[[destructive-metabolic landscapist]]
-[[reclaimable shakti]]
-[[low-toned mujahedeen khalq]]
-[[exhaustible one-trillionth]]
+[[fermentable omphalus]]
+[[unpronounceable rack of lamb]]
+[[backlink load test]]

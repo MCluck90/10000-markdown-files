@@ -80,7 +80,9 @@ wow.
 
 ## Wikilinks load test
 
-[[ninefold celestial point]]
-[[dolichocephalic heteroscelus]]
-[[illegible weal]]
-[[agonising confederate states of america]]
+[[scrabbly harlow shapley]]
+[[nationwide merchandise]]
+[[noncollapsable water-cooled reactor]]
+[[frothy ribes sativum]]
+[[pleasing redbrush]]
+[[backlink load test]]

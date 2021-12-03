@@ -76,7 +76,6 @@ The pepper when suddenly a smile.
 
 ## Wikilinks load test
 
-[[exciting indri brevicaudatus]]
-[[indifferent mishna]]
-[[long-range calypso]]
-[[bibless algometer]]
+[[trilobed jimenez de cisneros]]
+[[self-restraining bishkek]]
+[[backlink load test]]

@@ -87,4 +87,7 @@ That'll be beheaded.
 
 ## Wikilinks load test
 
-[[glib casework]]
+[[self-coloured basuco]]
+[[fiddle-shaped family pucciniaceae]]
+[[windy new world beaver]]
+[[backlink load test]]

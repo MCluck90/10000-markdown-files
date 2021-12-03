@@ -86,7 +86,8 @@ But it's pleased tone I'm
 
 ## Wikilinks load test
 
-[[buddhist skin-diver]]
-[[bar-shaped morrison]]
-[[y2k compliant buggy whip]]
-[[foreboding slipper plant]]
+[[meiotic louis eugene felix neel]]
+[[political husband-wife privilege]]
+[[velvety-plumaged john updike]]
+[[pound-foolish pebibyte]]
+[[backlink load test]]

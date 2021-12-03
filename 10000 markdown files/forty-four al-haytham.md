@@ -80,7 +80,6 @@ CHORUS.
 
 ## Wikilinks load test
 
-[[nonslippery umma]]
-[[fretful gastroesophageal reflux]]
-[[sanious salivary duct]]
-[[patelliform pavlov]]
+[[exogamous equanimity]]
+[[sweet-breathed gesell]]
+[[backlink load test]]

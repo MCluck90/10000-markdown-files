@@ -87,7 +87,5 @@ Dinah.
 
 ## Wikilinks load test
 
-[[serial hippo regius]]
-[[hydropathic nomenclature]]
-[[inherent acciaccatura]]
-[[semiterrestrial drafting board]]
+[[horrid mysoline]]
+[[backlink load test]]

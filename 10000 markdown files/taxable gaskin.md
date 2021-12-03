@@ -77,7 +77,8 @@ Hush.
 
 ## Wikilinks load test
 
-[[telescopic chaim soutine]]
-[[streamlined busyness]]
-[[carbonyl seagull]]
-[[irreversible physicist]]
+[[contracted crew member]]
+[[trinuclear spirilla]]
+[[connected james clerk maxwell]]
+[[passable dodecahedron]]
+[[backlink load test]]

@@ -78,5 +78,8 @@ Call it really have prizes.
 
 ## Wikilinks load test
 
-[[dissected gridiron]]
-[[pustulate striped mullet]]
+[[poverty-stricken sheikha]]
+[[curly-grained levi-strauss]]
+[[soft-nosed genus myriophyllum]]
+[[round-arm euthenics]]
+[[backlink load test]]

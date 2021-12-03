@@ -89,8 +89,9 @@ There's a sigh he stole those
 
 ## Wikilinks load test
 
-[[brachycranial humectant]]
-[[biotitic hiv]]
-[[self-governing smidgin]]
-[[crinkly feebleness]]
-[[loamy space-reflection symmetry]]
+[[heavenly babinski reflex]]
+[[exploitative mojarra]]
+[[red-violet poinciana]]
+[[specified order temnospondyli]]
+[[isopteran repulse]]
+[[backlink load test]]

@@ -80,4 +80,6 @@ If I'd been running
 
 ## Wikilinks load test
 
-[[fingered toy box]]
+[[cenogenetic steve reich]]
+[[cytopathogenic serge]]
+[[backlink load test]]

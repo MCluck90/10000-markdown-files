@@ -78,8 +78,6 @@ London is Bill was labelled
 
 ## Wikilinks load test
 
-[[soft-witted redeemer]]
-[[decompositional genus sylvilagus]]
-[[irreligious rg]]
-[[ranking california buckwheat]]
-[[abreast princeton university]]
+[[victorian freshwater]]
+[[fuzzy crocodile river]]
+[[backlink load test]]

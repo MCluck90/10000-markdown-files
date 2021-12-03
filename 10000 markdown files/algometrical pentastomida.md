@@ -85,7 +85,7 @@ Have you like for
 
 ## Wikilinks load test
 
-[[caller minor tranquillizer]]
-[[unsyllabled allosaur]]
-[[too bad araneae]]
-[[unappetising whale shark]]
+[[porous alternative]]
+[[gi arianism]]
+[[occipital potion]]
+[[backlink load test]]

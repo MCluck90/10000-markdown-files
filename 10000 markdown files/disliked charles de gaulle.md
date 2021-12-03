@@ -90,6 +90,8 @@ Poor little ledge of thunder
 
 ## Wikilinks load test
 
-[[unresolved unstableness]]
-[[selfless lantern fly]]
-[[single-lane metal plating]]
+[[ophthalmic arterial pressure]]
+[[paintable barbital]]
+[[maddening baseball league]]
+[[friable aristocrat]]
+[[backlink load test]]

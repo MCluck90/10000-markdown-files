@@ -84,7 +84,7 @@ Pig.
 
 ## Wikilinks load test
 
-[[umbellate gayfeather]]
-[[gallinaceous term of office]]
-[[nonelective lechery]]
-[[ended stachyose]]
+[[marketable kangaroo hare]]
+[[childish gummed label]]
+[[valent rotor coil]]
+[[backlink load test]]

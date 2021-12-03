@@ -81,7 +81,6 @@ Mind now for catching mice
 
 ## Wikilinks load test
 
-[[unscalable ashtray]]
-[[bitty police officer]]
-[[livelong clergy]]
-[[bimolecular apple jelly]]
+[[atrophic gaia]]
+[[monaural cadmium yellow]]
+[[backlink load test]]

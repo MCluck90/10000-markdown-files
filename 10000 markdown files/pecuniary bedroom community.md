@@ -78,8 +78,5 @@ Up above a sharp hiss
 
 ## Wikilinks load test
 
-[[undatable tetanus]]
-[[calycular prairie trillium]]
-[[operculate phylum pyrrophyta]]
-[[cortico-hypothalamic genus psychotria]]
-[[incursive actitis]]
+[[pro bono aeschylus]]
+[[backlink load test]]

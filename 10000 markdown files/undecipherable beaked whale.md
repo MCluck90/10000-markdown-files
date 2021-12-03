@@ -87,7 +87,8 @@ Their heads downward.
 
 ## Wikilinks load test
 
-[[grating obligato]]
-[[harsh-voiced bell foundry]]
-[[slummy wilt disease]]
-[[plugged idol worshiper]]
+[[laced vertebrate]]
+[[narrowed family esocidae]]
+[[pyroligneous pelvic inflammatory disease]]
+[[calcitic superior rectus muscle]]
+[[backlink load test]]

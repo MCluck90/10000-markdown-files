@@ -85,6 +85,5 @@ How brave they'll remember
 
 ## Wikilinks load test
 
-[[undeserving canterbury bell]]
-[[wonder-struck tussilago farfara]]
-[[cantonal toxicodendron vernicifluum]]
+[[noetic inter-group communication]]
+[[backlink load test]]

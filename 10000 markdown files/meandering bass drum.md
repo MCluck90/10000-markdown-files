@@ -75,4 +75,6 @@ Soup will take out its full
 
 ## Wikilinks load test
 
-[[arbitrative bomarea edulis]]
+[[oil-fired buffalo bill cody]]
+[[fan-leafed moorcock]]
+[[backlink load test]]

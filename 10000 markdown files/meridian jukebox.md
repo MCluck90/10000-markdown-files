@@ -76,7 +76,8 @@ wow.
 
 ## Wikilinks load test
 
-[[songful telopea speciosissima]]
-[[anti-american sublingual salivary gland]]
-[[predatory giant schnauzer]]
-[[unsnarled nicholas i]]
+[[flimsy flume]]
+[[overgreedy identity operator]]
+[[insecticidal sod house]]
+[[thermolabile underdrawers]]
+[[backlink load test]]

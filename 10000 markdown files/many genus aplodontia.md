@@ -87,8 +87,8 @@ Ahem.
 
 ## Wikilinks load test
 
-[[honeycombed fosbury flop]]
-[[dark-blue republic of ghana]]
-[[boisterous gardenia augusta]]
-[[tessellated genus xylosma]]
-[[catarrhal plavix]]
+[[tricked-out bayard]]
+[[virginal zambezi river]]
+[[expressionless exponential curve]]
+[[top-heavy comp]]
+[[backlink load test]]

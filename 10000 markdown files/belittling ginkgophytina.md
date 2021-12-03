@@ -83,6 +83,6 @@ muttered the same as this
 
 ## Wikilinks load test
 
-[[empty brainstorm]]
-[[goddamn deckle]]
-[[rife cubbyhole]]
+[[spindly laotian capital]]
+[[nonmusical fixed costs]]
+[[backlink load test]]

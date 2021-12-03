@@ -88,4 +88,7 @@ London is a fish came ten
 
 ## Wikilinks load test
 
-[[canonised power user]]
+[[moneyed blantyre]]
+[[abkhazian caucasoid race]]
+[[mediterranean drift ice]]
+[[backlink load test]]

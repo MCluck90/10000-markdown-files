@@ -84,6 +84,8 @@ What a summer days and he's
 
 ## Wikilinks load test
 
-[[implacable vamper]]
-[[blackish-grey drive-by shooting]]
-[[spectroscopic co-worker]]
+[[re-entrant combat neurosis]]
+[[appellative short-leaf pine]]
+[[archducal eye infection]]
+[[buddhist canadian hemlock]]
+[[backlink load test]]

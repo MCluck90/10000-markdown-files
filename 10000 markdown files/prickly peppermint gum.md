@@ -87,8 +87,8 @@ one shilling the deepest
 
 ## Wikilinks load test
 
-[[forty-nine leading indicator]]
-[[onerous avocado pear]]
-[[informative pomaderris]]
-[[unsigned nail pulling]]
-[[self-restraining bishkek]]
+[[ducal pandemic]]
+[[sericeous i peter]]
+[[platyrhinian cyatheaceae]]
+[[consensual royal flush]]
+[[backlink load test]]

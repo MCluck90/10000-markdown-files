@@ -89,7 +89,7 @@ Boots and stupid and
 
 ## Wikilinks load test
 
-[[adjuvant africander]]
-[[emollient quarter mile]]
-[[mediocre viburnum opulus]]
-[[awestricken genus argyreia]]
+[[astounding offshore rig]]
+[[slow-moving seismogram]]
+[[placed tank destroyer]]
+[[backlink load test]]

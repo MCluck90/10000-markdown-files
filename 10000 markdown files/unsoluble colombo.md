@@ -86,8 +86,9 @@ Tis the guests to
 
 ## Wikilinks load test
 
-[[upcurved mccarthy]]
-[[maoist von blucher]]
-[[ossicular hemp family]]
-[[rhenish out]]
-[[holophytic gore vidal]]
+[[insecure squillidae]]
+[[dud intercommunion]]
+[[funicular plastic surgeon]]
+[[unfrozen direct evidence]]
+[[breeched ginger beer]]
+[[backlink load test]]

@@ -79,4 +79,8 @@ Just at present.
 
 ## Wikilinks load test
 
-[[paperlike cello]]
+[[violet-flowered fatty acid]]
+[[pie-eyed golden pea]]
+[[funnel-shaped rhamnus carolinianus]]
+[[pitiable allowance]]
+[[backlink load test]]

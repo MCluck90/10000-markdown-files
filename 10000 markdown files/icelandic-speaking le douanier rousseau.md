@@ -81,7 +81,7 @@ Prizes.
 
 ## Wikilinks load test
 
-[[swollen-headed insightfulness]]
-[[crocked counterclaim]]
-[[most quota]]
-[[asexual giant squid]]
+[[dissatisfied phoneme]]
+[[lordless mental synthesis]]
+[[silvan lipoma]]
+[[backlink load test]]

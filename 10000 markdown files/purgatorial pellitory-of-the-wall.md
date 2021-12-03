@@ -89,8 +89,9 @@ one Alice whose thoughts
 
 ## Wikilinks load test
 
-[[unrighteous caffeine]]
-[[carbonated nightwear]]
-[[unfueled flare path]]
-[[cone-bearing basketeer]]
-[[directing annunciation day]]
+[[aeronautical surf fishing]]
+[[woozy hydromorphone]]
+[[zestful crepe fern]]
+[[fictitious alcedo]]
+[[undocumented she-goat]]
+[[backlink load test]]

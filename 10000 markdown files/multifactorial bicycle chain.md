@@ -82,8 +82,6 @@ What's your places ALL.
 
 ## Wikilinks load test
 
-[[chemosorptive banteng]]
-[[south-polar meleagrididae]]
-[[diagnostic immunohistochemistry]]
-[[extinguishable tidewater region]]
-[[white-lipped spiny anteater]]
+[[ubiquitous filbert]]
+[[ii crookneck]]
+[[backlink load test]]

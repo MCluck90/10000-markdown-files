@@ -83,7 +83,7 @@ Call it or Longitude either you
 
 ## Wikilinks load test
 
-[[cut out recife]]
-[[edgy igd]]
-[[neutralized dystopia]]
-[[fertilizable jejuneness]]
+[[teachable slapshot]]
+[[ravaged compact]]
+[[shallow-draught beach plum]]
+[[backlink load test]]

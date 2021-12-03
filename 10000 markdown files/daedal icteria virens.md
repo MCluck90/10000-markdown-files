@@ -78,5 +78,5 @@ shouted the pig-baby was lit
 
 ## Wikilinks load test
 
-[[unofficial equinoctial line]]
-[[bowleg sea change]]
+[[tutorial cardura]]
+[[backlink load test]]

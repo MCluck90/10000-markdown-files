@@ -88,8 +88,5 @@ Read them but all
 
 ## Wikilinks load test
 
-[[acherontic bacteriophage]]
-[[basket-shaped schoolmistress]]
-[[paintable erysimum]]
-[[aeschylean quicksilver]]
-[[soft-footed fingerpost]]
+[[tenth mammee apple]]
+[[backlink load test]]

@@ -86,6 +86,6 @@ I'd better to grow taller
 
 ## Wikilinks load test
 
-[[trusty chukchi sea]]
-[[chatty smoking compartment]]
-[[untraditional connectedness]]
+[[adverse empty words]]
+[[nonfat hare wallaby]]
+[[backlink load test]]

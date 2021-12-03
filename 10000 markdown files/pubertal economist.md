@@ -86,7 +86,7 @@ Fetch me but tea.
 
 ## Wikilinks load test
 
-[[ambiguous homepage]]
-[[renowned dolichos lablab]]
-[[ferret-sized altar wine]]
-[[murky genus allionia]]
+[[award-winning psychiatric hospital]]
+[[tranquil butacaine sulfate]]
+[[stock-still christopher william bradshaw isherwood]]
+[[backlink load test]]

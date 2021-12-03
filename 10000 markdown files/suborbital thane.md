@@ -91,7 +91,5 @@ Tis the world of feet.
 
 ## Wikilinks load test
 
-[[actinic inhalator]]
-[[nonsubjective afflatus]]
-[[jocund ovid]]
-[[ultrasonic eight]]
+[[mastoid order squamata]]
+[[backlink load test]]

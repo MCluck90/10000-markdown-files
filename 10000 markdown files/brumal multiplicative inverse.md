@@ -79,5 +79,5 @@ ARE OLD FATHER WILLIAM to
 
 ## Wikilinks load test
 
-[[hawaiian falcon]]
-[[antitank weightiness]]
+[[amuck kan river]]
+[[backlink load test]]

@@ -80,7 +80,9 @@ Stop this the thistle again You
 
 ## Wikilinks load test
 
-[[revitalising sir john everett millais]]
-[[loud-voiced archduchy]]
-[[lateral bandy legs]]
-[[swollen candy bar]]
+[[posed epona]]
+[[tabby scombroid]]
+[[sabbatical gypsywort]]
+[[hawaiian falcon]]
+[[alphanumeric somersaulting]]
+[[backlink load test]]

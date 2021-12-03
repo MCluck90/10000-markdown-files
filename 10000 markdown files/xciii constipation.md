@@ -83,8 +83,6 @@ Silence in one as follows
 
 ## Wikilinks load test
 
-[[bifoliate scolopax]]
-[[postnuptial computer-oriented language]]
-[[ethnographic chair lift]]
-[[antifertility gangrene]]
-[[noncollapsable bootleg]]
+[[prospective purple sanicle]]
+[[allowable phytolacca dioica]]
+[[backlink load test]]

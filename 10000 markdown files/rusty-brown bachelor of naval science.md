@@ -80,6 +80,9 @@ CHORUS.
 
 ## Wikilinks load test
 
-[[photochemical canadian goose]]
-[[strikebound frost]]
-[[adagio enclave]]
+[[unconfined left-hander]]
+[[ultra king devil]]
+[[mat dried fruit]]
+[[garbed spheniscidae]]
+[[substantival sand wedge]]
+[[backlink load test]]

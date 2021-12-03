@@ -82,5 +82,9 @@ To begin at Two.
 
 ## Wikilinks load test
 
-[[analeptic airfare]]
-[[butterfly-shaped doubloon]]
+[[slippered pancreatin]]
+[[photogenic acid value]]
+[[unhumorous technology administration]]
+[[pivotal kalaallit nunaat]]
+[[toothy fragrant water lily]]
+[[backlink load test]]

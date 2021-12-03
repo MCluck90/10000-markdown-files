@@ -80,7 +80,5 @@ In the twinkling.
 
 ## Wikilinks load test
 
-[[cx sliding board]]
-[[commanding genus tripleurospermum]]
-[[penetrable badminton court]]
-[[incised table tennis]]
+[[burlesque punch pliers]]
+[[backlink load test]]

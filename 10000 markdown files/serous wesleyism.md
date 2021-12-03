@@ -92,8 +92,8 @@ I'd nearly forgotten that you're
 
 ## Wikilinks load test
 
-[[wriggly glad]]
-[[correct tosh]]
-[[fatless coffee shop]]
-[[cautionary femoral vein]]
-[[sour first-rater]]
+[[numeric bhagavad-gita]]
+[[distaff weathercock]]
+[[cloven-hoofed corythosaurus]]
+[[unsocial shoulder bag]]
+[[backlink load test]]

@@ -82,6 +82,5 @@ Reeling and turns out.
 
 ## Wikilinks load test
 
-[[anglican baldy]]
-[[three-legged scruples]]
-[[hammy payment]]
+[[distributive polish monetary unit]]
+[[backlink load test]]

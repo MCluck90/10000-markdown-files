@@ -88,4 +88,8 @@ With what ARE you
 
 ## Wikilinks load test
 
-[[fluffy puzzler]]
+[[verbatim francois charles mauriac]]
+[[incorrect owner-driver]]
+[[sapphirine usn]]
+[[rhenish likeliness]]
+[[backlink load test]]

@@ -87,6 +87,7 @@ screamed Off with it off
 
 ## Wikilinks load test
 
-[[flag-waving sinusoidal projection]]
-[[exasperated uzbak]]
-[[cataplastic petabit]]
+[[well-ordered arteria radialis]]
+[[disheartened europeanisation]]
+[[free-enterprise kordofan]]
+[[backlink load test]]

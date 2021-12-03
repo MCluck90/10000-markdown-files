@@ -80,8 +80,9 @@ I call him the
 
 ## Wikilinks load test
 
-[[iodized plaint]]
-[[reflex garcia lorca]]
-[[splitting bowel]]
-[[slurred onion]]
-[[somali genus cephalopterus]]
+[[decorous speck]]
+[[isotropic calamari]]
+[[shaven africanized bee]]
+[[juridic chemical chain]]
+[[stunning rote]]
+[[backlink load test]]

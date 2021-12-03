@@ -75,5 +75,8 @@ quite out again dear and
 
 ## Wikilinks load test
 
-[[ruby-red center stage]]
-[[self-renewing thoroughbred]]
+[[transplantable east indian rosebay]]
+[[cartesian mexican monetary unit]]
+[[splotched undoer]]
+[[grayish-white ferber]]
+[[backlink load test]]

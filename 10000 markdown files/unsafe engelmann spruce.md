@@ -73,8 +73,9 @@ Beautiful Soup does yer honour at
 
 ## Wikilinks load test
 
-[[bucolic senility]]
-[[pre-columbian bellman]]
-[[mesmerised haloperidol]]
-[[cut-and-dry siderochrestic anaemia]]
-[[sliding deracination]]
+[[gardant distich]]
+[[botswanan shyness]]
+[[crocked genus ascaridia]]
+[[supranormal cortland]]
+[[iridic trifler]]
+[[backlink load test]]

@@ -82,4 +82,6 @@ wow.
 
 ## Wikilinks load test
 
-[[unsatisfactory animal foot]]
+[[shrinkable clique]]
+[[inflectional silkiness]]
+[[backlink load test]]

@@ -92,7 +92,7 @@ Explain all ready.
 
 ## Wikilinks load test
 
-[[aeronautical surf fishing]]
-[[plugged idol worshiper]]
-[[addable megalocyte]]
-[[fluffy puzzler]]
+[[fossilized apollinaire]]
+[[iodized bower actinidia]]
+[[comme il faut admission day]]
+[[backlink load test]]

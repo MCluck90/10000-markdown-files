@@ -88,8 +88,6 @@ Shan't said What I
 
 ## Wikilinks load test
 
-[[hundred-and-twentieth hillside]]
-[[nonmechanical jotunn]]
-[[profitable melancholia]]
-[[half-dozen california coffee]]
-[[impuissant primacy]]
+[[touched firebox]]
+[[second-string fibroblast]]
+[[backlink load test]]

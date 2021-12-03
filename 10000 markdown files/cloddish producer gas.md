@@ -80,7 +80,5 @@ Suddenly she bore it
 
 ## Wikilinks load test
 
-[[moldovan ring rot fungus]]
-[[inerrant zygotene]]
-[[burbling rana goliath]]
-[[exasperated uzbak]]
+[[perturbing treasure chest]]
+[[backlink load test]]

@@ -79,6 +79,8 @@ Some of educations in
 
 ## Wikilinks load test
 
-[[lutheran chinch bug]]
-[[tensile defacement]]
-[[y-shaped uhf]]
+[[lead-free som]]
+[[actuated albuginea]]
+[[siouan-speaking genus sison]]
+[[elderly pyrenees daisy]]
+[[backlink load test]]

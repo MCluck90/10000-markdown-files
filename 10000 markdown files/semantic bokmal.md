@@ -80,8 +80,7 @@ Where are gone far before
 
 ## Wikilinks load test
 
-[[articulatory pastureland]]
-[[monestrous genus gymnosporangium]]
-[[disinherited diathermy]]
-[[statutory burhinus oedicnemus]]
-[[rhinal superscript]]
+[[home-style serigraph]]
+[[determined dalea]]
+[[french acaridiasis]]
+[[backlink load test]]

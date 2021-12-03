@@ -79,8 +79,6 @@ Shy they all ridges
 
 ## Wikilinks load test
 
-[[mongolian schrodinger]]
-[[unaccessible rugby ball]]
-[[ramate nongonococcal urethritis]]
-[[pessimistic velvetleaf]]
-[[elfin pseudocolus fusiformis]]
+[[nonmetamorphic ok]]
+[[blunt immediacy]]
+[[backlink load test]]

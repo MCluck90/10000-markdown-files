@@ -85,6 +85,8 @@ muttered to beautify is I hope
 
 ## Wikilinks load test
 
-[[caryophyllaceous mobius]]
-[[denunciatory west africa]]
-[[unpicturesque snack bar]]
+[[transcontinental hippocrepis]]
+[[inoffensive piper nigrum]]
+[[polygonal common plantain]]
+[[predisposed pinhead]]
+[[backlink load test]]

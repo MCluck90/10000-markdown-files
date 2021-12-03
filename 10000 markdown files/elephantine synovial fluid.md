@@ -84,5 +84,5 @@ Let's go THERE again BEFORE
 
 ## Wikilinks load test
 
-[[offstage spirits]]
-[[compact pan]]
+[[appeasable felt tip]]
+[[backlink load test]]

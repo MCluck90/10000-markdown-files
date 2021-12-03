@@ -77,6 +77,5 @@ Always lay the Rabbit read
 
 ## Wikilinks load test
 
-[[plumaged ripper]]
-[[continent james monroe]]
-[[sticky snow mushroom]]
+[[millenary charades]]
+[[backlink load test]]

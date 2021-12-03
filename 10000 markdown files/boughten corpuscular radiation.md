@@ -79,8 +79,5 @@ Same as an advantage
 
 ## Wikilinks load test
 
-[[assaultive levantine]]
-[[auxetic automatic pistol]]
-[[indecent tongue tie]]
-[[amalgamative filing clerk]]
-[[valvular balloon]]
+[[connate rupicolous plant]]
+[[backlink load test]]

@@ -87,7 +87,7 @@ Serpent I needn't be
 
 ## Wikilinks load test
 
-[[yellowish stenotaphrum secundatum]]
-[[plumelike jalapeno pepper]]
-[[amenable pinky]]
-[[radio-opaque insufflation]]
+[[daredevil philharmonic pitch]]
+[[poverty-stricken plastic explosive]]
+[[capacious plectrophenax]]
+[[backlink load test]]

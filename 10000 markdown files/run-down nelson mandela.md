@@ -79,6 +79,9 @@ Ahem.
 
 ## Wikilinks load test
 
-[[three-petalled greenhood]]
-[[caecilian slack water]]
-[[algometrical pentastomida]]
+[[unrelated rictus]]
+[[freakish anima]]
+[[thoriated warder]]
+[[taillike war dance]]
+[[cutaneous periodic law]]
+[[backlink load test]]

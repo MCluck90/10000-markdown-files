@@ -83,5 +83,5 @@ they'll remember feeling.
 
 ## Wikilinks load test
 
-[[medial strategics]]
-[[dipylon polyanthus]]
+[[meet metre]]
+[[backlink load test]]

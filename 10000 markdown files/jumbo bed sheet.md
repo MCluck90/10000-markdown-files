@@ -80,7 +80,5 @@ Your hair.
 
 ## Wikilinks load test
 
-[[impressive riffle]]
-[[postmillennial temptingness]]
-[[spoon-shaped pepto-bismal]]
-[[abroach shell ginger]]
+[[additive publicizer]]
+[[backlink load test]]

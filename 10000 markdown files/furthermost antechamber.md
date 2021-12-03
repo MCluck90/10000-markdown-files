@@ -80,8 +80,5 @@ Pat.
 
 ## Wikilinks load test
 
-[[metaphoric standoff]]
-[[pessimal taboo]]
-[[diestrual navel point]]
-[[rough-haired genus typha]]
-[[prerequisite luger]]
+[[pilose cassette]]
+[[backlink load test]]

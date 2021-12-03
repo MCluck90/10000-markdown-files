@@ -88,5 +88,5 @@ William's conduct at Two days
 
 ## Wikilinks load test
 
-[[donatist classical latin]]
-[[damning salt ii]]
+[[bolographic duck-billed platypus]]
+[[backlink load test]]

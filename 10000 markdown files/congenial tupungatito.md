@@ -86,7 +86,7 @@ Cheshire Puss she sat
 
 ## Wikilinks load test
 
-[[semiparasitic locus classicus]]
-[[unauthorised shoulder strap]]
-[[pantheist baby-boom generation]]
-[[tottery nuffield]]
+[[enceinte cart horse]]
+[[flavourous butea gum]]
+[[techy adelie land]]
+[[backlink load test]]

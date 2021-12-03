@@ -81,5 +81,5 @@ Mind now but little
 
 ## Wikilinks load test
 
-[[overproud monk]]
-[[other sexton]]
+[[semiparasitic locus classicus]]
+[[backlink load test]]

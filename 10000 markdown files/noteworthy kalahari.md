@@ -91,7 +91,7 @@ on for some noise
 
 ## Wikilinks load test
 
-[[discomycetous polytetrafluoroethylene]]
-[[beltlike payables]]
-[[seminiferous vampirism]]
-[[unpatriotic botanical medicine]]
+[[umbellate gayfeather]]
+[[open-minded quartering]]
+[[sheltered oxblood red]]
+[[backlink load test]]

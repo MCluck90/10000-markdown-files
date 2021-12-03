@@ -92,5 +92,5 @@ Either the world would in silence.
 
 ## Wikilinks load test
 
-[[sunless tracer bullet]]
-[[effortless captaincy]]
+[[setose cowpen daisy]]
+[[backlink load test]]

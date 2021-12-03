@@ -87,7 +87,7 @@ THAT is very easy
 
 ## Wikilinks load test
 
-[[nearby states rights democratic party]]
-[[insular wahabism]]
-[[archducal eye infection]]
-[[undetectable cross country]]
+[[aversive ladylikeness]]
+[[ceramic claviceps purpurea]]
+[[unfaltering pediculus capitis]]
+[[backlink load test]]

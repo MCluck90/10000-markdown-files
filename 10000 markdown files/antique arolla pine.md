@@ -85,4 +85,8 @@ Dinah'll be like this creature but
 
 ## Wikilinks load test
 
-[[moorish genus klebsiella]]
+[[enured angraecum]]
+[[wiggly plume grass]]
+[[largo daniel rutherford]]
+[[fundamentalist donatello]]
+[[backlink load test]]

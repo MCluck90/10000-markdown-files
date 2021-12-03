@@ -90,8 +90,7 @@ An invitation from all my mind
 
 ## Wikilinks load test
 
-[[blameful haemangioma]]
-[[adulterated course catalogue]]
-[[knock-down-and-drag-out maldivian]]
-[[recrudescent trailing four oclock]]
-[[grenadian road agent]]
+[[oxidized rocket salad]]
+[[diverse kwacha]]
+[[symbolic home from home]]
+[[backlink load test]]

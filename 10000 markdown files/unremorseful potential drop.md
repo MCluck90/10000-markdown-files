@@ -94,5 +94,5 @@ Alas.
 
 ## Wikilinks load test
 
-[[jurisdictional malaria parasite]]
-[[pharmacological candied apple]]
+[[horrid mysoline]]
+[[backlink load test]]

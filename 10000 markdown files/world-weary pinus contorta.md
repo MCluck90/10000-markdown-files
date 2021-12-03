@@ -83,4 +83,9 @@ Twinkle twinkle twinkle and curiouser.
 
 ## Wikilinks load test
 
-[[precooled klutz]]
+[[out of the blue writ of execution]]
+[[clear-cut grass bacillus]]
+[[brassbound border patrol]]
+[[uncorrectable aborigine]]
+[[photoemissive first derivative]]
+[[backlink load test]]

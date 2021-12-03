@@ -78,6 +78,5 @@ Some of Paris is Birds
 
 ## Wikilinks load test
 
-[[mutilated genus serranus]]
-[[bigmouthed caul]]
-[[dioecian truncocolumella]]
+[[techy adelie land]]
+[[backlink load test]]

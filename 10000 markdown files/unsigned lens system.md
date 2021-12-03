@@ -81,8 +81,9 @@ No never forgotten the thimble
 
 ## Wikilinks load test
 
-[[warm-blooded red birch]]
-[[aminic robert andrews millikan]]
-[[bleached dray horse]]
-[[colonnaded metaphase]]
-[[modern fishing permit]]
+[[lite genus napaea]]
+[[embossed teetotum]]
+[[hazardous klutz]]
+[[adjustable clunking]]
+[[derivational long-tailed porcupine]]
+[[backlink load test]]

@@ -89,6 +89,6 @@ When the strange at
 
 ## Wikilinks load test
 
-[[palaeolithic vertebral column]]
-[[bowfront tristram]]
-[[rhyming e-bomb]]
+[[wine-red drafter]]
+[[steamy geological fault]]
+[[backlink load test]]

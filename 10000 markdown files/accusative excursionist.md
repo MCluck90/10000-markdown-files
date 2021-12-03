@@ -86,5 +86,7 @@ Do come back once with diamonds
 
 ## Wikilinks load test
 
-[[dehumanised omelette pan]]
-[[predisposed orthopteron]]
+[[unshockable tuning fork]]
+[[teachable slapshot]]
+[[crosswise grams method]]
+[[backlink load test]]

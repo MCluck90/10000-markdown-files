@@ -77,5 +77,9 @@ Some of singers in
 
 ## Wikilinks load test
 
-[[vacillating anode]]
-[[dauntless redundancy]]
+[[ruinous erivan]]
+[[haemic benignancy]]
+[[aberrant xeranthemum annuum]]
+[[panhellenic broomstick]]
+[[stoic character reference]]
+[[backlink load test]]

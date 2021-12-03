@@ -86,7 +86,7 @@ Therefore I'm angry tone don't
 
 ## Wikilinks load test
 
-[[semihard clothespress]]
-[[pointillist grand total]]
-[[tight-laced nominalism]]
-[[wimpy cricket]]
+[[upcountry castor bean]]
+[[uncorrected dunkirk]]
+[[tutorial cardura]]
+[[backlink load test]]

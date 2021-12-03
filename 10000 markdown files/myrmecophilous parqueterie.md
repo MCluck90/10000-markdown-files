@@ -76,7 +76,8 @@ Sounds of more puzzled
 
 ## Wikilinks load test
 
-[[eponymous fish stick]]
-[[unaccustomed basic principle]]
-[[oil-fired buffalo bill cody]]
-[[unsightly deuterium oxide]]
+[[cytoplasmatic plum tomato]]
+[[sunk naismith]]
+[[pederastic two-spotted ladybug]]
+[[biggish corkscrew]]
+[[backlink load test]]

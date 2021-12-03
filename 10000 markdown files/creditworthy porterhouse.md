@@ -84,8 +84,8 @@ said that ridiculous fashion and again
 
 ## Wikilinks load test
 
-[[methodist double bassoon]]
-[[execrable bougainvillea glabra]]
-[[fossilized apollinaire]]
-[[terminable marlowe]]
-[[calculating litigiousness]]
+[[bridal lalthyrus tingitanus]]
+[[animate conscientious objector]]
+[[postulational prunus serrulata]]
+[[empirical catoptrics]]
+[[backlink load test]]

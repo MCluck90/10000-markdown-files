@@ -77,6 +77,5 @@ Please then another figure of tarts
 
 ## Wikilinks load test
 
-[[bronze strongylodon]]
-[[crystal clear genus colocasia]]
-[[lamarckian philadelphus coronarius]]
+[[incorruptible steward]]
+[[backlink load test]]

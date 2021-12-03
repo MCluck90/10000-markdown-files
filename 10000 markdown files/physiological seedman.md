@@ -90,6 +90,5 @@ fetch things in my
 
 ## Wikilinks load test
 
-[[spayed theia]]
-[[unbelieving genus symphalangus]]
-[[smooth-faced trifolium stoloniferum]]
+[[apocalyptical sobbing]]
+[[backlink load test]]

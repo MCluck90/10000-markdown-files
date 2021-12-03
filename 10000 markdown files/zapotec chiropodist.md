@@ -88,4 +88,9 @@ Call the comfits luckily the hedgehog
 
 ## Wikilinks load test
 
-[[jolted clunch]]
+[[diagrammatic duplex]]
+[[inebriated reading teacher]]
+[[disjoint cynipid gall wasp]]
+[[modern fishing permit]]
+[[off calfskin]]
+[[backlink load test]]

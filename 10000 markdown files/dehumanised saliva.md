@@ -83,7 +83,8 @@ See how funny it'll never executes
 
 ## Wikilinks load test
 
-[[too bad araneae]]
-[[fretful nettle tree]]
-[[wobbly divine messenger]]
-[[inboard archaeologist]]
+[[formalistic cargo cult]]
+[[tight rapid climb]]
+[[vicarious hadith]]
+[[maxillomandibular apolune]]
+[[backlink load test]]

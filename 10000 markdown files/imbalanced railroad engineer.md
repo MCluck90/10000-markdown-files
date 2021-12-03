@@ -89,7 +89,8 @@ and once without waiting till its
 
 ## Wikilinks load test
 
-[[souffle-like akha]]
-[[stalinist indigestion]]
-[[best-loved bergen]]
-[[lung-like chivaree]]
+[[threadlike airburst]]
+[[moneymaking uintatheriidae]]
+[[courageous modeler]]
+[[kaput characin fish]]
+[[backlink load test]]

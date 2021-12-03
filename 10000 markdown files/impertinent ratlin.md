@@ -82,7 +82,7 @@ Everything's got in before they
 
 ## Wikilinks load test
 
-[[directionless convictfish]]
-[[pussy actinidia polygama]]
-[[ambagious temperateness]]
-[[wingless common european dogwood]]
+[[genotypical erectile organ]]
+[[paddle-shaped aphesis]]
+[[metaphysical lake tana]]
+[[backlink load test]]

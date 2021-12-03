@@ -89,8 +89,9 @@ exclaimed.
 
 ## Wikilinks load test
 
-[[methodist aspergillus]]
-[[mucky adansonia digitata]]
-[[unsettled peul]]
-[[deliberate forebear]]
-[[exploitative packing box]]
+[[thermosetting oestrus]]
+[[pantheist baby-boom generation]]
+[[hotheaded mares nest]]
+[[burlesque punch pliers]]
+[[cyanophyte heartburn]]
+[[backlink load test]]

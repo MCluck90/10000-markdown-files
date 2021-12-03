@@ -86,4 +86,6 @@ Visit either way never
 
 ## Wikilinks load test
 
-[[isopteran repulse]]
+[[awless logomach]]
+[[solemn ethelred]]
+[[backlink load test]]

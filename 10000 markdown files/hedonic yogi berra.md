@@ -91,8 +91,8 @@ When they draw back and
 
 ## Wikilinks load test
 
-[[snuggled common amsinckia]]
-[[spheric prairie rattlesnake]]
-[[little tunicate]]
-[[anginose armata corsa]]
-[[unlubricated frankincense pine]]
+[[stone-dead mephitinae]]
+[[dehumanised omelette pan]]
+[[sixpenny external oblique muscle]]
+[[laboured palestinian]]
+[[backlink load test]]

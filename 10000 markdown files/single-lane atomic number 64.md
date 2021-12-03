@@ -90,8 +90,5 @@ Stupid things to hear him into
 
 ## Wikilinks load test
 
-[[glary tissue typing]]
-[[ascetic dwarf buffalo]]
-[[moorish genus klebsiella]]
-[[unrepeatable haymaking]]
-[[duty-bound telegraph plant]]
+[[mitigative blue elder]]
+[[backlink load test]]

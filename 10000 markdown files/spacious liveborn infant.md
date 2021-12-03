@@ -85,6 +85,9 @@ A WATCH OUT OF
 
 ## Wikilinks load test
 
-[[end-rhymed maternity ward]]
-[[strong-boned chenopodium rubrum]]
-[[morbid panic button]]
+[[chummy hog plum]]
+[[courageous rudbeckia laciniata]]
+[[decalescent eclat]]
+[[sure as shooting selective-serotonin reuptake inhibitor]]
+[[mediaeval carditis]]
+[[backlink load test]]

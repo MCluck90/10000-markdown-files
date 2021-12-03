@@ -79,7 +79,9 @@ What a memorandum of Hjckrrh.
 
 ## Wikilinks load test
 
-[[cool-white lepidium alpina]]
-[[nonmechanical jotunn]]
-[[easterly pteridospermae]]
-[[wine-red stanford white]]
+[[amerciable laminariaceae]]
+[[disciplinal suppliant]]
+[[duncish space helmet]]
+[[disadvantageous anasazi]]
+[[aecial kafiri]]
+[[backlink load test]]

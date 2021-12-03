@@ -76,5 +76,5 @@ I'm glad they HAVE tasted eggs
 
 ## Wikilinks load test
 
-[[morphemic bluegrass country]]
-[[censorial humulus japonicus]]
+[[boeotian autograph album]]
+[[backlink load test]]

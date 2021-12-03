@@ -92,5 +92,5 @@ Well it myself to shrink any
 
 ## Wikilinks load test
 
-[[light-colored old hand]]
-[[haploidic splintering]]
+[[whitened tongs]]
+[[backlink load test]]

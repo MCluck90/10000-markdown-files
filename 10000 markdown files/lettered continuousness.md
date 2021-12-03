@@ -80,8 +80,9 @@ Still she felt ready for when
 
 ## Wikilinks load test
 
-[[wayfaring fishpole bamboo]]
-[[cut out recife]]
-[[boring strut]]
-[[farthermost cynoglossum amabile]]
-[[previous one-hitter]]
+[[parky false glottis]]
+[[spectroscopic paving]]
+[[ukrainian fast reactor]]
+[[heraldic microprocessor]]
+[[disregarded waxing]]
+[[backlink load test]]

@@ -87,6 +87,7 @@ Soo oop.
 
 ## Wikilinks load test
 
-[[interbred drawing pin]]
-[[sunburnt physical body]]
-[[spiffed up hungarian]]
+[[boughless northern cross]]
+[[surprising moirae]]
+[[cockeyed broadside]]
+[[backlink load test]]

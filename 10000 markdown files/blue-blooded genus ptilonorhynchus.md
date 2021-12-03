@@ -94,5 +94,6 @@ Beau ootiful Soo oop of tumbling
 
 ## Wikilinks load test
 
-[[messy kanamycin]]
-[[enlightening henrik johan ibsen]]
+[[cloudy rheum palmatum]]
+[[centrical lady friend]]
+[[backlink load test]]

@@ -80,8 +80,9 @@ Their heads cut some fun now.
 
 ## Wikilinks load test
 
-[[inedible sambre]]
-[[hyperemic molarity]]
-[[gaunt subphylum tunicata]]
-[[nonretractable waders]]
-[[compact pan]]
+[[grey-brown bowmans capsule]]
+[[anoperineal ngu]]
+[[winking oyster bar]]
+[[heavenly babinski reflex]]
+[[emboldened footstool]]
+[[backlink load test]]

@@ -84,8 +84,5 @@ interrupted yawning.
 
 ## Wikilinks load test
 
-[[statistical genus lycopodium]]
-[[philatelical half hatchet]]
-[[idealised soren kierkegaard]]
-[[metallic-colored paternity]]
-[[laryngopharyngeal teg]]
+[[linear hitler]]
+[[backlink load test]]

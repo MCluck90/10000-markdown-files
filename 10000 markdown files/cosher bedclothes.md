@@ -76,5 +76,5 @@ Herald read in reply
 
 ## Wikilinks load test
 
-[[presto amorpha californica]]
-[[elfin pseudocolus fusiformis]]
+[[ultraviolet visible balance]]
+[[backlink load test]]

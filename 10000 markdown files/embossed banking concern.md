@@ -82,5 +82,8 @@ After a set out
 
 ## Wikilinks load test
 
-[[blood-and-guts cy pres]]
-[[aphyllous craving]]
+[[sidereal egret]]
+[[shifty filename]]
+[[calendered pelisse]]
+[[inexpungible red-bellied terrapin]]
+[[backlink load test]]

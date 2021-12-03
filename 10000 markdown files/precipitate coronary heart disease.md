@@ -87,8 +87,7 @@ Take care which wasn't done such
 
 ## Wikilinks load test
 
-[[cephalopodan nuclear warhead]]
-[[injudicious ojibway]]
-[[awnless family balanidae]]
-[[assaultive levantine]]
-[[ring-shaped petroleum]]
+[[spring-loaded golf stroke]]
+[[mediterranean drift ice]]
+[[sensationalistic shrimp-fish]]
+[[backlink load test]]

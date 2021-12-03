@@ -84,5 +84,6 @@ They couldn't cut your head and
 
 ## Wikilinks load test
 
-[[thermolabile underdrawers]]
-[[tidy aurora australis]]
+[[ectodermic snakeroot]]
+[[geostationary albert szent-gyorgyi]]
+[[backlink load test]]

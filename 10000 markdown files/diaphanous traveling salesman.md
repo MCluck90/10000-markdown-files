@@ -90,8 +90,6 @@ Wake up one crazy.
 
 ## Wikilinks load test
 
-[[multipotent malcolm little]]
-[[tantalizing great circle]]
-[[overdelicate state capitalism]]
-[[ruinous erivan]]
-[[adjuvant africander]]
+[[schoolgirlish sarcoidosis]]
+[[tedious cheese tray]]
+[[backlink load test]]

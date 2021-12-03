@@ -82,6 +82,8 @@ Wouldn't it how IS
 
 ## Wikilinks load test
 
-[[indiscreet frotteur]]
-[[upstart magic bullet]]
-[[postulational mickey spillane]]
+[[outbound folding]]
+[[occipital mydriatic]]
+[[semidetached misrepresentation]]
+[[spacious cudbear]]
+[[backlink load test]]

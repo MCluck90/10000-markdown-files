@@ -82,8 +82,8 @@ added looking for all
 
 ## Wikilinks load test
 
-[[diagrammatic stockfish]]
-[[clarion southern beech fern]]
-[[czechoslovakian pinstripe]]
-[[valvular balloon]]
-[[calyculate dowdy]]
+[[favorite hyperidrosis]]
+[[marvellous baste]]
+[[confutative rib]]
+[[heuristic bonnet macaque]]
+[[backlink load test]]

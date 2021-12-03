@@ -93,8 +93,6 @@ You're nothing to lose
 
 ## Wikilinks load test
 
-[[uncompensated firth]]
-[[apetalous gee-gee]]
-[[hundred-and-fiftieth genus doryopteris]]
-[[juristic manioca]]
-[[sinewy killarney fern]]
+[[in her right mind wanker]]
+[[temporal it]]
+[[backlink load test]]

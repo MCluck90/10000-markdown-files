@@ -76,5 +76,5 @@ London is which is very dull.
 
 ## Wikilinks load test
 
-[[lxxvii web-toed salamander]]
-[[pasted embracement]]
+[[low-sudsing gavia]]
+[[backlink load test]]

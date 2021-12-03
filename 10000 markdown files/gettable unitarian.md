@@ -77,7 +77,9 @@ Of the Multiplication Table doesn't
 
 ## Wikilinks load test
 
-[[fly-by-night spinning frame]]
-[[twee scatter rug]]
-[[alexic acellular slime mold]]
-[[ambiguous homepage]]
+[[cataleptic cassia bark]]
+[[hard-pressed trap-and-drain auger]]
+[[agronomic cheddar]]
+[[published conferral]]
+[[one hundred seventy blue grama]]
+[[backlink load test]]

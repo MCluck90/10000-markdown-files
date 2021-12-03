@@ -90,8 +90,9 @@ ALL.
 
 ## Wikilinks load test
 
-[[impotent cercidiphyllum japonicum]]
-[[fine causation]]
-[[curly-grained regular hexagon]]
-[[creditworthy porterhouse]]
-[[puppyish damourite]]
+[[seventy-five jointworm]]
+[[thespian neuroma]]
+[[honey-colored wailing]]
+[[tepid rivina]]
+[[tangerine kuki-chin]]
+[[backlink load test]]

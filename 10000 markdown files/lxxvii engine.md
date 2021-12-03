@@ -77,8 +77,8 @@ Never.
 
 ## Wikilinks load test
 
-[[self-disciplined cowtown]]
-[[palladian write up]]
-[[fawn-colored mental soundness]]
-[[bionomic letdown]]
-[[lapsed klinefelter syndrome]]
+[[muciferous ancient history]]
+[[efficient sarda chiliensis]]
+[[rastafarian aphorism]]
+[[herbivorous gasterosteus]]
+[[backlink load test]]

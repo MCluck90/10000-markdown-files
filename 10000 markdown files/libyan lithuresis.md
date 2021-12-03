@@ -81,7 +81,7 @@ Not a snatch in an arm
 
 ## Wikilinks load test
 
-[[international calostoma lutescens]]
-[[juristic manioca]]
-[[paralyzed genus cladorhyncus]]
-[[outdoorsy goober pea]]
+[[jurisdictional malaria parasite]]
+[[unpowered genus engraulis]]
+[[helical arilus cristatus]]
+[[backlink load test]]

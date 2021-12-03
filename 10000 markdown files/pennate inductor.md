@@ -77,6 +77,5 @@ Consider your hair.
 
 ## Wikilinks load test
 
-[[unplanted sravana]]
-[[lexicostatistic angina]]
-[[interpreted quixotism]]
+[[cranial mass rapid transit]]
+[[backlink load test]]

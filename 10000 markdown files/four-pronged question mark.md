@@ -89,8 +89,5 @@ Hand it saw in
 
 ## Wikilinks load test
 
-[[uncomprehended gastroepiploic vein]]
-[[overgenerous entomophthoraceae]]
-[[well-informed schenectady]]
-[[atomistic gravedigger]]
-[[offending bessemer process]]
+[[tartaric elastomer]]
+[[backlink load test]]

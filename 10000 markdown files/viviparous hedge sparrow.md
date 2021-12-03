@@ -78,6 +78,8 @@ thought it's no reason they're sure
 
 ## Wikilinks load test
 
-[[ethnocentric eskimo]]
-[[anorexic zenaidura macroura]]
-[[satisfactory social service]]
+[[contrasty barnyard]]
+[[augean goliath]]
+[[copper-bottomed boar]]
+[[neoplastic yellow-green algae]]
+[[backlink load test]]

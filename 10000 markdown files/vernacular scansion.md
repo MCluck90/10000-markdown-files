@@ -87,8 +87,8 @@ Ahem.
 
 ## Wikilinks load test
 
-[[ixc benny hill]]
-[[cubiform haemoproteidae]]
-[[hispid agave cantala]]
-[[stand-up 30]]
-[[spendthrift statesman]]
+[[uvular apple tree]]
+[[drifting aids]]
+[[xv false saber-toothed tiger]]
+[[tearing gps]]
+[[backlink load test]]

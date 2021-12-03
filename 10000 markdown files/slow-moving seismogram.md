@@ -85,8 +85,5 @@ Soup.
 
 ## Wikilinks load test
 
-[[nonmeaningful rocky mountain bristlecone pine]]
-[[jobless scrub brush]]
-[[wingless common european dogwood]]
-[[framed greaseball]]
-[[oversize educationalist]]
+[[one hundred forty alir]]
+[[backlink load test]]

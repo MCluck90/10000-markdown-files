@@ -86,7 +86,7 @@ ARE a present of milk
 
 ## Wikilinks load test
 
-[[educative family lycopodiaceae]]
-[[shiny wu dialect]]
-[[biodegradable lipstick plant]]
-[[threadlike airburst]]
+[[twee scatter rug]]
+[[knotted potato skin]]
+[[adjectival swamp candleberry]]
+[[backlink load test]]

@@ -89,7 +89,7 @@ It's no reason so I'll put
 
 ## Wikilinks load test
 
-[[pyrogenetic blocker]]
-[[dextrorotatory manganese tetroxide]]
-[[wonderworking rocket larkspur]]
-[[plentiful gluon]]
+[[transmontane weeper]]
+[[oversexed salal]]
+[[mononuclear dissolution]]
+[[backlink load test]]

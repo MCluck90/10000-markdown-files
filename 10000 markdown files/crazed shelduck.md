@@ -75,8 +75,8 @@ Does the Gryphon I
 
 ## Wikilinks load test
 
-[[catabolic rhizoid]]
-[[genitourinary fourth deck]]
-[[nasopharyngeal dolmen]]
-[[curable manes]]
-[[ideologic pen-and-ink]]
+[[nonresilient nipple shield]]
+[[self-renewing thoroughbred]]
+[[discriminatory phenacomys]]
+[[mutilated genus serranus]]
+[[backlink load test]]

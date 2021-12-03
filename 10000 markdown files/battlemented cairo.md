@@ -79,5 +79,9 @@ Half-past one.
 
 ## Wikilinks load test
 
-[[glutted sinai desert]]
-[[third-rate dressing]]
+[[artsy-craftsy laboratory]]
+[[insurrectionary whipping post]]
+[[multivariate cancer]]
+[[courageous modeler]]
+[[triune olfactory nerve]]
+[[backlink load test]]

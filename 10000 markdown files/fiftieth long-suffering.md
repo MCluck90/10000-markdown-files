@@ -82,7 +82,6 @@ Alice's and nonsense.
 
 ## Wikilinks load test
 
-[[curative genus epacris]]
-[[ulcerative stockbroker]]
-[[discretional crataegus apiifolia]]
-[[sneezy sarracenia]]
+[[well-fixed hubris]]
+[[pakistani isn]]
+[[backlink load test]]

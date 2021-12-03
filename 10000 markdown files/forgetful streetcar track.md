@@ -84,5 +84,9 @@ ever eat cats always ready.
 
 ## Wikilinks load test
 
-[[archdiocesan specialty store]]
-[[decreasing monotonic trompe loeil]]
+[[crapulent life imprisonment]]
+[[amalgamative optical fibre]]
+[[nonhairy buspar]]
+[[unenclosed ovis montana dalli]]
+[[eleventh persea]]
+[[backlink load test]]

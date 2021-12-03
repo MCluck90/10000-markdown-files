@@ -91,6 +91,7 @@ Presently the Tarts.
 
 ## Wikilinks load test
 
-[[brief paleo-amerind]]
-[[siberian tick trefoil]]
-[[spinose baby tooth]]
+[[euphonic snow line]]
+[[kosher quillwort family]]
+[[baneful lather]]
+[[backlink load test]]

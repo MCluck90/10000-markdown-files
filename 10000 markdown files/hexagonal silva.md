@@ -81,7 +81,6 @@ Ahem.
 
 ## Wikilinks load test
 
-[[forty-first hugo]]
-[[interlocutory guild socialism]]
-[[sylphlike cecropia]]
-[[unceremonial stovepipe iron]]
+[[simple toothed wheel]]
+[[ground-hugging didelphis virginiana]]
+[[backlink load test]]

@@ -84,8 +84,6 @@ on tiptoe put his garden
 
 ## Wikilinks load test
 
-[[blotched state department]]
-[[distal transylvania]]
-[[lamenting secret agent]]
-[[ultimo x-linked dominant inheritance]]
-[[bedraggled homogeneousness]]
+[[rush maiden name]]
+[[unsympathising gee]]
+[[backlink load test]]

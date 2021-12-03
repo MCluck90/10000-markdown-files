@@ -86,8 +86,6 @@ Soup is look over with
 
 ## Wikilinks load test
 
-[[august order-chenopodiales]]
-[[unscripted amniotic sac]]
-[[anal morbilli]]
-[[covetous resurrection fern]]
-[[menacing bugle call]]
+[[anxiolytic storage room]]
+[[equiangular tallith]]
+[[backlink load test]]

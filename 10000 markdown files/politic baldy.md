@@ -81,7 +81,8 @@ On every word till its head
 
 ## Wikilinks load test
 
-[[revokable gulf of campeche]]
-[[bimorphemic serum]]
-[[homelike bush leaguer]]
-[[heraldic choroid coat]]
+[[anglican baldy]]
+[[obliging pouched mole]]
+[[cx sliding board]]
+[[booted drill instructor]]
+[[backlink load test]]

@@ -92,6 +92,8 @@ CHORUS.
 
 ## Wikilinks load test
 
-[[indolent goldfield]]
-[[isolable pussys-paw]]
-[[meagre discharge pipe]]
+[[unfulfilled battle of bunker hill]]
+[[strident annwn]]
+[[agronomic gawain]]
+[[unnavigable metronymic]]
+[[backlink load test]]

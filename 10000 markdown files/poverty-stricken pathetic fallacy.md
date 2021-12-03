@@ -86,7 +86,9 @@ Have you wouldn't squeeze so long
 
 ## Wikilinks load test
 
-[[smooth-haired dali]]
-[[awake ward-heeler]]
-[[well-nourished ketoacidosis-prone diabetes]]
-[[dyslexic scrutinizer]]
+[[aspherical california white fir]]
+[[unerring incandescent lamp]]
+[[white-edged afferent fiber]]
+[[neotenic committee member]]
+[[self-disciplined archaebacterium]]
+[[backlink load test]]

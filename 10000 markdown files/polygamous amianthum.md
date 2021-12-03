@@ -84,8 +84,7 @@ Suppose it did NOT.
 
 ## Wikilinks load test
 
-[[canonised power user]]
-[[delirious gene]]
-[[sanitized canadian shield]]
-[[naked-muzzled genus onopordum]]
-[[jocund ovid]]
+[[run-down nelson mandela]]
+[[poor tofieldia]]
+[[knotty cortinarius subfoetidus]]
+[[backlink load test]]

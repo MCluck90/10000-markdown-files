@@ -81,8 +81,9 @@ was moderate.
 
 ## Wikilinks load test
 
-[[in advance localisation principle]]
-[[anechoic dr. seuss]]
-[[natural object lens]]
-[[blebby park avenue]]
-[[screwball double clinch]]
+[[diagrammatic duplex]]
+[[ungual account]]
+[[cathectic myotis leucifugus]]
+[[systematic rakaposhi]]
+[[ane saale glaciation]]
+[[backlink load test]]

@@ -92,6 +92,9 @@ quite like said No there are
 
 ## Wikilinks load test
 
-[[dwarfish lead time]]
-[[postwar red panda]]
-[[maledict sickle alfalfa]]
+[[diffusing wire gage]]
+[[confutable friction clutch]]
+[[nonmechanical moharram]]
+[[centrical lady friend]]
+[[fumbling grosbeak]]
+[[backlink load test]]

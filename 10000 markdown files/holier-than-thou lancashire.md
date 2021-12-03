@@ -82,8 +82,5 @@ Presently she stretched her head in
 
 ## Wikilinks load test
 
-[[nutritive bucephela clangula]]
-[[self-restraining champagne flute]]
-[[extroverted artificial blood]]
-[[affectional order aspergillales]]
-[[loath metrazol shock]]
+[[tight-fitting mendelianism]]
+[[backlink load test]]

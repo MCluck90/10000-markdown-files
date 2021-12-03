@@ -80,8 +80,6 @@ Nothing WHATEVER.
 
 ## Wikilinks load test
 
-[[expansile telephone service]]
-[[homostyled dubois heyward]]
-[[virginal zambezi river]]
-[[piagetian mercilessness]]
-[[pituitary technophile]]
+[[destructive guy fawkes]]
+[[poikilothermic dafla]]
+[[backlink load test]]

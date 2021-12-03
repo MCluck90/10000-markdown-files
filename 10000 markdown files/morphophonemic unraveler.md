@@ -83,7 +83,5 @@ Thank you want to fly and
 
 ## Wikilinks load test
 
-[[edgy genus sciara]]
-[[dermatologic genus ceratostomella]]
-[[mechanized numbat]]
-[[downwind showy daisy]]
+[[denary garrison]]
+[[backlink load test]]

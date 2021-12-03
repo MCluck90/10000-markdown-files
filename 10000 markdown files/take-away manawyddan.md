@@ -96,8 +96,6 @@ Give your walk a Duck
 
 ## Wikilinks load test
 
-[[grumbling potemkin]]
-[[abroach shell ginger]]
-[[abreast princeton university]]
-[[quadrisonic sls]]
-[[red-blind passer montanus]]
+[[dwarfish lead time]]
+[[particularistic power cable]]
+[[backlink load test]]

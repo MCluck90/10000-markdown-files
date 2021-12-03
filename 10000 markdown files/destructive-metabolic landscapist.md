@@ -77,8 +77,7 @@ Prizes.
 
 ## Wikilinks load test
 
-[[windy new world beaver]]
-[[red-grey family cicadidae]]
-[[architectonic princeton]]
-[[oversea iliamna remota]]
-[[bountiful pretext]]
+[[peruvian animal psychology]]
+[[foul actinidia chinensis]]
+[[vincible tabun]]
+[[backlink load test]]

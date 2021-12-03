@@ -85,7 +85,6 @@ or Longitude I've none
 
 ## Wikilinks load test
 
-[[short and sweet migrator]]
-[[bandy genus anarhichas]]
-[[regenerating electroencephalogram]]
-[[unacceptable lawsons cedar]]
+[[bantu-speaking atayalic]]
+[[blabbermouthed antimycotic agent]]
+[[backlink load test]]

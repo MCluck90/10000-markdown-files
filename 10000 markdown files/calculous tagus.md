@@ -88,6 +88,6 @@ No room at her one
 
 ## Wikilinks load test
 
-[[slapstick silencer]]
-[[immortal electrical power]]
-[[xxxiii rooting]]
+[[occult analog computer]]
+[[highland radio wave]]
+[[backlink load test]]

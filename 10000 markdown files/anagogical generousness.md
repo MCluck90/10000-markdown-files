@@ -90,8 +90,6 @@ Presently the cake.
 
 ## Wikilinks load test
 
-[[toothy makedonija]]
-[[non-poisonous phenylephrine]]
-[[pointillist grand total]]
-[[noxious detective agency]]
-[[confutable waffle]]
+[[undescended cephalohematoma]]
+[[ahorse fiddler crab]]
+[[backlink load test]]

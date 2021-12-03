@@ -89,8 +89,9 @@ they lessen from one
 
 ## Wikilinks load test
 
-[[shod lady tulip]]
-[[accretionary purple loco]]
-[[disturbing genus pithecia]]
-[[diffusive transience]]
-[[sick-abed pathogenesis]]
+[[taillike direct discourse]]
+[[buttoned-down byname]]
+[[preferent compatible software]]
+[[lebanese catacala]]
+[[interrogatory issue]]
+[[backlink load test]]

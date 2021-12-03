@@ -79,4 +79,6 @@ Give your tongue Ma.
 
 ## Wikilinks load test
 
-[[undramatic genus scincus]]
+[[collapsable badlands]]
+[[tied up simoon]]
+[[backlink load test]]

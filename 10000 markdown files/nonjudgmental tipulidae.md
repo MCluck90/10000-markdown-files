@@ -86,6 +86,6 @@ Poor little eyes were
 
 ## Wikilinks load test
 
-[[isotropous video game]]
-[[chaste water pill]]
-[[midwestern disreputable person]]
+[[affixal diplopoda]]
+[[amyloidal na-dene]]
+[[backlink load test]]

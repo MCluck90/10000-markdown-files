@@ -81,8 +81,6 @@ Five who had someone
 
 ## Wikilinks load test
 
-[[dextral earphone]]
-[[roan chlordiazepoxide]]
-[[albinal next of kin]]
-[[disquieted dad]]
-[[unstuck lament]]
+[[semantic bokmal]]
+[[boric clouding]]
+[[backlink load test]]

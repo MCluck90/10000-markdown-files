@@ -78,8 +78,5 @@ No room.
 
 ## Wikilinks load test
 
-[[poetical big bill haywood]]
-[[dreamed crex crex]]
-[[unpotted american plan]]
-[[deflated sanskrit]]
-[[age-related genus sitophylus]]
+[[nonagenarian bellis]]
+[[backlink load test]]

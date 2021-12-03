@@ -85,6 +85,8 @@ Pat what's more calmly
 
 ## Wikilinks load test
 
-[[affixal diplopoda]]
-[[algoid terence rattigan]]
-[[augean tourniquet]]
+[[amphiprotic corporeality]]
+[[contractable stage director]]
+[[rested relinquishing]]
+[[bleary-eyed scalp lock]]
+[[backlink load test]]

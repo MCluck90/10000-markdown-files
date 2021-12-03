@@ -84,6 +84,6 @@ Sixteenth added with MINE
 
 ## Wikilinks load test
 
-[[blindfolded calluna]]
-[[redux lantern fly]]
-[[dwarfish lead time]]
+[[smooth-faced oddball]]
+[[romansh positioner]]
+[[backlink load test]]

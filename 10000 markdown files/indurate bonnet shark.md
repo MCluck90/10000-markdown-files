@@ -86,8 +86,6 @@ Begin at home.
 
 ## Wikilinks load test
 
-[[covetous resurrection fern]]
-[[hired tibialis anterior]]
-[[truncated anarchist]]
-[[unsold genus jasminum]]
-[[muscovite zonal pelargonium]]
+[[certain muscle system]]
+[[caudated voting machine]]
+[[backlink load test]]

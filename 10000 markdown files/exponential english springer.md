@@ -82,8 +82,6 @@ sighed wearily.
 
 ## Wikilinks load test
 
-[[nonastringent blastema]]
-[[silty neurotoxin]]
-[[meddling family triglidae]]
-[[clastic plait]]
-[[unclouded intelligibility]]
+[[tympanitic genus spheniscus]]
+[[high-stepping acromikria]]
+[[backlink load test]]

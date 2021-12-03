@@ -79,6 +79,9 @@ Alas.
 
 ## Wikilinks load test
 
-[[omnibus collard]]
-[[closed-captioned bell book]]
-[[dimensioning entertainment center]]
+[[rotten floret]]
+[[tartaric elastomer]]
+[[unpopulated foster home]]
+[[exigent euphorbia exigua]]
+[[yellow-green quick study]]
+[[backlink load test]]

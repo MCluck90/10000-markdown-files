@@ -91,6 +91,7 @@ Herald read fairy-tales I quite faint
 
 ## Wikilinks load test
 
-[[helter-skelter palaeopathology]]
-[[inheritable green olive]]
-[[featureless o ring]]
+[[unconvincing hard drink]]
+[[dorsal fishing vessel]]
+[[greathearted anchorite]]
+[[backlink load test]]

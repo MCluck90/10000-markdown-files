@@ -81,8 +81,7 @@ exclaimed.
 
 ## Wikilinks load test
 
-[[heart-healthy earpiece]]
-[[venose prince otto eduard leopold von bismarck]]
-[[regimented cheval glass]]
-[[malevolent ischaemic stroke]]
-[[discreet solingen]]
+[[sixpenny quakers]]
+[[canalicular mauritania]]
+[[ionian daisywheel printer]]
+[[backlink load test]]

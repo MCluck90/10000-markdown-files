@@ -82,6 +82,7 @@ quite agree with pink eyes
 
 ## Wikilinks load test
 
-[[attributive waste of money]]
-[[foiled lemon zest]]
-[[unafraid diverging lens]]
+[[hard-boiled otides]]
+[[ubiquitous filbert]]
+[[utilized psittacosis]]
+[[backlink load test]]

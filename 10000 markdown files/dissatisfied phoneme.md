@@ -76,6 +76,6 @@ Therefore I'm very short time you
 
 ## Wikilinks load test
 
-[[alligatored japanese radish]]
-[[horrific legal proceeding]]
-[[discreet capillary fracture]]
+[[uvular apple tree]]
+[[businesslike cabbage tree]]
+[[backlink load test]]

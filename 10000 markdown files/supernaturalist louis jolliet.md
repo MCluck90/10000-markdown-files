@@ -82,6 +82,9 @@ Collar that would bend
 
 ## Wikilinks load test
 
-[[licit y chromosome]]
-[[sour-tasting landowska]]
-[[paunchy menieres disease]]
+[[topographical pindolol]]
+[[monaural cadmium yellow]]
+[[trusting aphididae]]
+[[arawakan ambassador]]
+[[recessionary devils urn]]
+[[backlink load test]]

@@ -81,8 +81,7 @@ Her first speech caused some noise
 
 ## Wikilinks load test
 
-[[sorbed contractor]]
-[[torturesome glassworks]]
-[[undercover view finder]]
-[[pug-faced manidae]]
-[[spice-scented bibliographer]]
+[[inaccurate pumpkin vine]]
+[[intact psycholinguist]]
+[[perturbed water nymph]]
+[[backlink load test]]

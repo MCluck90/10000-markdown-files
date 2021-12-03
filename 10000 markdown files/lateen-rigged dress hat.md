@@ -87,6 +87,8 @@ You're wrong I'm on
 
 ## Wikilinks load test
 
-[[arcadian sugar beet]]
-[[strong-minded genus dolichotis]]
-[[short-bodied knight-errant]]
+[[bacillar woodshed]]
+[[ionised dovyalis hebecarpa]]
+[[enigmatical andropogon virginicus]]
+[[dipylon polyanthus]]
+[[backlink load test]]

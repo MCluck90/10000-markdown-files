@@ -82,8 +82,5 @@ Whoever lives.
 
 ## Wikilinks load test
 
-[[random optical disc]]
-[[monotonous tientsin]]
-[[transactinide bullpen]]
-[[vaulting east sussex]]
-[[fusiform dork]]
+[[arciform cardium]]
+[[backlink load test]]

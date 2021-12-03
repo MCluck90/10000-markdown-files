@@ -79,6 +79,7 @@ Herald read They must
 
 ## Wikilinks load test
 
-[[a posteriori corrigendum]]
-[[allometric william f. cody]]
-[[mephistophelian weeder]]
+[[interplanetary virginia waterleaf]]
+[[bahamian wyeth]]
+[[mesmerised methylated spirit]]
+[[backlink load test]]

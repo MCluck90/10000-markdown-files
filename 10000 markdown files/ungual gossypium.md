@@ -92,6 +92,8 @@ Some of these strange
 
 ## Wikilinks load test
 
-[[spotless naucrates ductor]]
-[[naturalized light circuit]]
-[[up to my neck american oil palm]]
+[[dioecian truncocolumella]]
+[[spheroidal broiling]]
+[[warmhearted genus elymus]]
+[[eviscerate corvine bird]]
+[[backlink load test]]

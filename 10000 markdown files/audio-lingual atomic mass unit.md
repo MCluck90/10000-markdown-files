@@ -82,8 +82,7 @@ Silence all his claws and
 
 ## Wikilinks load test
 
-[[livelong fast lane]]
-[[high-stepping acromikria]]
-[[varied highboy]]
-[[self-restraining champagne flute]]
-[[cod somatic cell nuclear transfer]]
+[[criminative genus ceratotherium]]
+[[killable polypodium]]
+[[decentralizing chemical engineering]]
+[[backlink load test]]

@@ -87,6 +87,7 @@ Twinkle twinkle twinkle and said than
 
 ## Wikilinks load test
 
-[[unmalleable taxidea taxus]]
-[[arrhythmic antique]]
-[[juridical torture chamber]]
+[[botryoid stadium]]
+[[aeronautical surf fishing]]
+[[two-fold full stop]]
+[[backlink load test]]

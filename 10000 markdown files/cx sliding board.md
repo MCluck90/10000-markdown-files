@@ -83,8 +83,6 @@ it once.
 
 ## Wikilinks load test
 
-[[umbellate gayfeather]]
-[[peritrichous nor-q-d]]
-[[jingoistic megaptera]]
-[[autotomic cotton rose]]
-[[indigent biological warfare defence]]
+[[splendid corn chowder]]
+[[thirty-two rh antibody]]
+[[backlink load test]]

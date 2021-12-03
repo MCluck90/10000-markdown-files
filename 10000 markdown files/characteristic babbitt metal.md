@@ -92,6 +92,6 @@ Idiot.
 
 ## Wikilinks load test
 
-[[dismaying santa sofia]]
-[[prevailing hawaii time]]
-[[c sk-ampicillin]]
+[[weaponless giraffidae]]
+[[supplicant napoleon]]
+[[backlink load test]]

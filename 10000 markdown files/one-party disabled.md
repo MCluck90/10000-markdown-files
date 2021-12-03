@@ -86,6 +86,9 @@ Do as for ten minutes that
 
 ## Wikilinks load test
 
-[[resourceful artaxerxes i]]
-[[tall-stalked slothfulness]]
-[[abkhazian caucasoid race]]
+[[biconcave orange yellow]]
+[[tasseled violence]]
+[[keeled ageratina altissima]]
+[[blue-purple malayalam]]
+[[disguised biosystematics]]
+[[backlink load test]]

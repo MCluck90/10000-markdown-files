@@ -95,7 +95,7 @@ Who's to ear.
 
 ## Wikilinks load test
 
-[[plastic labour party]]
-[[recalcitrant sideboard]]
-[[spineless petunia]]
-[[untimbered black cherry]]
+[[underfed bloodguilt]]
+[[fascist sour orange]]
+[[adjudicative tycoon]]
+[[backlink load test]]

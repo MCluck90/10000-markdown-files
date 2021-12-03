@@ -90,7 +90,7 @@ Does YOUR table as herself if
 
 ## Wikilinks load test
 
-[[blanched caterpillar]]
-[[previous one-hitter]]
-[[mustached birdseed]]
-[[begotten countermarch]]
+[[meretricious stalk]]
+[[swollen vernix caseosa]]
+[[o.k. immaculateness]]
+[[backlink load test]]

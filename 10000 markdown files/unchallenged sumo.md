@@ -75,8 +75,7 @@ interrupted the wig.
 
 ## Wikilinks load test
 
-[[blackish-grey drive-by shooting]]
-[[systematic rakaposhi]]
-[[illuminating irish strawberry]]
-[[unordered nell gwynne]]
-[[bronze strongylodon]]
+[[righteous barretter]]
+[[mishnaic civvies]]
+[[brown-striped absurdness]]
+[[backlink load test]]

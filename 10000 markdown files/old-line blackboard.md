@@ -91,5 +91,5 @@ they'll remember it much
 
 ## Wikilinks load test
 
-[[algolagnic geological time]]
-[[loth greek clover]]
+[[unconvincing genus comatula]]
+[[backlink load test]]

@@ -85,8 +85,6 @@ and four inches is
 
 ## Wikilinks load test
 
-[[spongelike backgammon]]
-[[honored perineum]]
-[[toothy fragrant water lily]]
-[[pole-handled divorce lawyer]]
-[[heraldic moderatism]]
+[[off-guard genus erithacus]]
+[[invidious smokescreen]]
+[[backlink load test]]

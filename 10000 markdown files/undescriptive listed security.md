@@ -87,8 +87,5 @@ Alas.
 
 ## Wikilinks load test
 
-[[deaf-mute northern lobster]]
-[[undefendable flush toilet]]
-[[meliorative northern porgy]]
-[[smuggled folie a deux]]
-[[serial savings bank]]
+[[amalgamative optical fibre]]
+[[backlink load test]]

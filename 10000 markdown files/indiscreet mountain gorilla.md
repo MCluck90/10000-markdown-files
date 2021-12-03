@@ -82,6 +82,5 @@ about stopping herself a corner
 
 ## Wikilinks load test
 
-[[two-needled sparkling wine]]
-[[branchiopodan ecstasy]]
-[[tzarist zymogen]]
+[[destructive guy fawkes]]
+[[backlink load test]]

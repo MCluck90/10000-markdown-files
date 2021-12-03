@@ -81,8 +81,9 @@ Boots and whiskers how far
 
 ## Wikilinks load test
 
-[[fatty chili sauce]]
-[[archepiscopal firebreak]]
-[[mannered aflaxen]]
-[[litigious decentalisation]]
-[[incertain federative republic of brazil]]
+[[blended john hanning speke]]
+[[holier-than-thou lancashire]]
+[[victorious erigeron philadelphicus]]
+[[ill pellicularia filamentosa]]
+[[slav intima]]
+[[backlink load test]]

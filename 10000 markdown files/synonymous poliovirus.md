@@ -92,8 +92,6 @@ Stupid things indeed were using
 
 ## Wikilinks load test
 
-[[lanceolate louisiana]]
-[[shining condylion]]
-[[brachiopodous biter]]
-[[comme il faut democratic and popular republic of algeria]]
-[[authorial costume designer]]
+[[fashioned andelmin]]
+[[setaceous allium paradoxum]]
+[[backlink load test]]

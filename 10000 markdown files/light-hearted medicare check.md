@@ -86,7 +86,8 @@ ALICE'S LOVE.
 
 ## Wikilinks load test
 
-[[head-in-the-clouds hypochondriac]]
-[[three-pronged facial tissue]]
-[[covetous cesare borgia]]
-[[projecting detonating device]]
+[[salted penlight]]
+[[calendered pelisse]]
+[[crescent unbreakableness]]
+[[scabby triaenodon]]
+[[backlink load test]]

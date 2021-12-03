@@ -86,7 +86,7 @@ Either the pack she helped
 
 ## Wikilinks load test
 
-[[dire saddle oxford]]
-[[swart harakiri]]
-[[earsplitting stiff]]
-[[icebound mensa]]
+[[tea-scented apostrophe]]
+[[decorous speck]]
+[[uppity service break]]
+[[backlink load test]]

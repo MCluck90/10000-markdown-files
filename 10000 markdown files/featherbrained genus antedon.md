@@ -88,6 +88,5 @@ Thinking again with fur.
 
 ## Wikilinks load test
 
-[[uncleanly double check]]
-[[facetious orris]]
-[[powerless state of matter]]
+[[cormous dorsal fin]]
+[[backlink load test]]

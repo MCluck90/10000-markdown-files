@@ -84,5 +84,7 @@ Once upon pegs.
 
 ## Wikilinks load test
 
-[[buddhist canadian hemlock]]
-[[unrelated rictus]]
+[[one hundred twenty square toes]]
+[[unlearned pilar cyst]]
+[[upstage practicableness]]
+[[backlink load test]]

@@ -92,6 +92,5 @@ Take off then silence after
 
 ## Wikilinks load test
 
-[[behaviourist shoe collar]]
-[[brusk brazil-nut tree]]
-[[characteristic babbitt metal]]
+[[metallurgical false indigo]]
+[[backlink load test]]

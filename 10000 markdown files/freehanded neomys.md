@@ -87,4 +87,8 @@ Ugh.
 
 ## Wikilinks load test
 
-[[unsupervised corozo palm]]
+[[cruciate bootlicker]]
+[[forty-four al-haytham]]
+[[inheritable green olive]]
+[[isoclinal chloroplast]]
+[[backlink load test]]

@@ -79,7 +79,7 @@ Whoever lives a dead leaves
 
 ## Wikilinks load test
 
-[[many an sterility]]
-[[known chicken snake]]
-[[feudal caskful]]
-[[heedful genus rhodymenia]]
+[[wriggling genus ostryopsis]]
+[[affirmatory unrespectability]]
+[[diaphanous bristletail]]
+[[backlink load test]]

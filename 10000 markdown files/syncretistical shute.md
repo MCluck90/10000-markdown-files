@@ -88,6 +88,5 @@ Always lay sprawling about once
 
 ## Wikilinks load test
 
-[[common or garden gigo]]
-[[glamorous claymore]]
-[[barytic greengage plum]]
+[[corpuscular tobias george smollett]]
+[[backlink load test]]

@@ -88,8 +88,7 @@ Soon her spectacles and said to
 
 ## Wikilinks load test
 
-[[celebratory drumbeater]]
-[[re-entrant combat neurosis]]
-[[insupportable train oil]]
-[[friendless florida key]]
-[[presto amorpha californica]]
+[[lxxxvii major league]]
+[[innocent ixodid]]
+[[downcast speech therapy]]
+[[backlink load test]]

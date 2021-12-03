@@ -87,5 +87,9 @@ ALICE'S LOVE.
 
 ## Wikilinks load test
 
-[[prognostic brown rot gummosis]]
-[[slippered pancreatin]]
+[[downcast chlorpromazine]]
+[[demure permian period]]
+[[plumb night jessamine]]
+[[singsong serviceability]]
+[[suety orange sneezeweed]]
+[[backlink load test]]

@@ -84,4 +84,9 @@ Change lobsters again BEFORE
 
 ## Wikilinks load test
 
-[[impetiginous swig]]
+[[snuff lorca]]
+[[trabeculate farewell]]
+[[siamese edmund ironside]]
+[[discombobulated whimsy]]
+[[empirical stephen michael reich]]
+[[backlink load test]]

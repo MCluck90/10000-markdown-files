@@ -75,8 +75,5 @@ Will you please sir just
 
 ## Wikilinks load test
 
-[[flamboyant algae]]
-[[crosshatched virtual memory]]
-[[moon-round tobacco juice]]
-[[coreferential saunter]]
-[[lipped os pisiforme]]
+[[millennial lesser burdock]]
+[[backlink load test]]

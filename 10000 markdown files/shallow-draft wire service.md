@@ -81,8 +81,6 @@ Their heads cut your Majesty
 
 ## Wikilinks load test
 
-[[advisory lota lota]]
-[[anaerobiotic provence]]
-[[rectilinear overgrowth]]
-[[fungible american crow]]
-[[wrinkled riding]]
+[[fundamentalist donatello]]
+[[sixpenny quakers]]
+[[backlink load test]]

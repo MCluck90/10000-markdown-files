@@ -83,5 +83,5 @@ Seals turtles all manner
 
 ## Wikilinks load test
 
-[[seething fringed gentian]]
-[[synaptic zeno]]
+[[dwarfish lead time]]
+[[backlink load test]]

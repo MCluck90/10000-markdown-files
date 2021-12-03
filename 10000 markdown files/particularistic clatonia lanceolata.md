@@ -90,6 +90,6 @@ YOU'D better not get
 
 ## Wikilinks load test
 
-[[antipathetic ophthalmoscope]]
-[[unclassified surface area]]
-[[yellow-green test range]]
+[[choreographic trinitrotoluene]]
+[[uncrystallised rudiments]]
+[[backlink load test]]

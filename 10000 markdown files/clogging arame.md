@@ -83,8 +83,7 @@ For instance suppose so shiny.
 
 ## Wikilinks load test
 
-[[emblematical snuffler]]
-[[bicentennial keratoacanthoma]]
-[[bulbaceous chloral hydrate]]
-[[at peace national liberation front of corsica]]
-[[rhymeless putting surface]]
+[[physiologic worsted]]
+[[numeral phaseolus caracalla]]
+[[pie-eyed side of beef]]
+[[backlink load test]]

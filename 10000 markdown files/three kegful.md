@@ -80,4 +80,8 @@ said in rather timidly some
 
 ## Wikilinks load test
 
-[[fictitious saltpetre]]
+[[actuated albuginea]]
+[[sliding deracination]]
+[[swollen vernix caseosa]]
+[[pelagic sweet elder]]
+[[backlink load test]]

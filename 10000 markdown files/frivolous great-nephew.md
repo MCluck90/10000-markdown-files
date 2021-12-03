@@ -83,8 +83,7 @@ Bill's to go and
 
 ## Wikilinks load test
 
-[[rested relinquishing]]
-[[exact growing pains]]
-[[rectangular farmyard]]
-[[cubical honore daumier]]
-[[prospective purple sanicle]]
+[[cloudy rheum palmatum]]
+[[kind genus chilomeniscus]]
+[[safe pot liquor]]
+[[backlink load test]]

@@ -81,7 +81,7 @@ Only a back-somersault in
 
 ## Wikilinks load test
 
-[[catamenial nellie ross]]
-[[several-seeded schizophrenic disorder]]
-[[plucky sanguinary ant]]
-[[mitral tunnel vision]]
+[[prickly peppermint gum]]
+[[mandibulate desmodium gyrans]]
+[[southbound spatangoida]]
+[[backlink load test]]

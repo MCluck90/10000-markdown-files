@@ -84,8 +84,9 @@ I'LL soon got used
 
 ## Wikilinks load test
 
-[[ecuadorian burgoo]]
-[[unshuttered projection]]
-[[good-tempered swamp ash]]
-[[non compos mentis edison]]
-[[matutinal marine iguana]]
+[[absorbing naivety]]
+[[abominable lexington and concord]]
+[[mantled electric fan]]
+[[outlandish protium]]
+[[devilish black currant]]
+[[backlink load test]]

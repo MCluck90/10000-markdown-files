@@ -79,8 +79,5 @@ a White Rabbit actually
 
 ## Wikilinks load test
 
-[[crural dead language]]
-[[unequalled pinhole]]
-[[systematic libertarian]]
-[[hindi eluate]]
-[[midget wove paper]]
+[[preferent hemimorphite]]
+[[backlink load test]]

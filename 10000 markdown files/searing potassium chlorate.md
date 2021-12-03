@@ -77,8 +77,9 @@ Keep your feelings.
 
 ## Wikilinks load test
 
-[[dextrorotatory manganese tetroxide]]
-[[greenish hepatitis b]]
-[[aeschylean quicksilver]]
-[[peroneal mugging]]
-[[diametric regulator]]
+[[arthropodous creatine phosphate]]
+[[restrictive laurelwood]]
+[[flaunty mutt]]
+[[icebound mensa]]
+[[lithe-bodied hollyhock]]
+[[backlink load test]]

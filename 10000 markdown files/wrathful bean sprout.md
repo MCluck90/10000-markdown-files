@@ -82,4 +82,6 @@ Ah THAT'S the King's crown on
 
 ## Wikilinks load test
 
-[[fly-by-night spinning frame]]
+[[planar innovator]]
+[[utility-grade genus peneus]]
+[[backlink load test]]

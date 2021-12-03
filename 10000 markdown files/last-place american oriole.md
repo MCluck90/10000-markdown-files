@@ -77,5 +77,5 @@ On various pretexts they can't
 
 ## Wikilinks load test
 
-[[palmlike bowleg]]
-[[direct equador laurel]]
+[[antic republic of san marino]]
+[[backlink load test]]

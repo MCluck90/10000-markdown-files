@@ -92,8 +92,8 @@ Wake up she took to box
 
 ## Wikilinks load test
 
-[[homonymic acedia]]
-[[leaded beater]]
-[[bacillar woodshed]]
-[[fixed blind stitching]]
-[[paramagnetic aertex]]
+[[brittle kingdom of god]]
+[[nonviscid bedding]]
+[[photoemissive first derivative]]
+[[sniffy black rock desert]]
+[[backlink load test]]

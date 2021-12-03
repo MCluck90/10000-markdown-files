@@ -94,5 +94,5 @@ Nor I grow here.
 
 ## Wikilinks load test
 
-[[nonslip scandinavian peninsula]]
-[[palaeontological roger brooke taney]]
+[[tuberculoid aalborg]]
+[[backlink load test]]

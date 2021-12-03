@@ -89,8 +89,6 @@ Ahem.
 
 ## Wikilinks load test
 
-[[downwind showy daisy]]
-[[unobservant harold pinter]]
-[[unrepeatable haymaking]]
-[[nonhierarchic tsuga heterophylla]]
-[[ropey jimmy doolittle]]
+[[dim-sighted guerilla]]
+[[documental arc sine]]
+[[backlink load test]]

@@ -83,7 +83,9 @@ muttered the master though still
 
 ## Wikilinks load test
 
-[[disorderly genus polyprion]]
-[[joint primum mobile]]
-[[unlawful myotis leucifugus]]
-[[chummy hog plum]]
+[[danceable callophis]]
+[[comforting asuncion]]
+[[five-pointed circumflex artery]]
+[[hedged quercus wizlizenii]]
+[[absolutistic strikebreaking]]
+[[backlink load test]]

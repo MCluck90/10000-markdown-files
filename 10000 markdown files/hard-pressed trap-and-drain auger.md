@@ -74,8 +74,7 @@ I'm a bird as
 
 ## Wikilinks load test
 
-[[hapless ovulation]]
-[[one hundred sixty-five common white dogwood]]
-[[defective parrot fever]]
-[[geosynchronous howard]]
-[[prongy firing squad]]
+[[aeschylean government issue]]
+[[hard-of-hearing yves tanguy]]
+[[knee-length black comedy]]
+[[backlink load test]]

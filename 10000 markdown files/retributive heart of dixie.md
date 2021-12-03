@@ -87,7 +87,6 @@ and fortunately was now here
 
 ## Wikilinks load test
 
-[[stopped up pilot ladder]]
-[[nonhuman class ciliata]]
-[[populous corticosteroid]]
-[[three-legged pericardial sac]]
+[[full-size choke coil]]
+[[decompositional igniter]]
+[[backlink load test]]

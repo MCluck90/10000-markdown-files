@@ -85,6 +85,6 @@ Our family always get
 
 ## Wikilinks load test
 
-[[arduous stunt flier]]
-[[neuter cryptograph]]
-[[terrific draught beer]]
+[[curricular corylus americana]]
+[[platinum-blonde slavonic]]
+[[backlink load test]]

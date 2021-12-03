@@ -82,7 +82,7 @@ Very soon.
 
 ## Wikilinks load test
 
-[[pushful jury mast]]
-[[sickish cycad family]]
-[[pessimum rose-colored starling]]
-[[asquint yellow mariposa tulip]]
+[[dorsal fishing vessel]]
+[[excited capital of benin]]
+[[expiatory sweet oil]]
+[[backlink load test]]

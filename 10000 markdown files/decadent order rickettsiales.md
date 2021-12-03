@@ -76,8 +76,5 @@ repeated thoughtfully at home this
 
 ## Wikilinks load test
 
-[[ix holy father]]
-[[rose-red menotti]]
-[[ready-cooked swiss chard]]
-[[purgatorial pellitory-of-the-wall]]
-[[plumy bovril]]
+[[overindulgent diagnostic technique]]
+[[backlink load test]]

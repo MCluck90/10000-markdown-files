@@ -93,7 +93,7 @@ See how long that
 
 ## Wikilinks load test
 
-[[lxv internet explorer]]
-[[uxorious canned hunt]]
-[[sizzling disability]]
-[[waxed deeds]]
+[[permutable haloalkane]]
+[[demonstrated onslaught]]
+[[nonastringent blastema]]
+[[backlink load test]]

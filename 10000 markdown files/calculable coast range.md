@@ -78,5 +78,5 @@ Hush.
 
 ## Wikilinks load test
 
-[[heritable false teeth]]
-[[haitian merthiolate]]
+[[neo-lamarckian collection plate]]
+[[backlink load test]]

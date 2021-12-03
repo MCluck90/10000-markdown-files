@@ -88,8 +88,6 @@ sighed wearily.
 
 ## Wikilinks load test
 
-[[cod steamship line]]
-[[inhospitable qum]]
-[[nauseous elf]]
-[[hand-operated winter crookneck squash]]
-[[mismated kennewick]]
+[[slate-black pill roller]]
+[[disillusioned balanoposthitis]]
+[[backlink load test]]

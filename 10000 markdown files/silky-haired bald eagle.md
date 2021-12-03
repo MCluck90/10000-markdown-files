@@ -92,8 +92,6 @@ fetch the direction it up but
 
 ## Wikilinks load test
 
-[[piddling palo verde]]
-[[majuscule spreadhead]]
-[[silver-colored aliterate person]]
-[[myrmecophytic satureja douglasii]]
-[[punctureless condom]]
+[[venerable forgivingness]]
+[[wacky sutura sagittalis]]
+[[backlink load test]]

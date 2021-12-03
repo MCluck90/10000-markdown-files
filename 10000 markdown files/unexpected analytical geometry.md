@@ -87,6 +87,7 @@ Shy they WOULD not join
 
 ## Wikilinks load test
 
-[[pentasyllabic retailer]]
-[[bankable capparis cynophallophora]]
-[[soteriological lungless salamander]]
+[[graceless takeoff booster]]
+[[illuminating irish strawberry]]
+[[impeded kwakiutl]]
+[[backlink load test]]

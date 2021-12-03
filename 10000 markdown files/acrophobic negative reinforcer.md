@@ -85,5 +85,8 @@ on rather shyly I look
 
 ## Wikilinks load test
 
-[[phenotypical genus pinicola]]
-[[stand-up 30]]
+[[collarless inferior epigastric vein]]
+[[cautionary femoral vein]]
+[[nonrepetitive astigmatism]]
+[[unpronounceable rack of lamb]]
+[[backlink load test]]

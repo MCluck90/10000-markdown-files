@@ -91,7 +91,7 @@ Run home this Beautiful
 
 ## Wikilinks load test
 
-[[drunk refining]]
-[[hypothermic territorial army]]
-[[mutative rip-off]]
-[[crystalised piece of cloth]]
+[[cognate defecator]]
+[[nonmechanical jotunn]]
+[[seaborne downslope]]
+[[backlink load test]]

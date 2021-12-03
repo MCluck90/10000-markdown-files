@@ -80,7 +80,7 @@ Stand up like an occasional exclamation
 
 ## Wikilinks load test
 
-[[tailored nymphaea alba]]
-[[ventricular cilioflagellata]]
-[[distraught multiengine plane]]
-[[tempestuous cow lily]]
+[[vatical tacheometer]]
+[[auroral amanita rubescens]]
+[[audacious adhesiveness]]
+[[backlink load test]]

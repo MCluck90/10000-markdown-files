@@ -84,6 +84,8 @@ thump.
 
 ## Wikilinks load test
 
-[[sleepy-eyed ashur]]
-[[opportunistic policeman bird]]
-[[tearing gps]]
+[[spellbound jainism]]
+[[suspect bpm]]
+[[home-loving straight]]
+[[tenuous yellow jessamine]]
+[[backlink load test]]

@@ -84,6 +84,9 @@ Behead that queer it myself to
 
 ## Wikilinks load test
 
-[[unprotected anhydride]]
-[[noncommissioned pas de quatre]]
-[[algebraical packinghouse]]
+[[liberalistic metasequoia]]
+[[patient of bronchial asthma]]
+[[macho costal groove]]
+[[idiopathic thumbnut]]
+[[empirical duckbill]]
+[[backlink load test]]

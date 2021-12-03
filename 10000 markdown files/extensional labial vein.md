@@ -83,5 +83,6 @@ Consider your choice.
 
 ## Wikilinks load test
 
-[[graphic puppet state]]
-[[bullish para aminobenzoic acid]]
+[[belted queensboro bridge]]
+[[honey-scented lesser yellowlegs]]
+[[backlink load test]]

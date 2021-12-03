@@ -84,4 +84,5 @@ that SOMEBODY ought.
 
 ## Wikilinks load test
 
-[[wrongheaded lying in wait]]
+[[ismaili pistachio nut]]
+[[backlink load test]]

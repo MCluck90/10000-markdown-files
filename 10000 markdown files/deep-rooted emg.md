@@ -83,6 +83,5 @@ Would not dare say whether it's
 
 ## Wikilinks load test
 
-[[ethnographic chair lift]]
-[[spiffed up hungarian]]
-[[songful telopea speciosissima]]
+[[corroboratory whiting]]
+[[backlink load test]]

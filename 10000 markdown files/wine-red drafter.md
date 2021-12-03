@@ -85,8 +85,5 @@ Stand up Alice by
 
 ## Wikilinks load test
 
-[[semi-erect br]]
-[[open-minded quartering]]
-[[tapered dauber]]
-[[rimless shock wave]]
-[[uncolumned majuscule]]
+[[chilean dynamite]]
+[[backlink load test]]

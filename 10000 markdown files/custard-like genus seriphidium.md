@@ -83,8 +83,7 @@ Wouldn't it something splashing about for
 
 ## Wikilinks load test
 
-[[rhodesian nuclear terrorism]]
-[[invidious smokescreen]]
-[[outbound murder suspect]]
-[[genital dimer]]
-[[climbable compunction]]
+[[rotted bathroom]]
+[[unlit lunge]]
+[[degenerative genus raphicerus]]
+[[backlink load test]]

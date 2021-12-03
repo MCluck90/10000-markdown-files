@@ -76,4 +76,8 @@ Prizes.
 
 ## Wikilinks load test
 
-[[lincolnian wagga wagga]]
+[[accustomed pingpong paddle]]
+[[sweetheart punchayet]]
+[[dehumanized pinwheel wind collector]]
+[[large-minded quarterstaff]]
+[[backlink load test]]

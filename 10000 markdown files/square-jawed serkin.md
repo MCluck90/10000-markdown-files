@@ -88,6 +88,5 @@ then always six o'clock
 
 ## Wikilinks load test
 
-[[motherless bubble and squeak]]
-[[piebald chopstick]]
-[[wrong admissibility]]
+[[cognitive libertine]]
+[[backlink load test]]

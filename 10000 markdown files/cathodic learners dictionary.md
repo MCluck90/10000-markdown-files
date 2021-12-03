@@ -93,7 +93,7 @@ Yes I never so mad
 
 ## Wikilinks load test
 
-[[split suborder myxiniformes]]
-[[fickle sputter]]
-[[crystal clear live-bearer]]
-[[burnished war to end war]]
+[[manful polarography]]
+[[hokey intoxicant]]
+[[categoric sterculia rupestris]]
+[[backlink load test]]

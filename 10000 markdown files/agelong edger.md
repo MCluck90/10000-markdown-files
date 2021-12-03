@@ -88,6 +88,6 @@ Consider my kitchen that curious dream
 
 ## Wikilinks load test
 
-[[iodinating bombay hemp]]
-[[intact psycholinguist]]
-[[foremost peacock ore]]
+[[photometric pernambuco wood]]
+[[agonizing relative-in-law]]
+[[backlink load test]]

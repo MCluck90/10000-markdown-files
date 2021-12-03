@@ -75,7 +75,7 @@ Will you fair warning shouted
 
 ## Wikilinks load test
 
-[[disrespectful capital cost]]
-[[churrigueresque patrick white]]
-[[erosive shigella]]
-[[barehanded trench warfare]]
+[[refractory curry]]
+[[squealing rogue state]]
+[[peeled order umbellales]]
+[[backlink load test]]

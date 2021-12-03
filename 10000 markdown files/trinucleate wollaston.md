@@ -86,7 +86,7 @@ So Alice aloud.
 
 ## Wikilinks load test
 
-[[exact truck traffic]]
-[[amphiprostyle maternity]]
-[[trilateral bagman]]
-[[rearmost free fall]]
+[[openmouthed slave-maker]]
+[[unconverted outset]]
+[[confederate cheetah]]
+[[backlink load test]]

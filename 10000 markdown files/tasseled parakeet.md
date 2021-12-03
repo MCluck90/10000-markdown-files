@@ -77,8 +77,7 @@ was perfectly quiet till
 
 ## Wikilinks load test
 
-[[contemptuous 10000]]
-[[most table rapping]]
-[[unbleached coniferous tree]]
-[[outlying electrical contact]]
-[[cesarian e.s.p.]]
+[[vocalic chechnya]]
+[[laconic nunc dimittis]]
+[[paradigmatic praetor]]
+[[backlink load test]]

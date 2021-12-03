@@ -81,5 +81,9 @@ Found IT the Lory
 
 ## Wikilinks load test
 
-[[d fieriness]]
-[[mottled cabernet sauvignon]]
+[[uncombable barmbrack]]
+[[rushed jean luc godard]]
+[[sparkly sidewalk]]
+[[menacing bugle call]]
+[[citywide microcircuit]]
+[[backlink load test]]

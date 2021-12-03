@@ -80,5 +80,5 @@ Now what a red-hot poker
 
 ## Wikilinks load test
 
-[[lined meningism]]
-[[phrenetic lepadidae]]
+[[symptomatic atlantic manta]]
+[[backlink load test]]

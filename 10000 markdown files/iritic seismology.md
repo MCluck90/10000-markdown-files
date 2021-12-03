@@ -85,6 +85,7 @@ added the fun.
 
 ## Wikilinks load test
 
-[[fatless coffee shop]]
-[[restful limbic system]]
-[[suboceanic minuteman]]
+[[pinched panthera uncia]]
+[[biracial genus hoheria]]
+[[inertial hot potato]]
+[[backlink load test]]

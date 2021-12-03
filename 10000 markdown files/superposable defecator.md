@@ -84,6 +84,6 @@ Seven.
 
 ## Wikilinks load test
 
-[[synchronous rima vestibuli]]
-[[burlesque punch pliers]]
-[[puncturable cabman]]
+[[androgenic insurability]]
+[[thundery nuclear propulsion]]
+[[backlink load test]]

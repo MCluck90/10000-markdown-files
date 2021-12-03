@@ -87,5 +87,5 @@ Run home thought they
 
 ## Wikilinks load test
 
-[[behavioural walk-in]]
-[[subnormal collins]]
+[[unlovable cutaway drawing]]
+[[backlink load test]]

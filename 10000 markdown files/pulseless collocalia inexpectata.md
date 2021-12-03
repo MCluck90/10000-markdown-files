@@ -86,6 +86,9 @@ Seven flung down down
 
 ## Wikilinks load test
 
-[[syncretical coefficient of self induction]]
-[[infamous witch grass]]
-[[magnetic family ploceidae]]
+[[propellent blue-green algae]]
+[[speculative platycephalidae]]
+[[best-loved bergen]]
+[[insecure pliantness]]
+[[buttoned-up press gallery]]
+[[backlink load test]]

@@ -87,6 +87,5 @@ You've no harm in getting
 
 ## Wikilinks load test
 
-[[uncorroborated filth]]
-[[tweedy vaudeville theater]]
-[[sapient genus spraguea]]
+[[gilt-edged star magnolia]]
+[[backlink load test]]

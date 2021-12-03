@@ -90,7 +90,8 @@ from all spoke to
 
 ## Wikilinks load test
 
-[[covetous wild west show]]
-[[reprehensible ware]]
-[[impelling arborescent plant]]
-[[prehistorical black beech]]
+[[mousy racing shell]]
+[[perturbed water nymph]]
+[[acromegalic gulf of aegina]]
+[[intracranial off-day]]
+[[backlink load test]]

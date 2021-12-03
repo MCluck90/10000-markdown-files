@@ -84,5 +84,5 @@ YOU'D better finish my adventures beginning
 
 ## Wikilinks load test
 
-[[galactic damsel]]
-[[sugarless absolute threshold]]
+[[cinnamon colored telecast]]
+[[backlink load test]]

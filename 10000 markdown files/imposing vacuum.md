@@ -82,8 +82,6 @@ Collar that do you couldn't
 
 ## Wikilinks load test
 
-[[consentient radiation pressure]]
-[[full-bosomed ormosia monosperma]]
-[[avascular star of the veldt]]
-[[clove-scented ivan iv]]
-[[savourless swede]]
+[[angiomatous hog]]
+[[mauve gigacycle]]
+[[backlink load test]]

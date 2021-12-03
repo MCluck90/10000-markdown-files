@@ -84,6 +84,8 @@ Alice thought at one eats
 
 ## Wikilinks load test
 
-[[unsatisfying cerebral aqueduct]]
-[[unlovable cutaway drawing]]
-[[stranded sabbatical year]]
+[[bionomic letdown]]
+[[awless logomach]]
+[[clayey yucatec]]
+[[dicey 24-karat gold]]
+[[backlink load test]]

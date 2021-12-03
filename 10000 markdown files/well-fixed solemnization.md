@@ -85,8 +85,6 @@ interrupted if the house
 
 ## Wikilinks load test
 
-[[wacky nanus]]
-[[passerine genus balaenoptera]]
-[[antitumor focal infection]]
-[[forfeit stuffed egg]]
-[[bifurcated astacus]]
+[[invalid chino]]
+[[discriminable lessening]]
+[[backlink load test]]

@@ -83,8 +83,5 @@ With what they'll do almost
 
 ## Wikilinks load test
 
-[[ill-natured stem-cell research]]
-[[bashful genus frankliniella]]
-[[arithmetic rachycentridae]]
-[[agape screwtop]]
-[[horny synod]]
+[[numeric bhagavad-gita]]
+[[backlink load test]]

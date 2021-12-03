@@ -81,7 +81,9 @@ Would not do cats
 
 ## Wikilinks load test
 
-[[effervescing incremental cost]]
-[[late-flowering gorilla gorilla gorilla]]
-[[half taurotragus derbianus]]
-[[runcinate khat]]
+[[anapestic pusillanimity]]
+[[fan-shaped akira kurosawa]]
+[[on the hook straight arrow]]
+[[scheming bench warrant]]
+[[bedfast phylum porifera]]
+[[backlink load test]]

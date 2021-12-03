@@ -87,7 +87,7 @@ Which would you begin.
 
 ## Wikilinks load test
 
-[[squinty arrow wood]]
-[[differentiated antechamber]]
-[[assaultive levantine]]
-[[mundane life ring]]
+[[saw-like statistical mechanics]]
+[[homoiothermic everglade state]]
+[[hatted metronome]]
+[[backlink load test]]

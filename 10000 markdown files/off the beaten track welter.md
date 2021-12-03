@@ -87,6 +87,8 @@ The race is queer thing the
 
 ## Wikilinks load test
 
-[[nurturant spread eagle]]
-[[praetorial genus boletellus]]
-[[linnaean integrator]]
+[[icebound mensa]]
+[[intoxicated millivoltmeter]]
+[[funky 2]]
+[[dolichocephalic heteroscelus]]
+[[backlink load test]]

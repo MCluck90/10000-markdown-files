@@ -78,5 +78,6 @@ Nothing WHATEVER.
 
 ## Wikilinks load test
 
-[[goaded command language]]
-[[legislative tyro]]
+[[poky perutz]]
+[[two-humped ornithischian]]
+[[backlink load test]]

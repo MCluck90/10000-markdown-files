@@ -93,6 +93,8 @@ Pinch him he'd do anything near
 
 ## Wikilinks load test
 
-[[whimsical turkish towel]]
-[[exculpatory honey buzzard]]
-[[achondritic direct examination]]
+[[steep-sided banger]]
+[[daedal icteria virens]]
+[[pumped-up packing nut]]
+[[single-humped catchment basin]]
+[[backlink load test]]

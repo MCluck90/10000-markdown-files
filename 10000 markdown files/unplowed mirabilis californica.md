@@ -86,8 +86,5 @@ HE was high then
 
 ## Wikilinks load test
 
-[[unconstrained anemic anoxia]]
-[[paintable barbital]]
-[[dactylic rebato]]
-[[abruptly-pinnate menuridae]]
-[[grim cryptoprocta ferox]]
+[[lxxxvii major league]]
+[[backlink load test]]

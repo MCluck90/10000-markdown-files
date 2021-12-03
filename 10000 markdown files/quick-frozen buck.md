@@ -79,8 +79,6 @@ Have you guessed in fact.
 
 ## Wikilinks load test
 
-[[smooth-spoken git]]
-[[best-loved rabbiteye blueberry]]
-[[norse tritanopia]]
-[[lxxxiv ferrite]]
-[[edified sniper]]
+[[overwrought natural resources]]
+[[ruinous erivan]]
+[[backlink load test]]

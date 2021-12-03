@@ -88,6 +88,9 @@ For you weren't to uglify is
 
 ## Wikilinks load test
 
-[[self-limited backlighting]]
-[[degrading world trade organization]]
-[[hardened scrub nurse]]
+[[craniometric carcinoma in situ]]
+[[bitumenoid cold stuffed tomato]]
+[[splayfoot genus melolontha]]
+[[messy kanamycin]]
+[[lowbrow s gravenhage]]
+[[backlink load test]]

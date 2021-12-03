@@ -88,8 +88,8 @@ Twinkle twinkle Here Bill
 
 ## Wikilinks load test
 
-[[conventionalised cortez]]
-[[usufructuary genus juniperus]]
-[[assumptive binary digit]]
-[[empty salix alba sericea]]
-[[comprehensible myringoplasty]]
+[[explosive ritualism]]
+[[undermentioned pisa]]
+[[isoclinal chloroplast]]
+[[accustomed pingpong paddle]]
+[[backlink load test]]

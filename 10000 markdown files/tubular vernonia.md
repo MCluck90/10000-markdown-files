@@ -91,8 +91,8 @@ YOU'D better leave off a
 
 ## Wikilinks load test
 
-[[fleecy hotplate]]
-[[behaviourist shoe collar]]
-[[piscatory crime rate]]
-[[vulcanized lukasiewicz notation]]
-[[incoherent volcan de colima]]
+[[curtal obligate anaerobe]]
+[[two-handed national bank]]
+[[flamboyant algae]]
+[[mishnaic civvies]]
+[[backlink load test]]

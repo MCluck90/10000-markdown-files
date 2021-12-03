@@ -83,8 +83,6 @@ A little shriek of me but
 
 ## Wikilinks load test
 
-[[gilded defamation]]
-[[squared frisia]]
-[[uninquiring oral cavity]]
-[[cosmogenic foetometry]]
-[[tangy oil beetle]]
+[[unfulfilled resorcinol]]
+[[bacillar command module]]
+[[backlink load test]]

@@ -85,6 +85,9 @@ CHORUS.
 
 ## Wikilinks load test
 
-[[world body length]]
-[[overemotional club moss]]
-[[noninstitutionalised genus salicornia]]
+[[surmountable femtometer]]
+[[fast-flying mexicano]]
+[[lavish styler]]
+[[certified stamping ground]]
+[[across-the-board lithuresis]]
+[[backlink load test]]

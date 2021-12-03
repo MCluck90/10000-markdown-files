@@ -86,7 +86,5 @@ It was THAT in here any
 
 ## Wikilinks load test
 
-[[closed-ring calcite]]
-[[macho costal groove]]
-[[unpalatable mariposa tulip]]
-[[barometrical internal revenue service]]
+[[blowsy kaffir corn]]
+[[backlink load test]]

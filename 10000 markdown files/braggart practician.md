@@ -85,5 +85,5 @@ repeated with fury and fetch
 
 ## Wikilinks load test
 
-[[cloudy rheum palmatum]]
-[[allergenic blessing]]
+[[unsounded locknut]]
+[[backlink load test]]

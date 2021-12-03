@@ -91,6 +91,5 @@ Well I've something splashing
 
 ## Wikilinks load test
 
-[[unmoved mustela rixosa]]
-[[award-winning psychiatric hospital]]
-[[metallurgical false indigo]]
+[[spondaic installation]]
+[[backlink load test]]

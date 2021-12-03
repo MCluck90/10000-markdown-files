@@ -79,8 +79,6 @@ THAT you should meet the experiment.
 
 ## Wikilinks load test
 
-[[bullocky kahlua]]
-[[rutty macroglossia]]
-[[cruciate bootlicker]]
-[[acritical natural order]]
-[[etiologic lead acetate]]
+[[aramean red tide]]
+[[capable genus orthilia]]
+[[backlink load test]]

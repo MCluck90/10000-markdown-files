@@ -81,8 +81,5 @@ At any dispute with variations.
 
 ## Wikilinks load test
 
-[[underhung melanoblast]]
-[[amygdaliform freeway]]
-[[gigantic laurel]]
-[[anemometrical tie tack]]
-[[alterative allmouth]]
+[[abkhazian caucasoid race]]
+[[backlink load test]]

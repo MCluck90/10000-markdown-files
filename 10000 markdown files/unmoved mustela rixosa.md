@@ -92,6 +92,8 @@ Shy they arrived with.
 
 ## Wikilinks load test
 
-[[prognostic camosh]]
-[[sickish cycad family]]
-[[farthest mandelamine]]
+[[one-dimensional sikh]]
+[[awnless surveyors instrument]]
+[[splotched undoer]]
+[[despondent chicken leg]]
+[[backlink load test]]

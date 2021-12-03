@@ -92,8 +92,6 @@ Would not to nine
 
 ## Wikilinks load test
 
-[[frightened mantinea]]
-[[stouthearted reentrant angle]]
-[[card-playing genus mesembryanthemum]]
-[[scrofulous atlanta]]
-[[trousered bur]]
+[[unguided academic gown]]
+[[positivist uintatherium]]
+[[backlink load test]]

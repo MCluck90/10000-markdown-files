@@ -86,5 +86,6 @@ Why they're about wasting IT DOES
 
 ## Wikilinks load test
 
-[[crumpled star begonia]]
-[[racist carolina wren]]
+[[extortionate genus funka]]
+[[disintegrative hans geiger]]
+[[backlink load test]]

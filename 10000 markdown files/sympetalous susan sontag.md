@@ -89,7 +89,9 @@ Beau ootiful Soo oop
 
 ## Wikilinks load test
 
-[[travel-soiled cesar franck]]
-[[ironlike namur]]
-[[troubling capital of the dominican republic]]
-[[loose-fitting rocco marciano]]
+[[downtown biohazard]]
+[[green-white blood cell]]
+[[cockney capital levy]]
+[[exacerbating night-robe]]
+[[striate lepidopterist]]
+[[backlink load test]]

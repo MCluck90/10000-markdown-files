@@ -88,4 +88,9 @@ Be off.
 
 ## Wikilinks load test
 
-[[uninsurable vitis vinifera]]
+[[labial musculus triceps brachii]]
+[[monestrous genus nycticorax]]
+[[unchallenged aussie]]
+[[recessed eranthis]]
+[[aeromechanic genus chordeiles]]
+[[backlink load test]]

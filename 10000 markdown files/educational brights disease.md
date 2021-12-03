@@ -89,6 +89,8 @@ Who's to keep it can't tell
 
 ## Wikilinks load test
 
-[[inexact army officer]]
-[[inerrant zygotene]]
-[[indiscriminate thermos flask]]
+[[extortionate genus funka]]
+[[short-snouted cote]]
+[[soused maurice ravel]]
+[[disciplined information age]]
+[[backlink load test]]

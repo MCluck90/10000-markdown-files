@@ -86,5 +86,9 @@ Twinkle twinkle Here one only
 
 ## Wikilinks load test
 
-[[creditworthy porterhouse]]
-[[professed wild ox]]
+[[piscatorial lx]]
+[[certain muscle system]]
+[[unsanded tamarisk]]
+[[exhaustible one-trillionth]]
+[[capricious family combretaceae]]
+[[backlink load test]]

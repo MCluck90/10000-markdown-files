@@ -81,6 +81,5 @@ Or would make out to move
 
 ## Wikilinks load test
 
-[[psychotic maturity-onset diabetes mellitus]]
-[[induced vena jugularis]]
-[[fuzzy crocodile river]]
+[[cranial mass rapid transit]]
+[[backlink load test]]

@@ -88,8 +88,8 @@ She'll get ready for
 
 ## Wikilinks load test
 
-[[untenable rock n roll musician]]
-[[censurable phi coefficient]]
-[[uzbekistani tartaric acid]]
-[[self-styled louis le begue]]
-[[aged bell captain]]
+[[dabbled lawcourt]]
+[[unclouded intelligibility]]
+[[sciatic norfolk]]
+[[antler-like simhat torah]]
+[[backlink load test]]

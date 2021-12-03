@@ -80,7 +80,7 @@ Some of use their slates but
 
 ## Wikilinks load test
 
-[[proprietary ash grey]]
-[[anti-american sublingual salivary gland]]
-[[fifty-four birretta]]
-[[fourpenny killer]]
+[[techy adelie land]]
+[[clip-on fuji-san]]
+[[transdermic funicular]]
+[[backlink load test]]

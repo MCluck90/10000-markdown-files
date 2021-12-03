@@ -84,6 +84,5 @@ Why I wouldn't have
 
 ## Wikilinks load test
 
-[[dehumanized pinwheel wind collector]]
-[[achromic golfing]]
-[[spanish anapest]]
+[[pentasyllabic retailer]]
+[[backlink load test]]

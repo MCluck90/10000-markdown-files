@@ -88,8 +88,8 @@ exclaimed Alice or she passed it
 
 ## Wikilinks load test
 
-[[ultrasonic eight]]
-[[megascopic bilestone]]
-[[bhutanese rule of morphology]]
-[[hoggish dry mustard]]
-[[neuroendocrine mr.]]
+[[insolent lanyard]]
+[[conditioned secretin]]
+[[calculous genus comptonia]]
+[[eccentric unavoidability]]
+[[backlink load test]]

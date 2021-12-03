@@ -93,6 +93,6 @@ Turn them word moral of
 
 ## Wikilinks load test
 
-[[androgenic insurability]]
-[[gushy nuisance value]]
-[[strong-smelling tramway]]
+[[common or garden gigo]]
+[[hundred-and-seventieth footpad]]
+[[backlink load test]]

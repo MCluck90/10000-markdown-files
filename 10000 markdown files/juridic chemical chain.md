@@ -82,7 +82,5 @@ She drew a three-legged table all
 
 ## Wikilinks load test
 
-[[cutaneous periodic law]]
-[[graphical theurgy]]
-[[arced hieracium venosum]]
-[[knock-down-and-drag-out brain surgeon]]
+[[philosophical unfairness]]
+[[backlink load test]]

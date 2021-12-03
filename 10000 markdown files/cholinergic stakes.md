@@ -86,7 +86,6 @@ Silence.
 
 ## Wikilinks load test
 
-[[obstructive parachutist]]
-[[inebriated reading teacher]]
-[[orbital alcedo]]
-[[one hundred twenty square toes]]
+[[footling pink lady]]
+[[resiny garden loosestrife]]
+[[backlink load test]]

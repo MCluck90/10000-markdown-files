@@ -75,4 +75,8 @@ WHAT.
 
 ## Wikilinks load test
 
-[[disinterested woodworker]]
+[[goofy mack]]
+[[inanimate ceiba pentandra]]
+[[covetous blue sky]]
+[[minty homyel]]
+[[backlink load test]]

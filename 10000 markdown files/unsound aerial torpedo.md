@@ -91,7 +91,9 @@ Give your tea upon its
 
 ## Wikilinks load test
 
-[[permeant dirty money]]
-[[sunburned genus sarda]]
-[[indecisive congenital megacolon]]
-[[pancake-style stock-in-trade]]
+[[deweyan procession]]
+[[impeded kwakiutl]]
+[[nonsyllabic trajectory]]
+[[amnionic rh incompatibility]]
+[[hand-me-down republic of burundi]]
+[[backlink load test]]

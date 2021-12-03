@@ -82,8 +82,8 @@ Stolen.
 
 ## Wikilinks load test
 
-[[inflamed proposition]]
-[[crinkly barn spider]]
-[[basifixed valvula]]
-[[synchronised arthur schopenhauer]]
-[[telepathic watt second]]
+[[caruncular grammatical relation]]
+[[cadastral worriment]]
+[[unclouded intelligibility]]
+[[sweetheart sterope]]
+[[backlink load test]]

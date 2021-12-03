@@ -90,8 +90,9 @@ To begin.
 
 ## Wikilinks load test
 
-[[parallel storm lamp]]
-[[buggy staple fibre]]
-[[zygomatic apetalous flower]]
-[[quick-frozen buck]]
-[[amalgamative burthen]]
+[[dionysian aluminum chloride]]
+[[antipathetical pugilist]]
+[[calcic family pandanaceae]]
+[[impressive riffle]]
+[[xxx modal]]
+[[backlink load test]]

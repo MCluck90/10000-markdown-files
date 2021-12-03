@@ -80,7 +80,5 @@ Boots and your pocket.
 
 ## Wikilinks load test
 
-[[brown-striped absurdness]]
-[[killable general security services]]
-[[solvable hencoop]]
-[[fourpenny killer]]
+[[billowy rate of inflation]]
+[[backlink load test]]

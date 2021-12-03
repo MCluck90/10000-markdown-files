@@ -84,8 +84,8 @@ Be off quite silent.
 
 ## Wikilinks load test
 
-[[deflated sanskrit]]
-[[cast-off lebanese]]
-[[manual eskimo-aleut language]]
-[[dogged cryptophyceae]]
-[[canaliculate universal veil]]
+[[geophysical coprophagia]]
+[[recessionary devils urn]]
+[[contemplative integrating]]
+[[suburbanized tylenchus tritici]]
+[[backlink load test]]

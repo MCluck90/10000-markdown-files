@@ -86,8 +86,6 @@ Pinch him two You did that
 
 ## Wikilinks load test
 
-[[blameful haemangioma]]
-[[sticky cathode-ray oscilloscope]]
-[[biserrate magnetic flux density]]
-[[antique coffee rose]]
-[[impuissant primacy]]
+[[exaugural paper money]]
+[[city-bred geode]]
+[[backlink load test]]

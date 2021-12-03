@@ -91,8 +91,8 @@ Of the tiny golden key on
 
 ## Wikilinks load test
 
-[[huxleian eq]]
-[[paradigmatic dashiell hammett]]
-[[airless hematolysis]]
-[[amnionic jelly egg]]
-[[free-soil helladic culture]]
+[[extortionate genus funka]]
+[[buried protestant church]]
+[[discomfited nothofagus obliqua]]
+[[terse bulnesia sarmienti]]
+[[backlink load test]]

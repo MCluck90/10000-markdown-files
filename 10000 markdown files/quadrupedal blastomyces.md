@@ -81,7 +81,7 @@ Five in all sorts
 
 ## Wikilinks load test
 
-[[disgustful alder tree]]
-[[mousy racing shell]]
-[[unitarian sickness benefit]]
-[[unhuman lophius]]
+[[behavioural acer]]
+[[crural dead language]]
+[[puppyish genus mitchella]]
+[[backlink load test]]

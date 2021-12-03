@@ -89,7 +89,7 @@ Never mind said one
 
 ## Wikilinks load test
 
-[[ambitious gym]]
-[[consequent ruskin]]
-[[teenage fallopius]]
-[[impure ash cake]]
+[[nodding imo]]
+[[boughless saint benedict]]
+[[appalled antisocial personality disorder]]
+[[backlink load test]]

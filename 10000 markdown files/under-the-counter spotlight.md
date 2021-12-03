@@ -83,7 +83,8 @@ Shy they had succeeded
 
 ## Wikilinks load test
 
-[[unshaded title of respect]]
-[[sixtieth canadian shield]]
-[[paleontological european wood mouse]]
-[[courageous modeler]]
+[[stupefied chug]]
+[[lexicostatistic angina]]
+[[ungraded chelonian reptile]]
+[[devious false goatsbeard]]
+[[backlink load test]]

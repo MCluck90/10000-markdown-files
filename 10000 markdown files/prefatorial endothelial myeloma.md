@@ -77,5 +77,8 @@ Then they live.
 
 ## Wikilinks load test
 
-[[odoriferous talipes calcaneus]]
-[[curly-grained levi-strauss]]
+[[bowfront apolemia]]
+[[coltish matchmaker]]
+[[masted olive drab]]
+[[haunted fawn lily]]
+[[backlink load test]]

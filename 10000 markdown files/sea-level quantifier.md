@@ -83,8 +83,9 @@ Seals turtles salmon and
 
 ## Wikilinks load test
 
-[[crispate sweet gale]]
-[[deviate unsightliness]]
-[[fingered toy box]]
-[[reckless kobo]]
-[[two space laboratory]]
+[[minty homyel]]
+[[autogenous james wyatt]]
+[[diffident capital of serbia and montenegro]]
+[[rutty macroglossia]]
+[[mexican stellers sea lion]]
+[[backlink load test]]

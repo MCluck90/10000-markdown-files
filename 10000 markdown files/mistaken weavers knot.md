@@ -92,6 +92,8 @@ CHORUS.
 
 ## Wikilinks load test
 
-[[double-geared battle of guadalcanal]]
-[[deaf degenerate]]
-[[cool-white venae centrales hepatis]]
+[[emphysematous stump spud]]
+[[unconsecrated hindrance]]
+[[thermosetting oestrus]]
+[[edacious colutea arborescens]]
+[[backlink load test]]

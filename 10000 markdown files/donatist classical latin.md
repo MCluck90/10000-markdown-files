@@ -78,8 +78,7 @@ the squeaking of croquet she hurried
 
 ## Wikilinks load test
 
-[[calculated department of computer science]]
-[[custard-like cleaning woman]]
-[[medial family dactylopiidae]]
-[[amalgamate pargetry]]
-[[unappendaged frisian islands]]
+[[early-flowering proboscidea]]
+[[salubrious summary judgment]]
+[[enthralling spinal canal]]
+[[backlink load test]]

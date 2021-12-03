@@ -86,6 +86,5 @@ Nor I eat bats.
 
 ## Wikilinks load test
 
-[[verbatim francois charles mauriac]]
-[[foodless mountain anemone]]
-[[grim cryptoprocta ferox]]
+[[intensified avoidance]]
+[[backlink load test]]

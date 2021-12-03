@@ -92,8 +92,8 @@ Ahem.
 
 ## Wikilinks load test
 
-[[measly binomial distribution]]
-[[hypothermic territorial army]]
-[[agnostic nightgown]]
-[[mortuary dwarf cornel]]
-[[apologetic scene painter]]
+[[bountiful pretext]]
+[[cleavable southland]]
+[[epitheliod secular]]
+[[sure instruction manual]]
+[[backlink load test]]

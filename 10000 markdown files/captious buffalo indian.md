@@ -84,5 +84,6 @@ Will the unfortunate guests had expected
 
 ## Wikilinks load test
 
-[[large-minded genus coturnix]]
-[[shakedown mustachio]]
+[[orphic handel]]
+[[cata-cornered salyut]]
+[[backlink load test]]

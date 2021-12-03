@@ -88,7 +88,9 @@ Poor Alice folded her to
 
 ## Wikilinks load test
 
-[[pavlovian flannelette]]
-[[dusky-coloured babys dummy]]
-[[paddle-shaped aphesis]]
-[[two-needled sparkling wine]]
+[[steel-plated general relativity]]
+[[oiled growth-onset diabetes]]
+[[subaquatic taklamakan desert]]
+[[revolting rhodonite]]
+[[consolable lawn chair]]
+[[backlink load test]]

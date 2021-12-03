@@ -86,6 +86,5 @@ Thinking again into that
 
 ## Wikilinks load test
 
-[[correlated venting]]
-[[torturesome sympathetic strike]]
-[[greenish-grey very light]]
+[[foresighted kalashnikov]]
+[[backlink load test]]

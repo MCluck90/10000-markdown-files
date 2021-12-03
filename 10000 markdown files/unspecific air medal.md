@@ -84,8 +84,8 @@ Right as for they draw.
 
 ## Wikilinks load test
 
-[[sinistrorsal genus onobrychis]]
-[[trackable genus octopus]]
-[[free-enterprise kordofan]]
-[[balzacian stellite]]
-[[edentate marshall plan]]
+[[homonymic organ stop]]
+[[prongy firing squad]]
+[[orthomolecular eastern ground snake]]
+[[unkind splash]]
+[[backlink load test]]

@@ -88,6 +88,8 @@ later editions continued the doors
 
 ## Wikilinks load test
 
-[[snake-haired arenaceous rock]]
-[[travel-worn summer haw]]
-[[prissy turfing daisy]]
+[[maledict sickle alfalfa]]
+[[coupled mynah bird]]
+[[flourishing parker]]
+[[grim cryptoprocta ferox]]
+[[backlink load test]]

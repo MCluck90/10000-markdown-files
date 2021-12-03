@@ -91,5 +91,8 @@ wow.
 
 ## Wikilinks load test
 
-[[synoptical credit account]]
-[[bedfast phylum porifera]]
+[[yummy crow garlic]]
+[[rhymeless putting surface]]
+[[estival scrag]]
+[[wistful calque formation]]
+[[backlink load test]]

@@ -85,6 +85,7 @@ when it really clever.
 
 ## Wikilinks load test
 
-[[infrasonic sophora tetraptera]]
-[[calculable coast range]]
-[[disciplinary fall armyworm]]
+[[swordlike woodwardia virginica]]
+[[facial tilia heterophylla]]
+[[large-grained make-work]]
+[[backlink load test]]

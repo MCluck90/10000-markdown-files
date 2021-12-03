@@ -94,8 +94,6 @@ WHAT things are back for days
 
 ## Wikilinks load test
 
-[[unpalatable mariposa tulip]]
-[[misogynic mandibular joint]]
-[[leaved enarthrodial joint]]
-[[inappropriate anemone riparia]]
-[[supraocular agnate]]
+[[brownish-grey legislator]]
+[[weatherly acorus calamus]]
+[[backlink load test]]

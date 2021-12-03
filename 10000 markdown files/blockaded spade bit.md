@@ -88,5 +88,5 @@ You'll see Miss we're
 
 ## Wikilinks load test
 
-[[photochemical genus liposcelis]]
-[[soused maurice ravel]]
+[[repetitious application]]
+[[backlink load test]]

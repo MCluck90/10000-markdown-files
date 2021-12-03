@@ -87,5 +87,9 @@ as for all think
 
 ## Wikilinks load test
 
-[[unscripted amniotic sac]]
-[[custard-like cynocephalidae]]
+[[nauseous elf]]
+[[rush maiden name]]
+[[arty-crafty hoar]]
+[[one-seed tricolor tube]]
+[[twiglike nyasaland]]
+[[backlink load test]]

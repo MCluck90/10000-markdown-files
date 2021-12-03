@@ -89,8 +89,8 @@ Don't be much to-night I
 
 ## Wikilinks load test
 
-[[gamopetalous george frost kennan]]
-[[nonsubjective afflatus]]
-[[anglo-jewish alternanthera]]
-[[offbeat yacca]]
-[[off-the-shoulder barrows goldeneye]]
+[[bosomed military march]]
+[[acidimetric pricker]]
+[[schematic lorry]]
+[[uncategorized rugged individualism]]
+[[backlink load test]]

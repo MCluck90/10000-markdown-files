@@ -84,5 +84,6 @@ on taking the watch
 
 ## Wikilinks load test
 
-[[rutty potbelly stove]]
-[[treble cupressus arizonica]]
+[[governable kerosine heater]]
+[[squared frisia]]
+[[backlink load test]]

@@ -80,8 +80,7 @@ By-the bye what.
 
 ## Wikilinks load test
 
-[[unedited velocipede]]
-[[web-toed articulated lorry]]
-[[backed organon]]
-[[sixty-seven xyy]]
-[[then bush tit]]
+[[numbing aversion therapy]]
+[[messy analog watch]]
+[[fewest didelphis virginiana]]
+[[backlink load test]]

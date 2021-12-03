@@ -86,8 +86,7 @@ Soles and grinning from
 
 ## Wikilinks load test
 
-[[nonmechanical zapper]]
-[[acanthous gorge]]
-[[washed-up esox lucius]]
-[[abiogenetic nutlet]]
-[[exodontic aeolic dialect]]
+[[evaporated coat of arms]]
+[[profane camelia]]
+[[philhellene common reed]]
+[[backlink load test]]

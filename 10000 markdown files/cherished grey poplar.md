@@ -83,5 +83,5 @@ Nearly two guinea-pigs filled the
 
 ## Wikilinks load test
 
-[[well-mined scleranthus]]
-[[achlamydeous windshield wiper]]
+[[absolute bubble chamber]]
+[[backlink load test]]

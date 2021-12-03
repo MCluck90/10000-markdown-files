@@ -80,7 +80,9 @@ ALL.
 
 ## Wikilinks load test
 
-[[malawian baedeker]]
-[[prior enterotoxemia]]
-[[esthetical pseudobombax]]
-[[spaciotemporal sesame oil]]
+[[indifferent mishna]]
+[[out of work diddlysquat]]
+[[stopped antelope chipmunk]]
+[[schmaltzy morel]]
+[[biracial clearway]]
+[[backlink load test]]

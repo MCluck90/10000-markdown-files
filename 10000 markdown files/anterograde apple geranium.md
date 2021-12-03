@@ -88,8 +88,5 @@ fetch things between us all it
 
 ## Wikilinks load test
 
-[[monarchal family apodidae]]
-[[uncarved yerupaja]]
-[[crabbed liquid pred]]
-[[lacerated christian liturgy]]
-[[shipshape brass band]]
+[[capitulary oreortyx]]
+[[backlink load test]]

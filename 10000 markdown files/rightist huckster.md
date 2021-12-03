@@ -77,8 +77,6 @@ you our best afore
 
 ## Wikilinks load test
 
-[[antenatal ethnic slur]]
-[[high-stepping acromikria]]
-[[longsighted canafistola]]
-[[stravinskian semilunar cartilage]]
-[[perforated ontology]]
+[[hindu vepsian]]
+[[aramean red tide]]
+[[backlink load test]]

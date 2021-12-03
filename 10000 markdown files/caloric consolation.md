@@ -83,6 +83,8 @@ ALICE'S LOVE.
 
 ## Wikilinks load test
 
-[[ambulacral peccadillo]]
-[[downward seneca snakeroot]]
-[[susceptible scallion]]
+[[goosey audible]]
+[[calceiform genus lycopodium]]
+[[berried pristis pectinatus]]
+[[ashy expensiveness]]
+[[backlink load test]]

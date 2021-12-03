@@ -81,4 +81,6 @@ one sharp little house before
 
 ## Wikilinks load test
 
-[[tetragonal easy street]]
+[[semicentenary bitter pea]]
+[[certain crowing]]
+[[backlink load test]]

@@ -87,6 +87,5 @@ All on good character But
 
 ## Wikilinks load test
 
-[[suntanned concavity]]
-[[fickle sputter]]
-[[bullish chemical property]]
+[[attritional gradable opposition]]
+[[backlink load test]]

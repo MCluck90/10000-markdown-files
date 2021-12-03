@@ -85,6 +85,8 @@ Stand up at present.
 
 ## Wikilinks load test
 
-[[elucidative air horn]]
-[[detested social organisation]]
-[[purple cleavers]]
+[[apheretic reveler]]
+[[precooled klutz]]
+[[unmitigated ivory coast franc]]
+[[tanned boer war]]
+[[backlink load test]]

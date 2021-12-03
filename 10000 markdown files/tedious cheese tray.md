@@ -82,7 +82,7 @@ on all for sneezing and
 
 ## Wikilinks load test
 
-[[cross-eyed esophagus]]
-[[treasured tai chi]]
-[[brummagem erythrina vespertilio]]
-[[particularistic power cable]]
+[[life-sustaining allemande sauce]]
+[[life-sustaining allemande sauce]]
+[[clever sceptic]]
+[[backlink load test]]

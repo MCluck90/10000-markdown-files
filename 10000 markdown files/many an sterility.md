@@ -85,4 +85,6 @@ UNimportant your finger pressed
 
 ## Wikilinks load test
 
-[[brief paleo-amerind]]
+[[desired avalanche]]
+[[brachiopodous biter]]
+[[backlink load test]]

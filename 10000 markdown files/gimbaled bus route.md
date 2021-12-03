@@ -85,7 +85,7 @@ yelled the earth.
 
 ## Wikilinks load test
 
-[[coordinated north dakotan]]
-[[unnoticed upthrust]]
-[[adequate to helen]]
-[[gaunt subphylum tunicata]]
+[[imbecilic fusain]]
+[[deep pennyroyal oil]]
+[[parted fungicide]]
+[[backlink load test]]

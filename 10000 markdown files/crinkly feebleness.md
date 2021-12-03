@@ -77,7 +77,6 @@ so thin and when one flapper
 
 ## Wikilinks load test
 
-[[scriptural black buck]]
-[[yellow-tinged hepatomegaly]]
-[[bar-shaped lime disease spirochete]]
-[[rife cubbyhole]]
+[[silver-leafed prison chaplain]]
+[[heartless genus aneides]]
+[[backlink load test]]

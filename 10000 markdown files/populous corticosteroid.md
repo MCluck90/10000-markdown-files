@@ -82,8 +82,7 @@ You've no sorrow.
 
 ## Wikilinks load test
 
-[[craniometric carcinoma in situ]]
-[[unpillared prehensor]]
-[[wrinkleless vapours]]
-[[rascally clef]]
-[[clincher-built uub]]
+[[accredited fructidor]]
+[[conciliatory mutchkin]]
+[[pantheist baby-boom generation]]
+[[backlink load test]]

@@ -87,5 +87,8 @@ CHORUS.
 
 ## Wikilinks load test
 
-[[plane shaggy dog story]]
-[[unprogressive davallia]]
+[[dopy star aniseed]]
+[[churned-up shiftiness]]
+[[one-seed tricolor tube]]
+[[bedaubed webbing]]
+[[backlink load test]]

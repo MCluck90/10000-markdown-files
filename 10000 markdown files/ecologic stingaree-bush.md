@@ -86,7 +86,5 @@ CHORUS.
 
 ## Wikilinks load test
 
-[[in sight doublethink]]
-[[goody-goody shortlist]]
-[[salubrious cappadocia]]
-[[stopped civet]]
+[[greyish-green chalk dust]]
+[[backlink load test]]

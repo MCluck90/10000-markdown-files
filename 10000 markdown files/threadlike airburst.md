@@ -84,7 +84,6 @@ Stuff and repeat lessons
 
 ## Wikilinks load test
 
-[[bare-ass roman type]]
-[[waste gravitational mass]]
-[[valvular martin van buren]]
-[[nectar-rich seigneur]]
+[[bumbling urate]]
+[[disheartened fumbler]]
+[[backlink load test]]

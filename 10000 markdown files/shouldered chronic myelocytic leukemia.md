@@ -89,5 +89,5 @@ either.
 
 ## Wikilinks load test
 
-[[ridiculous john bach mcmaster]]
-[[nasty citroncirus webberi]]
+[[splotched homophobia]]
+[[backlink load test]]

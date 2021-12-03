@@ -88,5 +88,5 @@ Consider your eye How she opened
 
 ## Wikilinks load test
 
-[[baroque fuzee]]
-[[barefooted sharecropper]]
+[[sexagesimal asclepias meadii]]
+[[backlink load test]]

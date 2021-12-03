@@ -91,8 +91,5 @@ Visit either the highest tree
 
 ## Wikilinks load test
 
-[[unaged prison house]]
-[[wifely basal metabolic rate]]
-[[galilaean genus gastrophryne]]
-[[flavorous bornite]]
-[[roofless landing strip]]
+[[color burke]]
+[[backlink load test]]

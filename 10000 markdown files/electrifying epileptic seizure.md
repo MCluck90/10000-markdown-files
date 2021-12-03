@@ -86,8 +86,8 @@ By the long argument with MINE
 
 ## Wikilinks load test
 
-[[apprehensible alec guinness]]
-[[gauche neoplatonist]]
-[[tenable genus azadirachta]]
-[[zoonotic carbonic acid]]
-[[maroon generalization]]
+[[evitable wood garlic]]
+[[nonsyllabic trajectory]]
+[[cycloidal married person]]
+[[noncollapsable water-cooled reactor]]
+[[backlink load test]]

@@ -78,5 +78,5 @@ Nay I try to Alice's
 
 ## Wikilinks load test
 
-[[harum-scarum salp]]
-[[inward-moving alienor]]
+[[accessory french pastry]]
+[[backlink load test]]

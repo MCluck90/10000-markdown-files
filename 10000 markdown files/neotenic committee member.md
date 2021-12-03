@@ -83,6 +83,5 @@ Cheshire Cat went down down
 
 ## Wikilinks load test
 
-[[all-victorious joke]]
-[[simian february 22]]
-[[libyan gag law]]
+[[wise to canada lynx]]
+[[backlink load test]]

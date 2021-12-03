@@ -84,7 +84,9 @@ Down the tarts you needn't try
 
 ## Wikilinks load test
 
-[[curled merlon]]
-[[maledict sickle alfalfa]]
-[[untrusting transmutability]]
-[[meagre discharge pipe]]
+[[hapless x-linked scid]]
+[[uncorrected red silk cotton]]
+[[postmeridian jimmy carter]]
+[[detached warji]]
+[[affine erythrina indica]]
+[[backlink load test]]

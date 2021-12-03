@@ -90,4 +90,8 @@ They are done with
 
 ## Wikilinks load test
 
-[[bitumenoid cold stuffed tomato]]
+[[yugoslavian myxoma]]
+[[earlyish suttee]]
+[[pinwheel-shaped field line]]
+[[overeager anemia adiantifolia]]
+[[backlink load test]]

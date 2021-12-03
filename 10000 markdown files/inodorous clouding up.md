@@ -88,5 +88,5 @@ That's nothing.
 
 ## Wikilinks load test
 
-[[merging overgrowth]]
-[[antisubmarine illiterate]]
+[[sparkly sidewalk]]
+[[backlink load test]]

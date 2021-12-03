@@ -78,5 +78,9 @@ Oh tis love that
 
 ## Wikilinks load test
 
-[[sugarless absolute threshold]]
-[[bilobated hatband]]
+[[horse-drawn hard times]]
+[[smooth-faced oddball]]
+[[huffish genus commiphora]]
+[[dislikable genus abudefduf]]
+[[heavenly babinski reflex]]
+[[backlink load test]]

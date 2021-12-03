@@ -85,5 +85,8 @@ Pat.
 
 ## Wikilinks load test
 
-[[collective shame plant]]
-[[irreclaimable genus anthericum]]
+[[redux lantern fly]]
+[[uxorious canned hunt]]
+[[vinegary nonsense]]
+[[ex post facto variorum edition]]
+[[backlink load test]]

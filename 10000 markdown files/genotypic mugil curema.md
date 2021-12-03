@@ -77,8 +77,6 @@ Tut tut child for tastes.
 
 ## Wikilinks load test
 
-[[measured fines herbes]]
-[[empty-handed akaba]]
-[[antler-like simhat torah]]
-[[sporogenous simultaneity]]
-[[gynecologic genus gobio]]
+[[licit y chromosome]]
+[[third-rate dressing]]
+[[backlink load test]]

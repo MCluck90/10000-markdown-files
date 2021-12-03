@@ -94,8 +94,8 @@ Half-past one but after hunting
 
 ## Wikilinks load test
 
-[[feline hamamelidanthum]]
-[[one-celled symphoricarpos alba]]
-[[spanish anapest]]
-[[disparate fluorochrome]]
-[[featherless lens capsule]]
+[[extralinguistic helvella acetabulum]]
+[[fly-by-night spinning frame]]
+[[agamic samphire]]
+[[ascosporic toilet articles]]
+[[backlink load test]]

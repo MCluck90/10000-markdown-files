@@ -86,5 +86,5 @@ Run home the suppressed guinea-pigs.
 
 ## Wikilinks load test
 
-[[skim intonation pattern]]
-[[jolted clunch]]
+[[open-plan indirect expression]]
+[[backlink load test]]

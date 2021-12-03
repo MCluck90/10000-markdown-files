@@ -89,8 +89,6 @@ Change lobsters out now
 
 ## Wikilinks load test
 
-[[peppy rescue operation]]
-[[faithful helen maria fiske hunt jackson]]
-[[self-forgetful elucidation]]
-[[featherbrained genus antedon]]
-[[postnuptial computer-oriented language]]
+[[tip-tilted hsv-2]]
+[[exceptional landowska]]
+[[backlink load test]]

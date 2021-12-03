@@ -78,5 +78,5 @@ persisted.
 
 ## Wikilinks load test
 
-[[double-bedded passing shot]]
-[[aflare closing curtain]]
+[[lubberly muscle fiber]]
+[[backlink load test]]

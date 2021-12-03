@@ -76,8 +76,7 @@ Nothing said.
 
 ## Wikilinks load test
 
-[[hellish rose of china]]
-[[algebraical crowfoot family]]
-[[perfect boding]]
-[[encroaching dentate nucleus]]
-[[sneering saccade]]
+[[genitive triple jump]]
+[[elephantine stripper well]]
+[[mannered aflaxen]]
+[[backlink load test]]

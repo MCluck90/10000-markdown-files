@@ -88,6 +88,8 @@ sh.
 
 ## Wikilinks load test
 
-[[buttoned-down byname]]
-[[urn-shaped cabbage butterfly]]
-[[anticholinergic farandole]]
+[[open-ended daylight-saving time]]
+[[snow-blind garage sale]]
+[[next depositor]]
+[[bottle-green white bedstraw]]
+[[backlink load test]]

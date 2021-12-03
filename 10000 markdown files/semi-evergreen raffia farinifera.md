@@ -78,5 +78,9 @@ or heard something my
 
 ## Wikilinks load test
 
-[[preliterate currency]]
-[[spectral bessera elegans]]
+[[deafened racer]]
+[[horrid atomic number 15]]
+[[mottled cabernet sauvignon]]
+[[unnatural high-level radioactive waste]]
+[[sinful spanish civil war]]
+[[backlink load test]]

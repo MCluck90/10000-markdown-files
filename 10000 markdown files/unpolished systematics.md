@@ -88,5 +88,7 @@ I'll fetch the others.
 
 ## Wikilinks load test
 
-[[untutored paxto]]
-[[criminative genus ceratotherium]]
+[[inchoative stays]]
+[[comme il faut democratic and popular republic of algeria]]
+[[movable homogyne]]
+[[backlink load test]]

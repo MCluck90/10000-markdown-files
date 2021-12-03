@@ -77,8 +77,6 @@ Just then I'm very anxiously.
 
 ## Wikilinks load test
 
-[[nonpolar hypophysectomy]]
-[[gabled genus hemitripterus]]
-[[barefooted sharecropper]]
-[[venerable forgivingness]]
-[[poetical big bill haywood]]
+[[stovepiped jukebox]]
+[[noncombining microgauss]]
+[[backlink load test]]

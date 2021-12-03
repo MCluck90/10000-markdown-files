@@ -84,8 +84,9 @@ Down down important unimportant
 
 ## Wikilinks load test
 
-[[even-tempered eastern malayo-polynesian]]
-[[tall-stalked slothfulness]]
-[[flavourous butea gum]]
-[[rheological zero coupon bond]]
-[[morbilliform catnap]]
+[[neo-lamarckian yagi]]
+[[low-set genus tapirus]]
+[[purplish-white map projection]]
+[[underbred atlantic manta]]
+[[daughterly tampax]]
+[[backlink load test]]

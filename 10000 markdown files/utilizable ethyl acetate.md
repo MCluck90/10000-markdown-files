@@ -88,8 +88,5 @@ pleaded poor little From
 
 ## Wikilinks load test
 
-[[phonogramic oculus dexter]]
-[[foresighted kalashnikov]]
-[[eusporangiate valeric acid]]
-[[hard-of-hearing yves tanguy]]
-[[barefooted genus ensete]]
+[[brainy fern seed]]
+[[backlink load test]]

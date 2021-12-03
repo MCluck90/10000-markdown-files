@@ -85,7 +85,5 @@ Only mustard isn't any longer
 
 ## Wikilinks load test
 
-[[acid-forming rewriting]]
-[[suety orange sneezeweed]]
-[[tattling wilson cloud chamber]]
-[[sympetalous susan sontag]]
+[[allomorphic berserker]]
+[[backlink load test]]

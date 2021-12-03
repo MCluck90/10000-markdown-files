@@ -87,5 +87,9 @@ By this but why your
 
 ## Wikilinks load test
 
-[[uninominal suit]]
-[[dermal great auk]]
+[[piddling capital of guinea-bissau]]
+[[unspecific air medal]]
+[[pharyngeal fleur-de-lis]]
+[[spick nervous strain]]
+[[stupefied chug]]
+[[backlink load test]]

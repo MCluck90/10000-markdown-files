@@ -83,8 +83,8 @@ Begin at one quite unable
 
 ## Wikilinks load test
 
-[[sliding deracination]]
-[[lathery tilia heterophylla]]
-[[opening corneum]]
-[[sociobiological codlins-and-cream]]
-[[thawed element of a cone]]
+[[calligraphic clon]]
+[[chubby costa rican monetary unit]]
+[[well-fixed hubris]]
+[[stony semiautomatic firearm]]
+[[backlink load test]]

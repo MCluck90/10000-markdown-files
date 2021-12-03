@@ -88,8 +88,8 @@ Her chin upon it
 
 ## Wikilinks load test
 
-[[amalgamate pargetry]]
-[[kindhearted he-huckleberry]]
-[[phobic electrical capacity]]
-[[galilean laity]]
-[[pectoral show trial]]
+[[blastemal artificial pacemaker]]
+[[preferent compatible software]]
+[[norwegian alertness]]
+[[nonfat hare wallaby]]
+[[backlink load test]]

@@ -79,5 +79,5 @@ Would you by his
 
 ## Wikilinks load test
 
-[[radio-controlled belgian endive]]
-[[paradigmatic praetor]]
+[[aflame tropopause]]
+[[backlink load test]]

@@ -90,6 +90,6 @@ Quick now about once again very
 
 ## Wikilinks load test
 
-[[wizened gobio]]
-[[argent lilium]]
-[[devilish black currant]]
+[[totalitarian zygomycotina]]
+[[livelong north american country]]
+[[backlink load test]]

@@ -82,5 +82,5 @@ Ah.
 
 ## Wikilinks load test
 
-[[vile john constable]]
-[[diverse kwacha]]
+[[fictitious saltpetre]]
+[[backlink load test]]

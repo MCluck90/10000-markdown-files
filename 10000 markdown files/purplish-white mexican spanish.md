@@ -82,7 +82,7 @@ the King looking angrily but in
 
 ## Wikilinks load test
 
-[[undistinguishable stopple]]
-[[popliteal callisto]]
-[[denary tip truck]]
-[[insurrectional valdecoxib]]
+[[diaphanous bristletail]]
+[[reassuring crinoidea]]
+[[tawny-colored sago fern]]
+[[backlink load test]]

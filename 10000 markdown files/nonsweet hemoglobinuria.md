@@ -87,6 +87,8 @@ Ahem.
 
 ## Wikilinks load test
 
-[[sudsy moderateness]]
-[[born-again libocedrus plumosa]]
-[[ultramontane particle detector]]
+[[potable bignoniaceae]]
+[[alone double first]]
+[[wing-shaped apologia]]
+[[discontented benjamin rush]]
+[[backlink load test]]

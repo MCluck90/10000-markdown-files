@@ -82,8 +82,5 @@ Stuff and you've seen that loose
 
 ## Wikilinks load test
 
-[[synesthetic summer camp]]
-[[green-blind luteotropin]]
-[[straw-coloured crown colony]]
-[[kashmiri tau]]
-[[intensified avoidance]]
+[[prepared bohrium]]
+[[backlink load test]]

@@ -83,7 +83,9 @@ HEARTHRUG NEAR THE LITTLE larger
 
 ## Wikilinks load test
 
-[[deuteranopic sea starwort]]
-[[impure louis iv]]
-[[overindulgent diagnostic technique]]
-[[clerical vena auricularis]]
+[[buddhist skin-diver]]
+[[odorous stefan wyszynski]]
+[[soigne setoff]]
+[[nonagenarian bellis]]
+[[prefatorial endothelial myeloma]]
+[[backlink load test]]

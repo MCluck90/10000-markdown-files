@@ -85,5 +85,5 @@ However this mouse That is very
 
 ## Wikilinks load test
 
-[[pinkish-orange barrack]]
-[[reinforced spare part]]
+[[untimely split decision]]
+[[backlink load test]]

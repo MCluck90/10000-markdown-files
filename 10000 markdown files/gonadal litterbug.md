@@ -81,6 +81,8 @@ as I say as quickly
 
 ## Wikilinks load test
 
-[[well-favoured indigo]]
-[[in sight doublethink]]
-[[armor-plated erik axel karlfeldt]]
+[[pound-foolish pebibyte]]
+[[maculate george dibdin pitt]]
+[[incensed genus guevina]]
+[[continent james monroe]]
+[[backlink load test]]

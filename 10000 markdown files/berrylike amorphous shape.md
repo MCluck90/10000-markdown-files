@@ -80,4 +80,9 @@ Nay I to lose
 
 ## Wikilinks load test
 
-[[exquisite babbler]]
+[[endoscopic horseshoe vetch]]
+[[semiskilled subclass phytomastigina]]
+[[fingered toy box]]
+[[aquicultural fasciolopsis]]
+[[surmountable femtometer]]
+[[backlink load test]]

@@ -91,8 +91,9 @@ Never heard this fit An invitation
 
 ## Wikilinks load test
 
-[[divisional aluminium]]
-[[hit-and-run isarithm]]
-[[anacoluthic boeuf]]
-[[untrusty compensatory spending]]
-[[exothermal molding]]
+[[heavenly babinski reflex]]
+[[bulb-shaped genus styphelia]]
+[[unexhausted repositioning]]
+[[obscene genus psychopsis]]
+[[hefty lysozyme]]
+[[backlink load test]]

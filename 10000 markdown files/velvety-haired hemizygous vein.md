@@ -80,6 +80,7 @@ Herald read about said EVERYBODY
 
 ## Wikilinks load test
 
-[[unpainted star-nosed mole]]
-[[revered genus tibicen]]
-[[slipshod disturbance]]
+[[con brio euthynnus pelamis]]
+[[burked schrodinger wave equation]]
+[[singsong nationalism]]
+[[backlink load test]]

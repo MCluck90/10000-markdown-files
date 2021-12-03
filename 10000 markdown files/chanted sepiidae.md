@@ -86,8 +86,7 @@ Is that squeaked.
 
 ## Wikilinks load test
 
-[[pustulate striped mullet]]
-[[canonical lester willis young]]
-[[sapient genus spraguea]]
-[[shelflike chuck short ribs]]
-[[propagandistic holy spirit]]
+[[narrow-minded orange fleabane]]
+[[sunburnt physical body]]
+[[intoxicated millivoltmeter]]
+[[backlink load test]]

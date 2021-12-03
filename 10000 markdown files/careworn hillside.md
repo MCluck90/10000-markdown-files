@@ -80,7 +80,8 @@ See how he might be
 
 ## Wikilinks load test
 
-[[goethian dickie-seat]]
-[[boring strut]]
-[[uninominal suit]]
-[[influential fleet street]]
+[[ebullient social science]]
+[[chlamydeous crackerjack]]
+[[funicular plastic surgeon]]
+[[ministerial social psychology]]
+[[backlink load test]]

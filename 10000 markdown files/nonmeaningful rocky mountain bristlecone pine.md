@@ -84,8 +84,5 @@ Indeed she added to
 
 ## Wikilinks load test
 
-[[bridal lalthyrus tingitanus]]
-[[calculated department of computer science]]
-[[amygdaline lunisolar calendar]]
-[[federal curb roof]]
-[[extralegal dietary supplement]]
+[[bushy leading indicator]]
+[[backlink load test]]

@@ -80,5 +80,9 @@ With what porpoise.
 
 ## Wikilinks load test
 
-[[marked trumpet weed]]
-[[ironclad cruise liner]]
+[[canescent vii]]
+[[near-blind fraxinella]]
+[[comforting asuncion]]
+[[audacious adhesiveness]]
+[[disquieting battlefront]]
+[[backlink load test]]

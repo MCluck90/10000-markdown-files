@@ -90,7 +90,9 @@ Nobody moved.
 
 ## Wikilinks load test
 
-[[physicochemical weathervane]]
-[[requested water carpet]]
-[[distaff weathercock]]
-[[evil-minded moghul]]
+[[unregulated revilement]]
+[[curricular corylus americana]]
+[[tutelary commission on human rights]]
+[[boric clouding]]
+[[cryptical warmonger]]
+[[backlink load test]]

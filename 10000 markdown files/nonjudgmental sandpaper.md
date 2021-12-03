@@ -83,6 +83,5 @@ Whoever lives there said
 
 ## Wikilinks load test
 
-[[comatose aeonium]]
-[[straight-grained zonotrichia leucophrys]]
-[[in writing drosophilidae]]
+[[diffusive butter-flower]]
+[[backlink load test]]

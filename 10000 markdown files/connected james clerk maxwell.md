@@ -83,8 +83,6 @@ Nobody seems Alice herself
 
 ## Wikilinks load test
 
-[[compendious central processing unit]]
-[[air-dry august plum]]
-[[friable aristocrat]]
-[[parky argonautidae]]
-[[abstinent hyperbole]]
+[[uninitiate hurt]]
+[[hawkish generality]]
+[[backlink load test]]

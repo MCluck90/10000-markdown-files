@@ -76,5 +76,6 @@ cried the Fish-Footman began
 
 ## Wikilinks load test
 
-[[ceramic claviceps purpurea]]
-[[begrimed delacroix]]
+[[consolidated tablecloth]]
+[[undecipherable beaked whale]]
+[[backlink load test]]

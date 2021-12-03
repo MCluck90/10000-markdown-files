@@ -84,8 +84,8 @@ Nobody asked with hearts.
 
 ## Wikilinks load test
 
-[[demythologized sorghum halepense]]
-[[slapstick silencer]]
-[[spiteful inefficiency]]
-[[edacious colutea arborescens]]
-[[superficial break dance]]
+[[dehiscent noemi]]
+[[third-year vigdis finnbogadottir]]
+[[bleached dray horse]]
+[[crossed false flax]]
+[[backlink load test]]

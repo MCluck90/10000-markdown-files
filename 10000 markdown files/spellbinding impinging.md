@@ -87,8 +87,8 @@ sighed wearily.
 
 ## Wikilinks load test
 
-[[undying catnap]]
-[[twinkly publishing company]]
-[[aided slipperiness]]
-[[isomorphic sesquicentennial]]
-[[liquefied clapboard]]
+[[capsular genus sidalcea]]
+[[discomfited nothofagus obliqua]]
+[[sapphirine usn]]
+[[consonant il duce]]
+[[backlink load test]]

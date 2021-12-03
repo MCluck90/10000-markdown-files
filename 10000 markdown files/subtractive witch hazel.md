@@ -87,7 +87,5 @@ the moon and skurried away
 
 ## Wikilinks load test
 
-[[snoopy nonpartisanship]]
-[[abominable lexington and concord]]
-[[liechtensteiner saint peters wreath]]
-[[timeworn elasmobranch]]
+[[idealised soren kierkegaard]]
+[[backlink load test]]

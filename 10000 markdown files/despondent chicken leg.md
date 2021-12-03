@@ -84,6 +84,6 @@ Everything's got entangled together at
 
 ## Wikilinks load test
 
-[[rush tepic]]
-[[blotched genus acanthoscelides]]
-[[epidermal jacksonville]]
+[[iffy lycopodiaceae]]
+[[crenulated tonegawa susumu]]
+[[backlink load test]]

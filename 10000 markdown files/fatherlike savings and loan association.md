@@ -78,7 +78,8 @@ Idiot.
 
 ## Wikilinks load test
 
-[[sensorial delicacy]]
-[[slippy genus araucaria]]
-[[napoleonic bullock block]]
-[[kitty-corner dail]]
+[[doubled computational linguistics]]
+[[epidemiologic wideness]]
+[[referential mayan]]
+[[chaetognathous fictitious place]]
+[[backlink load test]]

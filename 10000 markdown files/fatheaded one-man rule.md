@@ -85,5 +85,5 @@ By-the bye what they'll
 
 ## Wikilinks load test
 
-[[talky threshold element]]
-[[mutilated zalcitabine]]
+[[aseptic genus parthenocissus]]
+[[backlink load test]]

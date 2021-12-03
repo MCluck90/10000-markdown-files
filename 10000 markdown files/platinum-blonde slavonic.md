@@ -94,8 +94,7 @@ Their heads downward.
 
 ## Wikilinks load test
 
-[[cold-temperate family batrachoididae]]
-[[aciduric stropharia rugoso-annulata]]
-[[menacing bugle call]]
-[[trillion calophyllum inophyllum]]
-[[ultra king devil]]
+[[sulfuric shoestring fungus]]
+[[prissy turfing daisy]]
+[[pinkish-orange vhf]]
+[[backlink load test]]

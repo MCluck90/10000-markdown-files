@@ -84,8 +84,9 @@ cried.
 
 ## Wikilinks load test
 
-[[apiculate tropopause]]
-[[tasseled parakeet]]
-[[plumy bovril]]
-[[inaccurate gum olibanum]]
-[[unassisted hypobetalipoproteinemia]]
+[[suffocating redstem storksbill]]
+[[clogging arame]]
+[[bell-bottom sprue]]
+[[cybernetic lock]]
+[[unpublishable orchidaceae]]
+[[backlink load test]]

@@ -81,7 +81,7 @@ Take care of mine a
 
 ## Wikilinks load test
 
-[[exponential english springer]]
-[[peruvian scomberomorus cavalla]]
-[[sectorial bee beetle]]
-[[slow hyla crucifer]]
+[[secretarial vasodilative]]
+[[radio-opaque insufflation]]
+[[clarion southern beech fern]]
+[[backlink load test]]

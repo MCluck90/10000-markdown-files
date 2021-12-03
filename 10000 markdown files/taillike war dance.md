@@ -86,6 +86,9 @@ Some of this is enough of
 
 ## Wikilinks load test
 
-[[unprofessional guanabenz]]
-[[single-barrelled intestine]]
-[[lighted ceratodontidae]]
+[[basal pouched mole]]
+[[linnaean integrator]]
+[[degenerate tammany]]
+[[younger myelocytic leukemia]]
+[[sassy oatmeal cookie]]
+[[backlink load test]]

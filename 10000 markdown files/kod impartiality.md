@@ -81,8 +81,6 @@ but her one minute to
 
 ## Wikilinks load test
 
-[[baneful lather]]
-[[illuminating periclase]]
-[[blasphemous albizia]]
-[[avifaunal bermuda plan]]
-[[heated census taker]]
+[[comprehensible myringoplasty]]
+[[sulphuretted dacninae]]
+[[backlink load test]]

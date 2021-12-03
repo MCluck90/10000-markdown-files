@@ -86,8 +86,6 @@ Now I don't remember where Dinn
 
 ## Wikilinks load test
 
-[[interfacial penmanship]]
-[[isotropic calamari]]
-[[corymbose agape]]
-[[syncretical coefficient of self induction]]
-[[voluble antonius pius]]
+[[nonmetal information]]
+[[self-assertive suzerainty]]
+[[backlink load test]]

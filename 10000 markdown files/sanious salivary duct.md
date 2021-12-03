@@ -86,6 +86,6 @@ What did old fellow.
 
 ## Wikilinks load test
 
-[[idiopathic thumbnut]]
-[[cubiform doctrine of analogy]]
-[[depopulated genus astrophyton]]
+[[unstudious subsumption]]
+[[dextral earphone]]
+[[backlink load test]]

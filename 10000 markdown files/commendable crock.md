@@ -75,6 +75,9 @@ Who's to ask the blows
 
 ## Wikilinks load test
 
-[[decompositional genus sylvilagus]]
-[[rootless genus malosma]]
-[[gold-coloured heritiera littoralis]]
+[[oily phidias]]
+[[mousy racing shell]]
+[[brownish-speckled mauritian monetary unit]]
+[[slow-moving seismogram]]
+[[far-off machine language]]
+[[backlink load test]]

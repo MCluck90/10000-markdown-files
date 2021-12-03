@@ -77,7 +77,6 @@ HEARTHRUG NEAR THE KING
 
 ## Wikilinks load test
 
-[[epidural counter]]
-[[compact pan]]
-[[outlawed amazon river]]
-[[unsung damp course]]
+[[snuggled adelie penguin]]
+[[patronymic serpent-worship]]
+[[backlink load test]]

@@ -78,4 +78,5 @@ Next came suddenly appeared again
 
 ## Wikilinks load test
 
-[[nescient apatosaurus]]
+[[haggard golden eagle]]
+[[backlink load test]]

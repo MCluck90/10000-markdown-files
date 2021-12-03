@@ -84,8 +84,8 @@ won't do wish to
 
 ## Wikilinks load test
 
-[[butyric hard line]]
-[[biauricular acyl group]]
-[[anthropomorphous belgian sheepdog]]
-[[tweedy riot control operation]]
-[[anachronistic reflexive verb]]
+[[downwind showy daisy]]
+[[pre-columbian anders celsius]]
+[[impoverished sixty-fourth note]]
+[[brainless backgammon board]]
+[[backlink load test]]

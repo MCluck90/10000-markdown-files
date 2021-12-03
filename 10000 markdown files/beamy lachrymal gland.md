@@ -83,7 +83,5 @@ Mary Ann and stockings for
 
 ## Wikilinks load test
 
-[[tawny-colored sago fern]]
-[[homophile shortcoming]]
-[[uncertain germicide]]
-[[exodontic aeolic dialect]]
+[[wordless rapid]]
+[[backlink load test]]

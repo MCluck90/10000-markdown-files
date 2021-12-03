@@ -96,6 +96,6 @@ I'll set Dinah here
 
 ## Wikilinks load test
 
-[[stable azo radical]]
-[[piebald chopstick]]
-[[tendencious william saroyan]]
+[[telocentric thunderhead]]
+[[refutable lammastide]]
+[[backlink load test]]

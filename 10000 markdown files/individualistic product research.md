@@ -90,5 +90,5 @@ the hearth and made from a
 
 ## Wikilinks load test
 
-[[real colon]]
-[[centralised beggary]]
+[[petty vocal]]
+[[backlink load test]]

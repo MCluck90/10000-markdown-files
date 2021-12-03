@@ -84,4 +84,6 @@ Boots and pencils had struck
 
 ## Wikilinks load test
 
-[[fatal new zealand dollar]]
+[[thermonuclear margin of safety]]
+[[execrable bougainvillea glabra]]
+[[backlink load test]]

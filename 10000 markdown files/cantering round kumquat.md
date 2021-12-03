@@ -87,8 +87,8 @@ one place around it written
 
 ## Wikilinks load test
 
-[[tangential samuel rawson gardiner]]
-[[distributive polish monetary unit]]
-[[subaquatic taklamakan desert]]
-[[biddable anzac]]
-[[coral balarama]]
+[[allover genus photinia]]
+[[waterproof multiculturalism]]
+[[unofficial equinoctial line]]
+[[southbound spatangoida]]
+[[backlink load test]]

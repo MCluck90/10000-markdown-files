@@ -77,6 +77,7 @@ which tied up my life
 
 ## Wikilinks load test
 
-[[modifiable mauve]]
-[[tricentennial clenched fist]]
-[[haunted fawn lily]]
+[[contested republic of ghana]]
+[[steadfast loading dock]]
+[[trompe-loeil monodontidae]]
+[[backlink load test]]

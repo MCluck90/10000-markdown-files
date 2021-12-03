@@ -86,5 +86,8 @@ CHORUS.
 
 ## Wikilinks load test
 
-[[ready-to-wear supererogation]]
-[[cubiform doctrine of analogy]]
+[[sectioned scrupulousness]]
+[[hypoglycaemic mentha aquatica]]
+[[mismated kennewick]]
+[[mutable equisetales]]
+[[backlink load test]]

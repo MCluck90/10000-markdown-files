@@ -94,6 +94,5 @@ There's a Duck it's very seldom
 
 ## Wikilinks load test
 
-[[feudatory conodontophorida]]
-[[misplaced genus scomberesox]]
-[[nonoscillatory genus pimenta]]
+[[spurting norge]]
+[[backlink load test]]

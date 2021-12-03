@@ -85,7 +85,5 @@ Keep your cat Dinah was for
 
 ## Wikilinks load test
 
-[[tranquilizing james dewey watson]]
-[[conveyable poet-singer]]
-[[carpal quicksand]]
-[[finable brittle star]]
+[[amyloidal na-dene]]
+[[backlink load test]]

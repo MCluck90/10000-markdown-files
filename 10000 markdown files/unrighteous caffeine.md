@@ -84,8 +84,5 @@ On every word moral of
 
 ## Wikilinks load test
 
-[[contractable iowan]]
-[[kaput characin fish]]
-[[homeward fusillade]]
-[[leathered arcellidae]]
-[[venturous xx]]
+[[made-up campanula pyramidalis]]
+[[backlink load test]]

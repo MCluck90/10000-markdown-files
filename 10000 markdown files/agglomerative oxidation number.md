@@ -87,8 +87,7 @@ Then you learn not think
 
 ## Wikilinks load test
 
-[[polydactyl osmundaceae]]
-[[ipsilateral criticality]]
-[[pavlovian blue jessamine]]
-[[unanimated elymus hispidus]]
-[[skimmed trochlear]]
+[[steamy geological fault]]
+[[nonmetamorphic ok]]
+[[norse fad]]
+[[backlink load test]]

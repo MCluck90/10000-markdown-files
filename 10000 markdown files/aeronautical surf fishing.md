@@ -78,4 +78,9 @@ was hardly suppose.
 
 ## Wikilinks load test
 
-[[squeezable pocket knife]]
+[[lingual silver whiting]]
+[[unrelated rictus]]
+[[indefensible longleaf pine]]
+[[worse irrational motive]]
+[[liquefiable genus mandragora]]
+[[backlink load test]]

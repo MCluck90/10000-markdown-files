@@ -77,8 +77,7 @@ Suppress him How should learn
 
 ## Wikilinks load test
 
-[[toothsome lexical disambiguation]]
-[[unscrupulous housing project]]
-[[framed combustion]]
-[[rum hornets nest]]
-[[sinhalese genus delphinapterus]]
+[[cosmogenic foetometry]]
+[[underbred megalocephaly]]
+[[rhenish likeliness]]
+[[backlink load test]]

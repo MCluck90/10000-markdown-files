@@ -84,6 +84,8 @@ sighed wearily.
 
 ## Wikilinks load test
 
-[[self-pollinated louis the stammerer]]
-[[emended pda]]
-[[accumulated mysoline]]
+[[apocryphal turkestan desert]]
+[[baboonish genus homogyne]]
+[[pulseless collocalia inexpectata]]
+[[consonantal family tachyglossidae]]
+[[backlink load test]]

@@ -83,8 +83,7 @@ As for life.
 
 ## Wikilinks load test
 
-[[endemical king of england]]
-[[acyclic loblolly]]
-[[distracted smallmouth black bass]]
-[[mesmerised methylated spirit]]
-[[spirited pyelitis]]
+[[unusual tara vine]]
+[[calculable bulblet]]
+[[certain crowing]]
+[[backlink load test]]

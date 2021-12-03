@@ -88,6 +88,5 @@ Leave off.
 
 ## Wikilinks load test
 
-[[rose-cheeked dowsing]]
-[[lone hostage]]
-[[enthralling spinal canal]]
+[[absorbable oil tycoon]]
+[[backlink load test]]

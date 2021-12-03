@@ -84,5 +84,7 @@ on being rather offended
 
 ## Wikilinks load test
 
-[[amoebous disease of the neuromuscular junction]]
-[[javanese giza]]
+[[malformed sheep dip]]
+[[persuasible polygynist]]
+[[impressionist silvanus]]
+[[backlink load test]]

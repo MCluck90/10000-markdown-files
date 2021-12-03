@@ -80,8 +80,5 @@ it out that continued as I
 
 ## Wikilinks load test
 
-[[balzacian capricorn]]
-[[photomechanical sepia]]
-[[uncovered subclavian artery]]
-[[permutable church festival]]
-[[lx belittling]]
+[[hi-tech barn millet]]
+[[backlink load test]]

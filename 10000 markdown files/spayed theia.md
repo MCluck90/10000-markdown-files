@@ -86,8 +86,9 @@ Chorus again with Seaography then
 
 ## Wikilinks load test
 
-[[petalled tpn]]
-[[pro-life jam]]
-[[measly binomial distribution]]
-[[undistinguished genus rhea]]
-[[annual pinus albicaulis]]
+[[agreed upon protrusion]]
+[[sour-tasting landowska]]
+[[antistrophic grand circle]]
+[[narrow-minded orange fleabane]]
+[[anticholinergic farandole]]
+[[backlink load test]]

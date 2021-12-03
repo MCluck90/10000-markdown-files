@@ -77,8 +77,9 @@ No they're called him
 
 ## Wikilinks load test
 
-[[arcadian feldspar]]
-[[unbranching tape recording]]
-[[deadlocked phalaenopsis amabilis]]
-[[well thought out kw-hr]]
-[[catechetical haliotidae]]
+[[semisoft rutabaga plant]]
+[[farming zambezi]]
+[[unprofessional guanabenz]]
+[[fast-flying italic]]
+[[abducent common racoon]]
+[[backlink load test]]

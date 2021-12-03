@@ -87,8 +87,5 @@ Their heads are worse off.
 
 ## Wikilinks load test
 
-[[amenorrhoeic coronilla]]
-[[alphanumerical genus porphyra]]
-[[earlyish suttee]]
-[[colored adipose tissue]]
-[[augmented o. henry]]
+[[praetorian coax cable]]
+[[backlink load test]]

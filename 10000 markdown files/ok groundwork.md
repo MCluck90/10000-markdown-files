@@ -86,8 +86,7 @@ Just about again using the smallest
 
 ## Wikilinks load test
 
-[[largish buckbean]]
-[[unthoughtful claxon]]
-[[expansile telephone service]]
-[[ruinous erivan]]
-[[jetting kilobyte]]
+[[ball-hawking diathermy machine]]
+[[crosswise grams method]]
+[[lubberly muscle fiber]]
+[[backlink load test]]

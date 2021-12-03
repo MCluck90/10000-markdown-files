@@ -82,8 +82,6 @@ Run home.
 
 ## Wikilinks load test
 
-[[senegalese stocking stuffer]]
-[[assuasive nsw]]
-[[d fieriness]]
-[[single-lane metal plating]]
-[[epitheliod secular]]
+[[self-governing genus astragalus]]
+[[celtic flying school]]
+[[backlink load test]]

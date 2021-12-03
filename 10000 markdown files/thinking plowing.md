@@ -86,6 +86,9 @@ Everything's got so I'll manage better
 
 ## Wikilinks load test
 
-[[antique coffee rose]]
-[[some information science]]
-[[on the job amniotic fluid]]
+[[modifiable mauve]]
+[[bracted shipwright]]
+[[wanted belarusian monetary unit]]
+[[cherubic soupspoon]]
+[[seething fringed gentian]]
+[[backlink load test]]

@@ -79,6 +79,8 @@ screamed Off Nonsense.
 
 ## Wikilinks load test
 
-[[sterling power cable]]
-[[wizened gobio]]
-[[timeworn elasmobranch]]
+[[made no-show]]
+[[annual pinus albicaulis]]
+[[statistical genus lycopodium]]
+[[brimful genus hosta]]
+[[backlink load test]]

@@ -90,7 +90,7 @@ Pennyworth only look through all is
 
 ## Wikilinks load test
 
-[[daft creosote]]
-[[large-cap inverted pleat]]
-[[boxed-in jumpiness]]
-[[serological small person]]
+[[adjudicative flypaper]]
+[[allomerous mouth hole]]
+[[blended john hanning speke]]
+[[backlink load test]]

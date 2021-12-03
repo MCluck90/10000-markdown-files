@@ -77,6 +77,5 @@ a world go.
 
 ## Wikilinks load test
 
-[[self-forgetful elucidation]]
-[[vicious white dead nettle]]
-[[wishful pye-dog]]
+[[golden arteria cerebelli]]
+[[backlink load test]]

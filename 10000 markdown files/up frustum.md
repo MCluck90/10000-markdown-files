@@ -92,8 +92,8 @@ Begin at processions and kept all
 
 ## Wikilinks load test
 
-[[tied up waste-yard]]
-[[seljuk glossopharyngeal nerve]]
-[[censorial segovia]]
-[[skinless sabahan]]
-[[consensual royal flush]]
+[[smooth-faced trifolium stoloniferum]]
+[[holier-than-thou lancashire]]
+[[rapt focal length]]
+[[short-range bawler]]
+[[backlink load test]]

@@ -89,8 +89,5 @@ They are worse than suet
 
 ## Wikilinks load test
 
-[[outstanding confederate jasmine]]
-[[wing-shaped apologia]]
-[[noncombining microgauss]]
-[[terete red maple]]
-[[tined logomachy]]
+[[unmitigable physalis peruviana]]
+[[backlink load test]]

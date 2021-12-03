@@ -86,5 +86,8 @@ Ah well.
 
 ## Wikilinks load test
 
-[[egg-producing clucking]]
-[[undependable microbiology]]
+[[fitted out nummulitidae]]
+[[stillborn tremella]]
+[[rosy-purple pace car]]
+[[torpid bittersweet]]
+[[backlink load test]]

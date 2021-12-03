@@ -82,6 +82,8 @@ You're a Cheshire cat
 
 ## Wikilinks load test
 
-[[annihilating caplin]]
-[[unequalized acanthisitta chloris]]
-[[hotheaded mares nest]]
+[[wifelike saudi arabian riyal]]
+[[isosceles racquetball]]
+[[long-play car-ferry]]
+[[white-ribbed romanian]]
+[[backlink load test]]

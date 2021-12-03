@@ -82,6 +82,8 @@ THAT.
 
 ## Wikilinks load test
 
-[[psychogenetic life sentence]]
-[[cx sliding board]]
-[[eyeless muriatic acid]]
+[[unequalled pinhole]]
+[[marmoreal line-drive triple]]
+[[prongy order pelecaniformes]]
+[[skim intonation pattern]]
+[[backlink load test]]

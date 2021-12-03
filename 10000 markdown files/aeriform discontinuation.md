@@ -81,7 +81,5 @@ Fetch me too stiff.
 
 ## Wikilinks load test
 
-[[agonizing relative-in-law]]
-[[resettled bouillon]]
-[[empty-handed akaba]]
-[[underclothed sparganium]]
+[[investigatory common good]]
+[[backlink load test]]

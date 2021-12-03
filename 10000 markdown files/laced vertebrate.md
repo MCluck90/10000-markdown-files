@@ -91,5 +91,5 @@ Let us Drawling the squeaking
 
 ## Wikilinks load test
 
-[[pie-eyed golden pea]]
-[[kokka tunnel vision]]
+[[brag egomania]]
+[[backlink load test]]

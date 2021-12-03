@@ -88,8 +88,9 @@ Run home this young man
 
 ## Wikilinks load test
 
-[[trousered bur]]
-[[all-time spore case]]
-[[thespian neuroma]]
-[[semiliterate commandery]]
-[[irreligious rg]]
+[[asexual bridge partner]]
+[[thermonuclear margin of safety]]
+[[computable schmoose]]
+[[administrative pasta salad]]
+[[opulent seconal]]
+[[backlink load test]]

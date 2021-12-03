@@ -93,8 +93,8 @@ Go on likely story
 
 ## Wikilinks load test
 
-[[cumulous milliwatt]]
-[[judaic display panel]]
-[[intuitionist arctium minus]]
-[[infernal prokaryote]]
-[[indefensible tergiversation]]
+[[valuable shuck]]
+[[chic stoep]]
+[[unauthorised shoulder strap]]
+[[dextral earphone]]
+[[backlink load test]]

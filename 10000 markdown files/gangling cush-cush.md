@@ -79,8 +79,5 @@ Mind now I call it
 
 ## Wikilinks load test
 
-[[ptolemaic xyridales]]
-[[instant gutter]]
-[[overpowering capelin]]
-[[masterless genus vedalia]]
-[[blabbermouthed privatization]]
+[[african-american public debt]]
+[[backlink load test]]

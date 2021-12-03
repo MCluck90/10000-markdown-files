@@ -79,7 +79,9 @@ Prizes.
 
 ## Wikilinks load test
 
-[[a cappella magnetic recorder]]
-[[undulatory northwester]]
-[[bespectacled genus chamaeleo]]
-[[prefatorial missioner]]
+[[vacillating pineus pinifoliae]]
+[[nonnomadic penstemon]]
+[[wiped out charles frederick menninger]]
+[[high-ranking bob dylan]]
+[[inappropriate anemone riparia]]
+[[backlink load test]]

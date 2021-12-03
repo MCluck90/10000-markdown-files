@@ -80,7 +80,9 @@ from what I grow
 
 ## Wikilinks load test
 
-[[circumferential joyousness]]
-[[taillike direct discourse]]
-[[al dente rouge plant]]
-[[isotropic calamari]]
+[[decayed bowdleriser]]
+[[appellate spalacidae]]
+[[ripe floridian]]
+[[rested relinquishing]]
+[[thirty-four sausage pizza]]
+[[backlink load test]]

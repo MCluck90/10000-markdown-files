@@ -76,8 +76,6 @@ Whoever lives a friend.
 
 ## Wikilinks load test
 
-[[tortured helipterum manglesii]]
-[[far-out mayakovski]]
-[[marauding reasoning backward]]
-[[demonstrative real number]]
-[[bibliomaniacal home folk]]
+[[soft-nosed genus myriophyllum]]
+[[magnetised genus platypoecilus]]
+[[backlink load test]]

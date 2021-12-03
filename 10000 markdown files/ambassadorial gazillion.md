@@ -76,5 +76,9 @@ Dinah and out but
 
 ## Wikilinks load test
 
-[[namibian brosme brosme]]
-[[emended pda]]
+[[argent catchphrase]]
+[[suppressed genus nephrolepis]]
+[[doubting spy satellite]]
+[[symptomatic atlantic manta]]
+[[wash-and-wear snuff]]
+[[backlink load test]]

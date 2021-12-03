@@ -86,8 +86,6 @@ pleaded Alice looking for
 
 ## Wikilinks load test
 
-[[coral-red operoseness]]
-[[bimotored indian chocolate]]
-[[incredible levant cotton]]
-[[amphiprostyle hyper-eutectoid steel]]
-[[accustomed pingpong paddle]]
+[[wrinkleless vapours]]
+[[illuminating irish strawberry]]
+[[backlink load test]]

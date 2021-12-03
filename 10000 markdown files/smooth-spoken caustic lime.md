@@ -95,8 +95,9 @@ In a great wig.
 
 ## Wikilinks load test
 
-[[clip-on fuji-san]]
-[[contrasty pterocarpus santalinus]]
-[[pustulate striped mullet]]
-[[expiratory hyoscyamus muticus]]
-[[volatilizable bunny]]
+[[comatose chancery]]
+[[unpremeditated gastric smear]]
+[[prophetic drinking water]]
+[[planar innovator]]
+[[shaven africanized bee]]
+[[backlink load test]]

@@ -86,5 +86,7 @@ Do bats.
 
 ## Wikilinks load test
 
-[[wheel-like hazan]]
-[[hemic sweet lemon]]
+[[flaky may fish]]
+[[milanese gyp]]
+[[tannic fell]]
+[[backlink load test]]

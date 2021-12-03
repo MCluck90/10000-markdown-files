@@ -89,6 +89,9 @@ See how old Magpie began telling
 
 ## Wikilinks load test
 
-[[rose-red lobsterman]]
-[[sex-linked analyticity]]
-[[autumn-blooming zygodactyl foot]]
+[[censurable phi coefficient]]
+[[butterfingered ferdinand ii]]
+[[quantifiable winter crookneck]]
+[[reformist josef von sternberg]]
+[[repulsive moirae]]
+[[backlink load test]]

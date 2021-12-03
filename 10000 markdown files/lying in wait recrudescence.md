@@ -86,7 +86,7 @@ a memorandum of croquet.
 
 ## Wikilinks load test
 
-[[logogrammatic rhus vernix]]
-[[minimum one]]
-[[choreographic acroclinium]]
-[[half-timbered genus cottus]]
+[[anosmatic pusan]]
+[[immature arterial plaque]]
+[[bifurcated astacus]]
+[[backlink load test]]

@@ -78,8 +78,9 @@ Therefore I'm very sudden
 
 ## Wikilinks load test
 
-[[nonexploratory subornation]]
-[[self-induced epidemic]]
-[[nonsubmersible eye-catcher]]
-[[self-willed limp]]
-[[scaley overture]]
+[[unofficial equinoctial line]]
+[[peace-loving combination lock]]
+[[geophysical coprophagia]]
+[[basaltic dashboard]]
+[[instinct computer dealer]]
+[[backlink load test]]

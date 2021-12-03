@@ -79,7 +79,7 @@ Shy they saw Alice I've seen
 
 ## Wikilinks load test
 
-[[earlyish suttee]]
-[[lutheran chinch bug]]
-[[noncontinuous steroid hormone]]
-[[cross-modal corallorhiza trifida]]
+[[tied up simoon]]
+[[boughless northern cross]]
+[[transitional wisdom book]]
+[[backlink load test]]

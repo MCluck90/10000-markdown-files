@@ -79,6 +79,6 @@ they'll remember said after
 
 ## Wikilinks load test
 
-[[wrong admissibility]]
-[[endoscopic horseshoe vetch]]
-[[vigorous instruction]]
+[[hard-pressed trap-and-drain auger]]
+[[heartfelt omphalotus illudens]]
+[[backlink load test]]

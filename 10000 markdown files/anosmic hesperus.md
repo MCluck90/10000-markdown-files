@@ -89,5 +89,9 @@ Yes I once to work
 
 ## Wikilinks load test
 
-[[full of life crotch hair]]
-[[swashbuckling upset stomach]]
+[[emended pda]]
+[[smuggled folie a deux]]
+[[hyperboloidal golden cup]]
+[[ventricular cilioflagellata]]
+[[adventive black pudding]]
+[[backlink load test]]

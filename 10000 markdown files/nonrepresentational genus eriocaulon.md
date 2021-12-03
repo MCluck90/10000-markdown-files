@@ -75,7 +75,7 @@ But I'd been it made
 
 ## Wikilinks load test
 
-[[endozoan sully]]
-[[collect ringworm cassia]]
-[[pleural balata]]
-[[awestricken lampropeltis triangulum]]
+[[receptive pilot balloon]]
+[[pleading china tree]]
+[[symbolic home from home]]
+[[backlink load test]]

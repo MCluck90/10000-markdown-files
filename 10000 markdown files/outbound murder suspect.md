@@ -77,6 +77,5 @@ Seals turtles salmon and considered him
 
 ## Wikilinks load test
 
-[[thirtieth sir alfred hitchcock]]
-[[sky-blue strand]]
-[[inattentive darter]]
+[[linnaean integrator]]
+[[backlink load test]]

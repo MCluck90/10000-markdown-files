@@ -77,5 +77,8 @@ asked another moment they went on
 
 ## Wikilinks load test
 
-[[ashy lateral geniculate]]
-[[purblind beardless iris]]
+[[flat-bottom bulwer-lytton]]
+[[prongy firing squad]]
+[[soteriological lungless salamander]]
+[[hypertonic rubia]]
+[[backlink load test]]

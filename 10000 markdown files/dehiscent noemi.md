@@ -78,4 +78,6 @@ Twinkle twinkle Here was ever
 
 ## Wikilinks load test
 
-[[freewill gmt]]
+[[irreducible wyethia amplexicaulis]]
+[[high-ranking bob dylan]]
+[[backlink load test]]

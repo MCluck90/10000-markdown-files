@@ -87,8 +87,8 @@ Off with cupboards and
 
 ## Wikilinks load test
 
-[[socratic capital of georgia]]
-[[nonarbitrable cambridge university]]
-[[uncombable barmbrack]]
-[[attractive pain threshold]]
-[[unsympathetic camassia scilloides]]
+[[cubical honore daumier]]
+[[chapfallen judgement in rem]]
+[[west trypsinogen]]
+[[noxious concert]]
+[[backlink load test]]

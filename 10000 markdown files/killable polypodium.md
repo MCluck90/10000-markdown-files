@@ -81,4 +81,9 @@ _I_ shan't.
 
 ## Wikilinks load test
 
-[[high-velocity jobbery]]
+[[sectorial bee beetle]]
+[[crisscross jargon]]
+[[upcountry castor bean]]
+[[vascular sulfur oxide]]
+[[end-rhymed coquetry]]
+[[backlink load test]]

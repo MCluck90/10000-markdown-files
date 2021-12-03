@@ -92,8 +92,6 @@ Don't grunt said Two.
 
 ## Wikilinks load test
 
-[[unintelligent bracket creep]]
-[[sulphuretted dacninae]]
-[[light-headed capital of colombia]]
-[[feline hamamelidanthum]]
-[[sensuous kosciusko]]
+[[full of life crotch hair]]
+[[confident galosh]]
+[[backlink load test]]

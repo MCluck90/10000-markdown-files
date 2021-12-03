@@ -77,5 +77,6 @@ Nay I hardly room
 
 ## Wikilinks load test
 
-[[pulchritudinous ragpicker]]
-[[tetragonal easy street]]
+[[lacking sable]]
+[[trusting aphididae]]
+[[backlink load test]]

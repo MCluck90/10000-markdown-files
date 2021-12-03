@@ -94,8 +94,9 @@ I've made from all these
 
 ## Wikilinks load test
 
-[[precast lh]]
-[[subversive diamagnet]]
-[[metagrobolised reykjavik]]
-[[calyculate dowdy]]
-[[steep-sided banger]]
+[[synaptic zeno]]
+[[miraculous samson]]
+[[wary religious]]
+[[pyrotechnic trigeminal neuralgia]]
+[[tall-stalked slothfulness]]
+[[backlink load test]]

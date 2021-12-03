@@ -82,7 +82,6 @@ Good-bye feet as solemn
 
 ## Wikilinks load test
 
-[[cumulous milliwatt]]
-[[verbalised present progressive]]
-[[slovenly cyclorama]]
-[[confidential deterrence]]
+[[contrasty lounge lizard]]
+[[alkaloidal aeroplane]]
+[[backlink load test]]

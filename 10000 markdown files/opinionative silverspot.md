@@ -88,6 +88,6 @@ Pig.
 
 ## Wikilinks load test
 
-[[songful telopea speciosissima]]
-[[distasteful bairava]]
-[[scandinavian october 12]]
+[[po-faced origanum vulgare]]
+[[nauseous octopus]]
+[[backlink load test]]

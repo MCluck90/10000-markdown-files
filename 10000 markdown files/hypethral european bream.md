@@ -77,6 +77,6 @@ Stop this ointment one left
 
 ## Wikilinks load test
 
-[[discriminate aarp]]
-[[comradely inflation therapy]]
-[[anti-american sublingual salivary gland]]
+[[detestable rotary motion]]
+[[unassured southern beech]]
+[[backlink load test]]

@@ -90,8 +90,6 @@ As if one would be
 
 ## Wikilinks load test
 
-[[motherly pomacentrus leucostictus]]
-[[yankee loranthus]]
-[[unadjusted spring heath]]
-[[snow-blind forest]]
-[[flaky may fish]]
+[[fifty red tide]]
+[[sex-linked analyticity]]
+[[backlink load test]]

@@ -92,5 +92,7 @@ Run home.
 
 ## Wikilinks load test
 
-[[suave switcheroo]]
-[[close-hauled gordie howe]]
+[[ball-hawking diathermy machine]]
+[[falling tansy mustard]]
+[[hard-of-hearing yves tanguy]]
+[[backlink load test]]

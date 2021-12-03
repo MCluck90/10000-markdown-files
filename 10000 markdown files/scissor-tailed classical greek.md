@@ -85,8 +85,7 @@ All right THROUGH the mistake about
 
 ## Wikilinks load test
 
-[[right-minded pepsi]]
-[[grave ping-pong table]]
-[[unpatterned melchite]]
-[[wireless valley girl]]
-[[ornithological pine mouse]]
+[[all-embracing light heavyweight]]
+[[furrowed cercopithecus talapoin]]
+[[uninitiated 1st baron beaverbrook]]
+[[backlink load test]]

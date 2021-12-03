@@ -87,7 +87,6 @@ Tut tut child again Ou est
 
 ## Wikilinks load test
 
-[[sudorific lilyturf]]
-[[self-acting directorate for inter-services intelligence]]
-[[quondam multiprogramming]]
-[[hemimetamorphic nontricyclic antidepressant]]
+[[prismatic amnesiac]]
+[[sagittiform slit lamp]]
+[[backlink load test]]

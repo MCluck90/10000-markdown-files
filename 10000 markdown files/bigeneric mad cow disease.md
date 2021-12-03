@@ -85,8 +85,8 @@ Nay I deny it for
 
 ## Wikilinks load test
 
-[[covetous resurrection fern]]
-[[squeaking aphakic]]
-[[butterfingered universalism]]
-[[chubby costa rican monetary unit]]
-[[genotypical erectile organ]]
+[[one hundred fifty soiree]]
+[[stenographical combined operation]]
+[[apnoeic halaka]]
+[[close-hauled nicety]]
+[[backlink load test]]

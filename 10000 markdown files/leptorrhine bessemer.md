@@ -86,6 +86,8 @@ Leave off as much
 
 ## Wikilinks load test
 
-[[fledgeless vigna]]
-[[iodised turnout]]
-[[kokka tunnel vision]]
+[[garrulous bridge hand]]
+[[unenclosed ovis montana dalli]]
+[[affixal diplopoda]]
+[[endometrial right ventricle]]
+[[backlink load test]]

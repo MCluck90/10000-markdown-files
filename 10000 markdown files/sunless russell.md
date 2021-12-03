@@ -90,7 +90,5 @@ quite forgotten that day I
 
 ## Wikilinks load test
 
-[[burbly guideline]]
-[[calycine insanity]]
-[[blue-purple malayalam]]
-[[duplicitous stare]]
+[[shallow-draught beach plum]]
+[[backlink load test]]

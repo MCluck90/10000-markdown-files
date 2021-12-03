@@ -77,8 +77,5 @@ A secret kept tossing his
 
 ## Wikilinks load test
 
-[[omnibus cribbage]]
-[[lean sable]]
-[[well-favored pyrophosphate]]
-[[archducal eye infection]]
-[[word-of-mouth anacyclus]]
+[[calculable coast range]]
+[[backlink load test]]

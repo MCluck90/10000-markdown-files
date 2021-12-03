@@ -92,7 +92,6 @@ Oh there's a snail
 
 ## Wikilinks load test
 
-[[unpronounceable rack of lamb]]
-[[rock-inhabiting greensand]]
-[[unadventurous corkwood]]
-[[unstudious subsumption]]
+[[geared burlap bag]]
+[[covetous cesare borgia]]
+[[backlink load test]]

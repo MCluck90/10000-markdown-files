@@ -84,7 +84,8 @@ I'd nearly getting very
 
 ## Wikilinks load test
 
-[[serial hippo regius]]
-[[tuberculoid aalborg]]
-[[wheezy 1st-class mail]]
-[[nutmeg-shaped bullfrog]]
+[[proofed floccule]]
+[[zygomorphic tactical warning]]
+[[tympanitic genus spheniscus]]
+[[incorruptible backspace key]]
+[[backlink load test]]

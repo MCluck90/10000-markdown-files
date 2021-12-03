@@ -88,6 +88,5 @@ Down down a fish and again
 
 ## Wikilinks load test
 
-[[jerkwater suillus albivelatus]]
-[[nasty citroncirus webberi]]
-[[treated cottonseed oil]]
+[[maroon generalization]]
+[[backlink load test]]

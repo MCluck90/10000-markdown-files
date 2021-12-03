@@ -87,5 +87,9 @@ Edwin and bawled out again
 
 ## Wikilinks load test
 
-[[flamboyant union of soviet socialist republics]]
-[[hot aerial ladder]]
+[[ossiferous carpal]]
+[[brown-striped absurdness]]
+[[churned-up lath and plaster]]
+[[catachrestic lars onsager]]
+[[volute gag order]]
+[[backlink load test]]

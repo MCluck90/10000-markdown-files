@@ -84,6 +84,8 @@ Ahem.
 
 ## Wikilinks load test
 
-[[retributive heart of dixie]]
-[[delayed preceptor]]
-[[livable ops]]
+[[snooty genus corydalis]]
+[[kinesthetic sickness]]
+[[box-shaped sciurus carolinensis]]
+[[silky-haired bald eagle]]
+[[backlink load test]]

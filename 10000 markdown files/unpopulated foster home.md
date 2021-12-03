@@ -88,7 +88,7 @@ Then turn not dare to
 
 ## Wikilinks load test
 
-[[gritty leech]]
-[[flavorous bornite]]
-[[languorous lynx rufus]]
-[[jovian service program]]
+[[flag-waving sinusoidal projection]]
+[[arboreal eliminator]]
+[[h-shaped dustmop]]
+[[backlink load test]]

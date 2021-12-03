@@ -91,5 +91,9 @@ My name like to one
 
 ## Wikilinks load test
 
-[[buddhist canadian hemlock]]
-[[auditory pawnee]]
+[[reformist josef von sternberg]]
+[[pericardiac buddleia]]
+[[unlucky prune cake]]
+[[egoistical catbrier]]
+[[acerbic benjamin harrison]]
+[[backlink load test]]

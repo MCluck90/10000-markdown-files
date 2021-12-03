@@ -91,6 +91,5 @@ sighed wearily.
 
 ## Wikilinks load test
 
-[[paddle-shaped glass cutter]]
-[[ravaged gynecocracy]]
-[[amuck kan river]]
+[[characteristic babbitt metal]]
+[[backlink load test]]

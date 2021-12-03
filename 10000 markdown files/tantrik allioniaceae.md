@@ -87,6 +87,8 @@ later editions continued turning
 
 ## Wikilinks load test
 
-[[daft creosote]]
-[[hitlerian coriander]]
-[[boxed-in sri lanka rupee]]
+[[anthophilous amide]]
+[[oval-fruited elephants ear]]
+[[flavorous bornite]]
+[[ranked stablemate]]
+[[backlink load test]]

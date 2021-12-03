@@ -85,6 +85,9 @@ Poor little toss of croquet
 
 ## Wikilinks load test
 
-[[heavy-armed d region]]
-[[off calfskin]]
-[[incestuous mouse nest]]
+[[squinting cleavage cavity]]
+[[bicornate baldrick]]
+[[enfeebling sapsago]]
+[[xxix shaving cream]]
+[[masoretic mortmain]]
+[[backlink load test]]

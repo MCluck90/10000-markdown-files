@@ -84,5 +84,6 @@ That WILL do almost
 
 ## Wikilinks load test
 
-[[homothermic contrast medium]]
-[[bell-bottom sprue]]
+[[amber penicillium]]
+[[tempest-tost zebrawood]]
+[[backlink load test]]

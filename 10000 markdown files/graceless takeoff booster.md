@@ -87,5 +87,6 @@ Nor I move one
 
 ## Wikilinks load test
 
-[[gauche soloist]]
-[[drooping oakleaf goosefoot]]
+[[vacillating anode]]
+[[lactic cage]]
+[[backlink load test]]

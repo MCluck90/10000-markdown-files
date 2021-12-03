@@ -88,8 +88,6 @@ Wow.
 
 ## Wikilinks load test
 
-[[pakistani isn]]
-[[afflictive symmetricalness]]
-[[besprent venison]]
-[[devilish black currant]]
-[[horizontal lobeliaceae]]
+[[ilxx equatorial current]]
+[[hearable phenoplast]]
+[[backlink load test]]

@@ -77,7 +77,9 @@ Seals turtles salmon and animals with
 
 ## Wikilinks load test
 
-[[directing zombi]]
-[[numeric bhagavad-gita]]
-[[concomitant megabit]]
-[[allergenic blessing]]
+[[evanescent crow corn]]
+[[bacillar woodshed]]
+[[self-disciplined cowtown]]
+[[vile john constable]]
+[[unadvisable sphenoidal fontanel]]
+[[backlink load test]]

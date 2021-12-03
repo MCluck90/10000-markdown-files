@@ -88,8 +88,8 @@ Idiot.
 
 ## Wikilinks load test
 
-[[treated cottonseed oil]]
-[[ascomycetous heart-leaf]]
-[[epigrammatic chicken manure]]
-[[safe metic]]
-[[deductive decompressing]]
+[[up frustum]]
+[[circumferential joyousness]]
+[[socratic capital of georgia]]
+[[mail-clad market price]]
+[[backlink load test]]

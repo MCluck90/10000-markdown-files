@@ -82,7 +82,6 @@ Suppose we should it wouldn't talk
 
 ## Wikilinks load test
 
-[[bad-mannered family hipposideridae]]
-[[armor-plated erik axel karlfeldt]]
-[[lithomantic sissoo]]
-[[polychromic defeat]]
+[[crescent-shaped paella]]
+[[overpowering capelin]]
+[[backlink load test]]

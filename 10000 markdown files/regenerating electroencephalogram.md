@@ -86,7 +86,5 @@ it WOULD go through that in
 
 ## Wikilinks load test
 
-[[onerous avocado pear]]
-[[baccivorous synentognathi]]
-[[indurate bonnet shark]]
-[[postmeridian jimmy carter]]
+[[morbid panic button]]
+[[backlink load test]]

@@ -89,7 +89,7 @@ Mine is to-day.
 
 ## Wikilinks load test
 
-[[resplendent belch]]
-[[hearable phenoplast]]
-[[ultramontane particle detector]]
-[[racemose genus sciara]]
+[[individualistic product research]]
+[[amnionic rh incompatibility]]
+[[peroneal snood]]
+[[backlink load test]]

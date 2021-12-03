@@ -79,8 +79,7 @@ Write that by without
 
 ## Wikilinks load test
 
-[[moldovan ring rot fungus]]
-[[unnoticeable oreopteris]]
-[[sericeous i peter]]
-[[weasel-worded organic]]
-[[pawky cargo area]]
+[[immortal electrical power]]
+[[semiskilled subclass phytomastigina]]
+[[pilose cassette]]
+[[backlink load test]]

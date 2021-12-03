@@ -95,8 +95,8 @@ Down down a twinkling of rudeness
 
 ## Wikilinks load test
 
-[[amenable pinky]]
-[[fundamentalist donatello]]
-[[sanguineous acheson]]
-[[navicular cookfire]]
-[[vacillating pineus pinifoliae]]
+[[induced vena jugularis]]
+[[dizzy southern tai]]
+[[cursed with gum resin]]
+[[unliveable granadillo]]
+[[backlink load test]]

@@ -86,7 +86,5 @@ See how old Fury I'll
 
 ## Wikilinks load test
 
-[[muddleheaded genus peperomia]]
-[[chemosorptive banteng]]
-[[veinal gimpiness]]
-[[apologetic scene painter]]
+[[one-time synchronisation]]
+[[backlink load test]]

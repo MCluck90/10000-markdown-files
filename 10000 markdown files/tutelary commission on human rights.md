@@ -79,7 +79,7 @@ Ahem.
 
 ## Wikilinks load test
 
-[[evangelistic tickling]]
-[[antenatal ethnic slur]]
-[[dislikable order of our lady of mount carmel]]
-[[cyprinid sissoo]]
+[[striate lepidopterist]]
+[[exulting circular file]]
+[[duplicatable genus urtica]]
+[[backlink load test]]

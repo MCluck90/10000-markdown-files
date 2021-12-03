@@ -82,6 +82,7 @@ Sure I used to show it
 
 ## Wikilinks load test
 
-[[clawlike little giant]]
-[[eighty-seven hairball]]
-[[high-principled umbrella arum]]
+[[nonrepresentational genus eriocaulon]]
+[[greedy cotoneaster]]
+[[infrasonic male bonding]]
+[[backlink load test]]

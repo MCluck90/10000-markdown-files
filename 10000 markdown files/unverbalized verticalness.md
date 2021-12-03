@@ -83,6 +83,9 @@ inquired Alice could tell whether
 
 ## Wikilinks load test
 
-[[promissory lucky lindy]]
-[[shaven africanized bee]]
-[[recessed eranthis]]
+[[coupled mynah bird]]
+[[theistic sector]]
+[[good-tempered swamp ash]]
+[[early-flowering proboscidea]]
+[[actinal article of faith]]
+[[backlink load test]]

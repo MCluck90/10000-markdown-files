@@ -82,7 +82,6 @@ quite a different.
 
 ## Wikilinks load test
 
-[[asinine snake fence]]
-[[speakable miridae]]
-[[cephalopodan nuclear warhead]]
-[[antiferromagnetic genus aegiceras]]
+[[goody-goody shortlist]]
+[[poikilothermous endlessness]]
+[[backlink load test]]

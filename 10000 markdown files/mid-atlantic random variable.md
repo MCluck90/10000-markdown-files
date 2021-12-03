@@ -86,6 +86,8 @@ Up above a trumpet and Queen
 
 ## Wikilinks load test
 
-[[stupefying morning glory]]
-[[insecure squillidae]]
-[[arbitrable cylinder head]]
+[[humiliated drummer]]
+[[brickle south wind]]
+[[cespitose heterotrichales]]
+[[forlorn family morchellaceae]]
+[[backlink load test]]

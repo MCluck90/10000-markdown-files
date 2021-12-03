@@ -77,5 +77,7 @@ One indeed.
 
 ## Wikilinks load test
 
-[[collectible jamb]]
-[[three-petalled hearing dog]]
+[[difficult singaporean]]
+[[familial repartee]]
+[[deaf degenerate]]
+[[backlink load test]]

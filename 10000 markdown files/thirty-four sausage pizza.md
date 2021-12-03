@@ -92,7 +92,5 @@ Stupid things at school in existence
 
 ## Wikilinks load test
 
-[[rousing vittariaceae]]
-[[slow hyla crucifer]]
-[[kantian chipping]]
-[[confidential deterrence]]
+[[sporogenous simultaneity]]
+[[backlink load test]]

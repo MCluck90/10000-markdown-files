@@ -83,6 +83,6 @@ Ten hours to turn them.
 
 ## Wikilinks load test
 
-[[undisputable nipa palm]]
-[[amerindic decalitre]]
-[[unelaborated fulmarus]]
+[[anuran closed book]]
+[[focal corpus mamillare]]
+[[backlink load test]]

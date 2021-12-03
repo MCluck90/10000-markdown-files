@@ -82,6 +82,7 @@ Nothing whatever happens when you've
 
 ## Wikilinks load test
 
-[[uncomprehended gastroepiploic vein]]
-[[pointless genus lyonia]]
-[[intrastate allionia]]
+[[somali genus cephalopterus]]
+[[crazed shelduck]]
+[[big-bellied yellow spruce]]
+[[backlink load test]]

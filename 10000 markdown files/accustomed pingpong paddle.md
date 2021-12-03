@@ -83,5 +83,5 @@ thought at.
 
 ## Wikilinks load test
 
-[[lunate bad block]]
-[[pleurocarpous scottish lowlander]]
+[[berried pristis pectinatus]]
+[[backlink load test]]

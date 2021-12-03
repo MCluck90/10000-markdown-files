@@ -83,8 +83,6 @@ HE might knock and
 
 ## Wikilinks load test
 
-[[accretionary pansy]]
-[[tabby scombroid]]
-[[psychedelic mickey mantle]]
-[[fluffy puzzler]]
-[[ultramontane anapest]]
+[[astringent pennycress]]
+[[monolithic orange fleabane]]
+[[backlink load test]]

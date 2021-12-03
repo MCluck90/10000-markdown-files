@@ -75,8 +75,6 @@ Sounds of Arithmetic Ambition
 
 ## Wikilinks load test
 
-[[whitened amethystine python]]
-[[worm-shaped family aristolochiaceae]]
-[[bossy written communication]]
-[[leathery regius professor]]
-[[inchoative stays]]
+[[aseptic computer graphic]]
+[[inadmissible tea table]]
+[[backlink load test]]

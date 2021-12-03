@@ -88,7 +88,5 @@ but out-of the-way down important the
 
 ## Wikilinks load test
 
-[[pro-life jam]]
-[[jangly madonna louise ciccone]]
-[[dimensioning entertainment center]]
-[[punk brass]]
+[[splashy mournful widow]]
+[[backlink load test]]

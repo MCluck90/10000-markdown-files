@@ -88,8 +88,6 @@ Off Nonsense.
 
 ## Wikilinks load test
 
-[[cross-eyed esophagus]]
-[[button-shaped gastrointestinal tract]]
-[[parted bagpipe]]
-[[unsupportable reciprocal]]
-[[stupendous rudder]]
+[[chaetal syzygium aromaticum]]
+[[reiterative prison guard]]
+[[backlink load test]]

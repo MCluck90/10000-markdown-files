@@ -78,7 +78,6 @@ Everybody looked into one eats
 
 ## Wikilinks load test
 
-[[waterproofed polyneuritic psychosis]]
-[[vacillating hector hugh munro]]
-[[huge glaucomys volans]]
-[[nonreflective cantaloupe vine]]
+[[buggy western dewberry]]
+[[undesired testicular vein]]
+[[backlink load test]]

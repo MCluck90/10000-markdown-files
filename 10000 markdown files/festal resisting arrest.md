@@ -86,8 +86,8 @@ Write that finished the
 
 ## Wikilinks load test
 
-[[gushy nuisance value]]
-[[overdelicate sick]]
-[[hertzian rilievo]]
-[[outlawed amazon river]]
-[[trabeculate farewell]]
+[[unshelled nuance]]
+[[capacious plectrophenax]]
+[[enclosed luging]]
+[[institutionalized densitometry]]
+[[backlink load test]]

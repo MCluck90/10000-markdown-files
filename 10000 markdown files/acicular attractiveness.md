@@ -88,8 +88,7 @@ After these came nearer
 
 ## Wikilinks load test
 
-[[gi english elm]]
-[[larger-than-life salomon]]
-[[evangelical gropius]]
-[[comb-like lamium amplexicaule]]
-[[constructive-metabolic archaism]]
+[[lipped os pisiforme]]
+[[desensitizing ming]]
+[[earsplitting stiff]]
+[[backlink load test]]

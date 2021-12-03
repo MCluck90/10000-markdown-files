@@ -81,8 +81,9 @@ Everything's got the lefthand bit
 
 ## Wikilinks load test
 
-[[cupular sex characteristic]]
-[[restorative abu nidal organization]]
-[[pleasant-tasting hemiramphidae]]
-[[preexistent neritid]]
-[[reprobate poikilotherm]]
+[[wedged phantom limb]]
+[[inebriated reading teacher]]
+[[unordered nell gwynne]]
+[[seagirt hepaticae]]
+[[isothermic intima]]
+[[backlink load test]]

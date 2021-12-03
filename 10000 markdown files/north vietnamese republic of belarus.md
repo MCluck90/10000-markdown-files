@@ -80,8 +80,8 @@ After that have a ridge
 
 ## Wikilinks load test
 
-[[hieratical tansy ragwort]]
-[[unarbitrary humulus]]
-[[light-hearted anaspida]]
-[[anorexic zenaidura macroura]]
-[[intraspecific blepharitis]]
+[[upstage practicableness]]
+[[ultimo x-linked dominant inheritance]]
+[[bolshevistic spiderwort family]]
+[[in the lead lipoid granulomatosis]]
+[[backlink load test]]

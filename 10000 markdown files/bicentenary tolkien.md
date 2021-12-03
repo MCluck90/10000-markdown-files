@@ -74,7 +74,9 @@ Imagine her flamingo.
 
 ## Wikilinks load test
 
-[[far-off machine language]]
-[[activated ardeb]]
-[[square-jawed serkin]]
-[[acidic tingidae]]
+[[three-piece european nut pine]]
+[[administrative pine tree]]
+[[hertzian rilievo]]
+[[lower-class bottle screw]]
+[[chelonian kulun]]
+[[backlink load test]]

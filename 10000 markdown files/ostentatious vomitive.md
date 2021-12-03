@@ -88,8 +88,5 @@ While she remembered that squeaked.
 
 ## Wikilinks load test
 
-[[untaught cockatoo]]
-[[ptolemaic xyridales]]
-[[arenaceous genus sagina]]
-[[original green peafowl]]
-[[conciliative gayness]]
+[[wholesale solidago bicolor]]
+[[backlink load test]]

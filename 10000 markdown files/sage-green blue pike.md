@@ -95,8 +95,5 @@ Perhaps not dare say in before.
 
 ## Wikilinks load test
 
-[[orange-hued thessaly]]
-[[myrmecophytic soda can]]
-[[potable hydroxyl ion]]
-[[synonymous poliovirus]]
-[[duplicatable genus urtica]]
+[[invigorating crottal]]
+[[backlink load test]]

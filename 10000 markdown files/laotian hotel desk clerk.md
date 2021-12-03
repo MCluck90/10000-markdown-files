@@ -80,8 +80,6 @@ Ugh.
 
 ## Wikilinks load test
 
-[[truehearted republican party]]
-[[demotic full]]
-[[buff-coloured denotation]]
-[[trademarked lunch meat]]
-[[elicited solute]]
+[[mediocre viburnum opulus]]
+[[rested relinquishing]]
+[[backlink load test]]

@@ -83,5 +83,5 @@ Ahem.
 
 ## Wikilinks load test
 
-[[angiocarpic skipping rope]]
-[[voidable capital of chile]]
+[[last-minute antihistamine]]
+[[backlink load test]]

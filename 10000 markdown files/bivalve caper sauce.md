@@ -93,8 +93,9 @@ he turn round the
 
 ## Wikilinks load test
 
-[[inductive mean]]
-[[vernal betula leutea]]
-[[inherent curse word]]
-[[spheroidal krone]]
-[[techy adelie land]]
+[[knock-down-and-drag-out genus argyroxiphium]]
+[[garrulous bridge hand]]
+[[lean pyxidium]]
+[[hatted metronome]]
+[[bound homicide]]
+[[backlink load test]]

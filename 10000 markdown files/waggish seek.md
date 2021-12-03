@@ -80,7 +80,9 @@ You might venture to encourage
 
 ## Wikilinks load test
 
-[[self-forgetful elucidation]]
-[[onomatopoetic sweet-birch oil]]
-[[aeolian fema]]
-[[albanian sir john frederick william herschel]]
+[[forty-first hugo]]
+[[hifalutin western lowland gorilla]]
+[[repulsive moirae]]
+[[radio display panel]]
+[[enlightening henrik johan ibsen]]
+[[backlink load test]]

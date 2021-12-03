@@ -82,6 +82,9 @@ As a prize herself to Time.
 
 ## Wikilinks load test
 
-[[imprecise genus calocarpum]]
-[[facial tilia heterophylla]]
-[[fledgling horus]]
+[[lenticular particular]]
+[[resolved gadus]]
+[[neckless chocolate root]]
+[[discredited lake ilmen]]
+[[acyclic loblolly]]
+[[backlink load test]]

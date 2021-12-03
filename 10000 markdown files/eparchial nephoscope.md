@@ -90,7 +90,5 @@ One of rule you
 
 ## Wikilinks load test
 
-[[umpteen futurology]]
-[[ill-affected tibetan buddhism]]
-[[biaxal throb]]
-[[unavowed rotary]]
+[[virtuous reciprocality]]
+[[backlink load test]]

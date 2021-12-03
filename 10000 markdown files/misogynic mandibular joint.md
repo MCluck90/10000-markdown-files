@@ -82,7 +82,8 @@ Ahem.
 
 ## Wikilinks load test
 
-[[prognosticative klick]]
-[[nonrecreational testacea]]
-[[unpublishable make-work]]
-[[permanent water tower]]
+[[easterly hurrying]]
+[[cata-cornered salyut]]
+[[celebratory drumbeater]]
+[[sheeplike commanding officer]]
+[[backlink load test]]

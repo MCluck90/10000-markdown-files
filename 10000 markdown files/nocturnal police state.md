@@ -78,8 +78,8 @@ But do it.
 
 ## Wikilinks load test
 
-[[coagulate africa]]
-[[incapacitating gallinaceous bird]]
-[[ceremonial genus anabrus]]
-[[equal sajama]]
-[[corruptible schematisation]]
+[[manipulable battle of little bighorn]]
+[[ironclad cruise liner]]
+[[urceolate gaseous state]]
+[[albinistic apogee]]
+[[backlink load test]]

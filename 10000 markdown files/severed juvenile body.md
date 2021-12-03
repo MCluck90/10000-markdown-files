@@ -80,8 +80,7 @@ Serpent I I'm a tea-tray in
 
 ## Wikilinks load test
 
-[[unlawful myotis leucifugus]]
-[[biaxal throb]]
-[[hair-shirt blackfriar]]
-[[unmedicinal langsyne]]
-[[unwounded one-trillionth]]
+[[mountainous discovery]]
+[[trackable wrymouth]]
+[[centralist strawberry haemangioma]]
+[[backlink load test]]

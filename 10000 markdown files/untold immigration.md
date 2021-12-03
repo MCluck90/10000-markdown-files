@@ -86,8 +86,5 @@ Mind that would gather
 
 ## Wikilinks load test
 
-[[childless coprolalia]]
-[[mastoid humorousness]]
-[[stentorian pyloric valve]]
-[[floury gigabit]]
-[[eatable instillation]]
+[[fascist congenital anomaly]]
+[[backlink load test]]

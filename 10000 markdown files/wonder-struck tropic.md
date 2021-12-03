@@ -80,8 +80,6 @@ ARE you speak again You
 
 ## Wikilinks load test
 
-[[utter weather map]]
-[[bigmouthed caul]]
-[[behavioural acer]]
-[[slovenian milk float]]
-[[amnionic jelly egg]]
+[[acarpelous phalaropus]]
+[[wolfish enterolith]]
+[[backlink load test]]

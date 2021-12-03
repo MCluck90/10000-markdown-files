@@ -78,6 +78,9 @@ Repeat YOU like this mouse.
 
 ## Wikilinks load test
 
-[[dominican blackwash]]
-[[ebony peke]]
-[[movable homogyne]]
+[[genotypic hosier]]
+[[sextuple chelonidae]]
+[[pedestrian wood-sorrel family]]
+[[demon-ridden shingle oak]]
+[[strong-boned chenopodium rubrum]]
+[[backlink load test]]

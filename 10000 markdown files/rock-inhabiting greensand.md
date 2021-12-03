@@ -82,7 +82,7 @@ Once more bread-and butter
 
 ## Wikilinks load test
 
-[[many genus aplodontia]]
-[[nonimmune new greek]]
-[[insured coinsurance]]
-[[jesuit hematocoele]]
+[[gauche neoplatonist]]
+[[inadmissible tea table]]
+[[preserved intelligence cell]]
+[[backlink load test]]

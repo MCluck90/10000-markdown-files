@@ -77,7 +77,8 @@ Tis so out-of the-way things
 
 ## Wikilinks load test
 
-[[blatant tone of voice]]
-[[warm-blooded seneca lake]]
-[[antiphonary frat]]
-[[subjugated rugelach]]
+[[swanky kingdom of denmark]]
+[[covetous wild west show]]
+[[semiotic difference limen]]
+[[parisian softness]]
+[[backlink load test]]

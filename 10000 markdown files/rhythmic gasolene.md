@@ -82,4 +82,7 @@ Alas.
 
 ## Wikilinks load test
 
-[[alphabetic disfigurement]]
+[[smooth-haired dali]]
+[[dominican eightpenny nail]]
+[[bossy written communication]]
+[[backlink load test]]

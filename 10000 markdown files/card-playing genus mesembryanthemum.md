@@ -84,7 +84,8 @@ which gave to uglify is.
 
 ## Wikilinks load test
 
-[[nonplused trouble shooter]]
-[[pet arcus]]
-[[cosmetic toaster oven]]
-[[cytokinetic lords-and-ladies]]
+[[unhomogenised riggs disease]]
+[[saprozoic arles]]
+[[consular drumbeat]]
+[[unreassuring pellicularia filamentosa]]
+[[backlink load test]]

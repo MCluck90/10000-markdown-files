@@ -95,5 +95,9 @@ Stand up but thought and
 
 ## Wikilinks load test
 
-[[intercollegiate triaenodon obseus]]
-[[apostate partial eclipse]]
+[[tabular tantalum]]
+[[amygdaliform freeway]]
+[[nighted kundts tube]]
+[[nippy merlangus merlangus]]
+[[captivated schoolgirl]]
+[[backlink load test]]

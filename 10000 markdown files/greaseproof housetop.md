@@ -87,8 +87,8 @@ Certainly not appear to
 
 ## Wikilinks load test
 
-[[absorbing coccidia]]
-[[morbilliform zinzendorf]]
-[[half-baked arctic moss]]
-[[surrounded knockwurst]]
-[[all-around stylomecon heterophyllum]]
+[[excusable acridity]]
+[[philhellene common reed]]
+[[peace-loving combination lock]]
+[[in force coral reef]]
+[[backlink load test]]

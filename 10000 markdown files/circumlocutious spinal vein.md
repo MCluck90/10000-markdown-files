@@ -77,5 +77,8 @@ Wow.
 
 ## Wikilinks load test
 
-[[ambulacral peccadillo]]
-[[photoemissive technical school]]
+[[barmy drawee]]
+[[bimestrial teutoburger wald]]
+[[stereotypic praisworthiness]]
+[[inaccurate pumpkin vine]]
+[[backlink load test]]

@@ -84,4 +84,6 @@ They're putting their backs was such
 
 ## Wikilinks load test
 
-[[quick actias luna]]
+[[unkind splash]]
+[[cram full beer keg]]
+[[backlink load test]]

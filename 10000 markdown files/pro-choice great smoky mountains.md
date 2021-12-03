@@ -95,8 +95,6 @@ when it chose to
 
 ## Wikilinks load test
 
-[[lanky kenogenesis]]
-[[in her right mind wanker]]
-[[zygomatic apetalous flower]]
-[[psychic daucus carota sativa]]
-[[disciplined information age]]
+[[fermentable omphalus]]
+[[vaulting east sussex]]
+[[backlink load test]]

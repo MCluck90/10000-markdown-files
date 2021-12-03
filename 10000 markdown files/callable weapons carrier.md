@@ -79,8 +79,5 @@ There is not give the Queen's
 
 ## Wikilinks load test
 
-[[electroneutral white-topped aster]]
-[[uncovered subclavian artery]]
-[[off-color angina]]
-[[swart harakiri]]
-[[variable chlamys]]
+[[vexing bordello]]
+[[backlink load test]]

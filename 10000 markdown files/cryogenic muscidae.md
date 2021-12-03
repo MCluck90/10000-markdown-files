@@ -86,8 +86,5 @@ Soup does.
 
 ## Wikilinks load test
 
-[[nutritive bucephela clangula]]
-[[effected ground effect]]
-[[biblical revelation]]
-[[white spanish civil war]]
-[[new-mown ice-skating rink]]
+[[christly kilowatt]]
+[[backlink load test]]

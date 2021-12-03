@@ -79,8 +79,6 @@ Turn them off than suet
 
 ## Wikilinks load test
 
-[[peregrine estonian]]
-[[lettered continuousness]]
-[[squirting malversation]]
-[[greenish-grey very light]]
-[[breech-loading spiral]]
+[[upscale gallinago]]
+[[particularistic clatonia lanceolata]]
+[[backlink load test]]

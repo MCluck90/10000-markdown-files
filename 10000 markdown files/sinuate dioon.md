@@ -88,5 +88,6 @@ Hadn't time in which.
 
 ## Wikilinks load test
 
-[[daedal icteria virens]]
-[[asyndetic english lady crab]]
+[[eastward rhinostenosis]]
+[[southerly bumpiness]]
+[[backlink load test]]

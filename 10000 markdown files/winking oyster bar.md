@@ -92,7 +92,7 @@ YOU'D better and with fright.
 
 ## Wikilinks load test
 
-[[permanent water tower]]
-[[antipodal kraal]]
-[[ineluctable prunella modularis]]
-[[three-piece european nut pine]]
+[[greathearted anchorite]]
+[[scriptural black buck]]
+[[ovarian starship]]
+[[backlink load test]]

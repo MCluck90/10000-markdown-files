@@ -75,6 +75,8 @@ Presently the look and with MINE
 
 ## Wikilinks load test
 
-[[amalgamated wild bill hickock]]
-[[dabbled lawcourt]]
-[[single-bedded freeholder]]
+[[agile cider mill]]
+[[underivative steam heating]]
+[[epicurean squint]]
+[[romanist crossbreeding]]
+[[backlink load test]]

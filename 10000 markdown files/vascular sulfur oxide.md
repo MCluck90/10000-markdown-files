@@ -87,7 +87,7 @@ about by the seaside once
 
 ## Wikilinks load test
 
-[[ixc benny hill]]
-[[louche river horse]]
-[[cosmogonical sou-west]]
-[[openmouthed slave-maker]]
+[[hypothermic territorial army]]
+[[truncated native cranberry]]
+[[haitian merthiolate]]
+[[backlink load test]]

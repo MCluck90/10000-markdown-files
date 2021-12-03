@@ -81,4 +81,7 @@ Stolen.
 
 ## Wikilinks load test
 
-[[omnibus cribbage]]
+[[reiterative prison guard]]
+[[varied highboy]]
+[[blockading toggle joint]]
+[[backlink load test]]

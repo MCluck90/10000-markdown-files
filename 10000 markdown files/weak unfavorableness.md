@@ -77,8 +77,5 @@ Everything is Be what you're going
 
 ## Wikilinks load test
 
-[[corbelled deferral]]
-[[mercuric pimenta officinalis]]
-[[beady cystopteris montana]]
-[[uninebriated anthropocentricity]]
-[[tapered greenling]]
+[[dissatisfied phoneme]]
+[[backlink load test]]

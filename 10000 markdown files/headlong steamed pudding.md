@@ -79,5 +79,5 @@ Your hair has a
 
 ## Wikilinks load test
 
-[[glittering chain mail]]
-[[darned ethel merman]]
+[[personal nobody]]
+[[backlink load test]]

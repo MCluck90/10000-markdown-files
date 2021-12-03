@@ -87,6 +87,7 @@ Fetch me very glad I've
 
 ## Wikilinks load test
 
-[[vernacular scansion]]
-[[scissor-tailed classical greek]]
-[[consensual application-oriented language]]
+[[cancerous fluke]]
+[[primitive prothorax]]
+[[loud bulbar conjunctiva]]
+[[backlink load test]]

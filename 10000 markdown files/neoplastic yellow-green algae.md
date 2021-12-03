@@ -83,8 +83,5 @@ catch a French mouse
 
 ## Wikilinks load test
 
-[[bipartizan cardiac massage]]
-[[strong-minded genus dolichotis]]
-[[graceless takeoff booster]]
-[[ursine basophile]]
-[[unimpassioned champion lode]]
+[[skinless czech republic]]
+[[backlink load test]]

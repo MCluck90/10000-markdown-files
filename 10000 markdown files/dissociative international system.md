@@ -80,7 +80,9 @@ which is said just been was
 
 ## Wikilinks load test
 
-[[intertribal crp]]
-[[impoverished aloe family]]
-[[unpublishable make-work]]
-[[equilateral utilisation]]
+[[precooled klutz]]
+[[observant iron overload]]
+[[housewifely jefferson]]
+[[investigative bondage]]
+[[eponymous fish stick]]
+[[backlink load test]]

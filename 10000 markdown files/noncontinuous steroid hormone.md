@@ -87,6 +87,5 @@ Bill's got in saying.
 
 ## Wikilinks load test
 
-[[clayey yucatec]]
-[[activated ardeb]]
-[[broken in razz]]
+[[cosy work animal]]
+[[backlink load test]]

@@ -82,4 +82,6 @@ Can't remember half down its head
 
 ## Wikilinks load test
 
-[[injudicious ojibway]]
+[[psychiatrical bindery]]
+[[leibnizian perpetual motion machine]]
+[[backlink load test]]

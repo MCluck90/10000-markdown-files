@@ -85,8 +85,5 @@ Up above her full of herself
 
 ## Wikilinks load test
 
-[[stoppered monocot family]]
-[[subaqueous salamandridae]]
-[[stereotypic praisworthiness]]
-[[some other shanghai dialect]]
-[[inappropriate anemone riparia]]
+[[kitschy periwinkle plant derivative]]
+[[backlink load test]]

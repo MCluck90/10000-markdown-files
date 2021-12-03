@@ -83,8 +83,6 @@ Bill's got much what
 
 ## Wikilinks load test
 
-[[custard-like genus seriphidium]]
-[[familiarising irresponsibility]]
-[[comatose haemoglobin]]
-[[undramatic genus scincus]]
-[[hardbound sylvan]]
+[[bloodless stuff and nonsense]]
+[[decollete metoprolol]]
+[[backlink load test]]

@@ -83,6 +83,9 @@ Mary Ann and modern with MINE
 
 ## Wikilinks load test
 
-[[softish liquid crystal display]]
-[[ulcerative xylene]]
-[[minty homyel]]
+[[skew-eyed fiddle-faddle]]
+[[sinewy killarney fern]]
+[[on-site isogram]]
+[[clastic plait]]
+[[dietary television pickup tube]]
+[[backlink load test]]

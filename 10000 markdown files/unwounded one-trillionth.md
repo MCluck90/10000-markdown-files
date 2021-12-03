@@ -90,7 +90,5 @@ I'd rather a Dodo
 
 ## Wikilinks load test
 
-[[kind teiid lizard]]
-[[thick-skinned mimer]]
-[[teachable slapshot]]
-[[anile frequentative]]
+[[umteen bunny rabbit]]
+[[backlink load test]]

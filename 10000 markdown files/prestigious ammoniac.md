@@ -81,8 +81,5 @@ By-the bye what does.
 
 ## Wikilinks load test
 
-[[berrylike amorphous shape]]
-[[unswerving bernoullis law]]
-[[intended mycenaen]]
-[[bifurcate sandril]]
-[[constitutional arteria cerebelli]]
+[[nonastringent blastema]]
+[[backlink load test]]

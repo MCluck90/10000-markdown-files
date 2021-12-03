@@ -91,6 +91,5 @@ Nearly two guinea-pigs cheered.
 
 ## Wikilinks load test
 
-[[squinting family procyonidae]]
-[[awesome handrest]]
-[[subjugated rugelach]]
+[[alleviatory parmelia]]
+[[backlink load test]]

@@ -82,6 +82,8 @@ ALL.
 
 ## Wikilinks load test
 
-[[finite mach number]]
-[[boisterous gardenia augusta]]
-[[infernal prokaryote]]
+[[forty-two comparison]]
+[[brachycranic statesman]]
+[[destructive-metabolic landscapist]]
+[[brassbound border patrol]]
+[[backlink load test]]

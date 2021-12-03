@@ -85,8 +85,6 @@ You see this and memory and
 
 ## Wikilinks load test
 
-[[saintly perdicinae]]
-[[d trammel net]]
-[[cytokinetic lords-and-ladies]]
-[[long-dated battle cry]]
-[[crescent-shaped paella]]
+[[self-luminous the virgin]]
+[[exemplary kemadrin]]
+[[backlink load test]]

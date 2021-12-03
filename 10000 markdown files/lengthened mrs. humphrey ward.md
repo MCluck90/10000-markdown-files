@@ -75,6 +75,6 @@ Turn a Hatter hurriedly left
 
 ## Wikilinks load test
 
-[[sidereal egret]]
-[[felonious bimester]]
-[[self-renewing thoroughbred]]
+[[pronounceable asthma attack]]
+[[earliest diatom]]
+[[backlink load test]]

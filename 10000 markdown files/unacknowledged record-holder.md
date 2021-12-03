@@ -95,6 +95,6 @@ Can't remember things twinkled after
 
 ## Wikilinks load test
 
-[[inchoate bayou]]
-[[amethyst derring-do]]
-[[long-play car-ferry]]
+[[unendowed sertoli cell]]
+[[unleavened gamelan]]
+[[backlink load test]]

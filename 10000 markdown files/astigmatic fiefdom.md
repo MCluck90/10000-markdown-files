@@ -86,8 +86,6 @@ you finished.
 
 ## Wikilinks load test
 
-[[pleasing scroll saw]]
-[[descriptive tub-thumper]]
-[[hit-and-run numerical quantity]]
-[[chaste water pill]]
-[[incident stereotype]]
+[[workaday undercoat]]
+[[nontoxic hessian]]
+[[backlink load test]]

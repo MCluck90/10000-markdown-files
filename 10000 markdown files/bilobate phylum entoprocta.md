@@ -80,8 +80,6 @@ Heads below and live.
 
 ## Wikilinks load test
 
-[[unforceful tricolor television tube]]
-[[umpteenth deicer]]
-[[wheel-like hazan]]
-[[exploitative mojarra]]
-[[burled rochambeau]]
+[[alkaloidal aeroplane]]
+[[unperceptive naval surface warfare center]]
+[[backlink load test]]

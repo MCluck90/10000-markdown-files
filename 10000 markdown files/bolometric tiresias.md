@@ -88,7 +88,6 @@ While the crown on then dipped
 
 ## Wikilinks load test
 
-[[menacing bugle call]]
-[[bully billy sunday]]
-[[descendant stenocarpus sinuatus]]
-[[thirty-ninth thankfulness]]
+[[electrostatic icon]]
+[[adipose snatch block]]
+[[backlink load test]]

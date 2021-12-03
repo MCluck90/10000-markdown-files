@@ -83,6 +83,8 @@ In that nothing seems
 
 ## Wikilinks load test
 
-[[neural rasta]]
-[[seasick erethizon dorsatum]]
-[[assertive inspectorship]]
+[[publicized virago]]
+[[unhearing sweatbox]]
+[[unromantic perciformes]]
+[[freeborn musk deer]]
+[[backlink load test]]

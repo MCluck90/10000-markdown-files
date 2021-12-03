@@ -88,5 +88,5 @@ Alice did you down stupid and
 
 ## Wikilinks load test
 
-[[reinforced antimycin]]
-[[kechuan ruler]]
+[[shockable sturt pea]]
+[[backlink load test]]

@@ -79,8 +79,6 @@ Somebody said And then
 
 ## Wikilinks load test
 
-[[long-shanked bris]]
-[[discorporate peromyscus gossypinus]]
-[[fewest didelphis virginiana]]
-[[polyoestrous conversationist]]
-[[thick-billed tetanus]]
+[[snuggled adelie penguin]]
+[[watered id al-fitr]]
+[[backlink load test]]

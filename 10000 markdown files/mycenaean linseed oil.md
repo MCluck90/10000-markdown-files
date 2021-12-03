@@ -81,8 +81,9 @@ Now you play with wooden
 
 ## Wikilinks load test
 
-[[depreciating anaphalis margaritacea]]
-[[bionomic high-vitamin diet]]
-[[photogenic clime]]
-[[unsightly deuterium oxide]]
-[[dionysian aluminum chloride]]
+[[anthropophagous ruddle]]
+[[sensationalistic shrimp-fish]]
+[[starving gypsum]]
+[[conciliative colophony]]
+[[ball-shaped soya]]
+[[backlink load test]]

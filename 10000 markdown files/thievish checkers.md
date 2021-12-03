@@ -87,8 +87,5 @@ Treacle said Seven looked very neatly
 
 ## Wikilinks load test
 
-[[micrometeoritic case-to-infection ratio]]
-[[calendric water locust]]
-[[corbelled piriform area]]
-[[undiscovered thracian]]
-[[stranded sabbatical year]]
+[[provincial diplomat]]
+[[backlink load test]]

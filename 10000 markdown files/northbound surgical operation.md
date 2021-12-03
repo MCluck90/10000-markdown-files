@@ -78,5 +78,7 @@ Wow.
 
 ## Wikilinks load test
 
-[[fundamentalist donatello]]
-[[apical fundamental]]
+[[sneezy sarracenia]]
+[[crestfallen billie the kid]]
+[[freehearted black-headed snake]]
+[[backlink load test]]

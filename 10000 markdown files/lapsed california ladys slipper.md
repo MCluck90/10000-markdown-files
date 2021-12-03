@@ -87,7 +87,7 @@ so Alice without a mouse
 
 ## Wikilinks load test
 
-[[bureaucratic inherited disease]]
-[[la-di-da farrier]]
-[[feline hamamelidanthum]]
-[[synchronised arthur schopenhauer]]
+[[combat-ready navigator]]
+[[tympanic toy]]
+[[unforested ascus]]
+[[backlink load test]]

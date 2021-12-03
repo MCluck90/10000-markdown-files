@@ -85,4 +85,9 @@ Anything you old fellow.
 
 ## Wikilinks load test
 
-[[ferine phi coefficient]]
+[[trial-and-error benzylpenicillin]]
+[[tricked-out bayard]]
+[[bullish para aminobenzoic acid]]
+[[unsympathetic camassia scilloides]]
+[[unperceiving calophyllum]]
+[[backlink load test]]

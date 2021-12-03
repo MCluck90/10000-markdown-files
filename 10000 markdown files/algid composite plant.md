@@ -84,5 +84,9 @@ won't do it arrum.
 
 ## Wikilinks load test
 
-[[macho costal groove]]
-[[frostian x]]
+[[shipshape brass band]]
+[[haemorrhagic phylum annelida]]
+[[nonhierarchic tsuga heterophylla]]
+[[ceremonial gate]]
+[[unobtrusive black-necked grebe]]
+[[backlink load test]]

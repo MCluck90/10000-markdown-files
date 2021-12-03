@@ -87,7 +87,9 @@ These were said with oh.
 
 ## Wikilinks load test
 
-[[tetragonal easy street]]
-[[mistakable lysimachia]]
-[[leaved enarthrodial joint]]
-[[autobiographical throat sweetbread]]
+[[nescient apatosaurus]]
+[[self-seeking hydrocracking]]
+[[compact boudoir]]
+[[collectable ringlet]]
+[[hard-hitting perpetual calendar]]
+[[backlink load test]]

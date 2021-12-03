@@ -83,6 +83,9 @@ Beau ootiful Soo oop.
 
 ## Wikilinks load test
 
-[[french acaridiasis]]
-[[mechanized numbat]]
-[[earsplitting stiff]]
+[[deviate unsightliness]]
+[[stertorous war correspondent]]
+[[costate david lewelyn wark griffith]]
+[[firsthand accompanyist]]
+[[local self-worship]]
+[[backlink load test]]

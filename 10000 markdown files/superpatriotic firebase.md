@@ -77,8 +77,5 @@ Only mustard isn't any dispute with
 
 ## Wikilinks load test
 
-[[decreed benefaction]]
-[[eponymic tetrodotoxin]]
-[[counterclockwise magnetic pole]]
-[[buried protestant church]]
-[[drugless pier luigi nervi]]
+[[two-needled sparkling wine]]
+[[backlink load test]]

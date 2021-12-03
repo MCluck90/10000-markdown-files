@@ -89,7 +89,9 @@ as it gloomily then after
 
 ## Wikilinks load test
 
-[[nonspatial assaulter]]
-[[nonmusical fixed costs]]
-[[electrostatic icon]]
-[[peace-loving combination lock]]
+[[empirical chimney swift]]
+[[spatiotemporal class hemiascomycetes]]
+[[wispy time constant]]
+[[immutable mongolian]]
+[[prospering bunny hug]]
+[[backlink load test]]

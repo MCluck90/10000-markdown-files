@@ -84,4 +84,5 @@ thump.
 
 ## Wikilinks load test
 
-[[horrific legal proceeding]]
+[[non-automatic gustav klimt]]
+[[backlink load test]]

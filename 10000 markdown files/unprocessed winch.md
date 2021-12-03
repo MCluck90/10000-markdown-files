@@ -78,7 +78,5 @@ If they seemed ready.
 
 ## Wikilinks load test
 
-[[terror-struck engraulis encrasicholus]]
-[[bewitching alsobia]]
-[[warm-blooded red birch]]
-[[fair-and-square tolazoline]]
+[[choky blueweed]]
+[[backlink load test]]

@@ -85,5 +85,8 @@ Run home this to pass
 
 ## Wikilinks load test
 
-[[ii omnidirectional range]]
-[[bicyclic shallow]]
+[[transoceanic harlan fisk stone]]
+[[imposing house sparrow]]
+[[violet-colored school year]]
+[[ivied main rotor]]
+[[backlink load test]]

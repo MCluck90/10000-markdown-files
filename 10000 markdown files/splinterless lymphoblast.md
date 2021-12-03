@@ -76,7 +76,5 @@ No said gravely and nonsense
 
 ## Wikilinks load test
 
-[[wolfish enterolith]]
-[[eristic fergusonite]]
-[[amateurish bagger]]
-[[inexplicit orientalism]]
+[[eremitic integrity]]
+[[backlink load test]]

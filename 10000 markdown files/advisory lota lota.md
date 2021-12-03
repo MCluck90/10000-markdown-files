@@ -89,7 +89,8 @@ was such an Eaglet.
 
 ## Wikilinks load test
 
-[[outdated recce]]
-[[walloping noun]]
-[[nonmetal information]]
-[[bubbly multiplier factor]]
+[[compatible lemongrass]]
+[[disappointed battle of crecy]]
+[[lean sable]]
+[[attenuate batfish]]
+[[backlink load test]]

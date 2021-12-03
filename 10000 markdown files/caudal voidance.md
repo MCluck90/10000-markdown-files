@@ -84,6 +84,9 @@ Prizes.
 
 ## Wikilinks load test
 
-[[half-baked arctic moss]]
-[[naturalistic montia perfoliata]]
-[[secretarial vasodilative]]
+[[down-to-earth california newt]]
+[[avertable prostatic adenocarcinoma]]
+[[multiplied hypermotility]]
+[[unsyllabled pt]]
+[[shelvy pliny]]
+[[backlink load test]]

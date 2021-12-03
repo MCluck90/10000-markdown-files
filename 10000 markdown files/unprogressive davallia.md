@@ -91,8 +91,5 @@ you throw us both
 
 ## Wikilinks load test
 
-[[neither shinleaf]]
-[[huge glaucomys volans]]
-[[garbed frequency-response characteristic]]
-[[little tunicate]]
-[[mimetic jan christian smuts]]
+[[ill-used automatism]]
+[[backlink load test]]

@@ -84,7 +84,5 @@ Whoever lives.
 
 ## Wikilinks load test
 
-[[celibate suksdorfia]]
-[[boughless saint benedict]]
-[[discomfited hayrig]]
-[[y2k compliant aviatress]]
+[[cosmogonical baby boom]]
+[[backlink load test]]

@@ -90,4 +90,8 @@ muttered to one's own
 
 ## Wikilinks load test
 
-[[libidinous shellac varnish]]
+[[wry wild sensitive plant]]
+[[paperlike family muscidae]]
+[[testaceous safety zone]]
+[[uveous electric potential]]
+[[backlink load test]]

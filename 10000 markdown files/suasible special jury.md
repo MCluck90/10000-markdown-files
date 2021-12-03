@@ -85,5 +85,7 @@ Dinah was sneezing and decidedly uncivil.
 
 ## Wikilinks load test
 
-[[right-side-up quidnunc]]
-[[bolometric tiresias]]
+[[pharisaical postgraduate]]
+[[competitory fig]]
+[[related to operand]]
+[[backlink load test]]

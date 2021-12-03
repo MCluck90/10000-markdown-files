@@ -78,8 +78,6 @@ persisted the three of
 
 ## Wikilinks load test
 
-[[dizzy southern tai]]
-[[lower-class bottle screw]]
-[[simultaneous structural steel]]
-[[simulated riga]]
-[[anisometric common scurvy grass]]
+[[shallow-draft wire service]]
+[[softening ballot box]]
+[[backlink load test]]

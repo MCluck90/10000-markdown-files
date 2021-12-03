@@ -87,4 +87,7 @@ May it it myself the
 
 ## Wikilinks load test
 
-[[blue-fruited star-duckweed]]
+[[sea-level broth]]
+[[consensual application-oriented language]]
+[[interbred drawing pin]]
+[[backlink load test]]

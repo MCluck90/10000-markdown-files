@@ -93,8 +93,8 @@ Fetch me.
 
 ## Wikilinks load test
 
-[[circadian kamchatkan sea eagle]]
-[[hypertonic rubia]]
-[[guatemalan sapidness]]
-[[ravaged gynecocracy]]
-[[la-di-da farrier]]
+[[downhill optometry]]
+[[client-server ux.]]
+[[awry urtica]]
+[[o.k. immaculateness]]
+[[backlink load test]]

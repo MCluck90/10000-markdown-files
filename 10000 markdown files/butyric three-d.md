@@ -86,6 +86,9 @@ down among them word I
 
 ## Wikilinks load test
 
-[[in question altazimuth]]
-[[clapped out pectoralis]]
-[[timeless medgar evers]]
+[[nonbearing petrarch]]
+[[destitute family ambystomatidae]]
+[[cosmogonical teleologist]]
+[[cross-banded stewpan]]
+[[la-di-da farrier]]
+[[backlink load test]]

@@ -83,7 +83,9 @@ After these changes are too
 
 ## Wikilinks load test
 
-[[universalist wilsons warbler]]
-[[tutelary chimonanthus praecox]]
-[[analogue baby boomer]]
-[[nationalistic ornithogalum thyrsoides]]
+[[thoughtful troop carrier]]
+[[fiddle-shaped family pucciniaceae]]
+[[undulatory northwester]]
+[[watery collectivist]]
+[[dank order mucorales]]
+[[backlink load test]]

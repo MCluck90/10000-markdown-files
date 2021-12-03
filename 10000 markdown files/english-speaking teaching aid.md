@@ -78,6 +78,6 @@ Now at applause which way
 
 ## Wikilinks load test
 
-[[bilinear seven wonders of the ancient world]]
-[[rousing vittariaceae]]
-[[anatomic plectorrhiza]]
+[[untrusting transmutability]]
+[[hopeful northern bog lemming]]
+[[backlink load test]]

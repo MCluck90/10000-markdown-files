@@ -85,7 +85,5 @@ Please Ma'am is enough
 
 ## Wikilinks load test
 
-[[powdery-blue hard drive]]
-[[oscine proteinuria]]
-[[butch capital of northern ireland]]
-[[workaday undercoat]]
+[[squeamish pooh-bah]]
+[[backlink load test]]

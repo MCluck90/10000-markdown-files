@@ -88,7 +88,5 @@ She'd soon finished her if
 
 ## Wikilinks load test
 
-[[outdated petit mal epilepsy]]
-[[beethovenian medium of exchange]]
-[[frail surface lift]]
-[[earlyish suttee]]
+[[frostian x]]
+[[backlink load test]]

@@ -87,8 +87,9 @@ Even the wretched Hatter when
 
 ## Wikilinks load test
 
-[[pastelike egalitarianism]]
-[[standardised frisbee]]
-[[clever sceptic]]
-[[liquefiable genus mandragora]]
-[[plugged idol worshiper]]
+[[edentate genus cabassous]]
+[[cone-bearing united states border patrol]]
+[[sanctioned unearned increment]]
+[[mismated inkpad]]
+[[splotched homophobia]]
+[[backlink load test]]

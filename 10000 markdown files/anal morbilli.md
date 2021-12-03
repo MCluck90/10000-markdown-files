@@ -82,8 +82,8 @@ While the pieces of lullaby
 
 ## Wikilinks load test
 
-[[vulval tabor pipe]]
-[[southerly bumpiness]]
-[[indolent goldfield]]
-[[traditional adios]]
-[[powdery-blue hard drive]]
+[[competitive counterintelligence]]
+[[ready-made tranquillizer]]
+[[complex omicron]]
+[[redolent tachyglossidae]]
+[[backlink load test]]

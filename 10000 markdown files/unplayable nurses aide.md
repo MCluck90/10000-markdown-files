@@ -91,5 +91,5 @@ Whoever lives there stood
 
 ## Wikilinks load test
 
-[[full-size choke coil]]
-[[closed-door xxy-syndrome]]
+[[bats genus chelonia]]
+[[backlink load test]]

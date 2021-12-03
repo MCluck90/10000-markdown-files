@@ -88,6 +88,7 @@ WHAT are worse off when his
 
 ## Wikilinks load test
 
-[[calycine insanity]]
-[[rumpled holmium]]
-[[hypochondriac viewer]]
+[[janus-faced genus styphelia]]
+[[wobbly divine messenger]]
+[[self-pollinated louis the stammerer]]
+[[backlink load test]]

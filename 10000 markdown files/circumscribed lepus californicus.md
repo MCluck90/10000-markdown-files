@@ -88,7 +88,7 @@ Hadn't time Alice but all day.
 
 ## Wikilinks load test
 
-[[megascopic bilestone]]
-[[petrous sterculia gum]]
-[[blebby park avenue]]
-[[propitiative imminent abortion]]
+[[overmuch book of haggai]]
+[[mnemonic dog racing]]
+[[landscaped cestoda]]
+[[backlink load test]]

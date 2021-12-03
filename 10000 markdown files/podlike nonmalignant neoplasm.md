@@ -90,6 +90,5 @@ You'll get them attempted to
 
 ## Wikilinks load test
 
-[[short-snouted cote]]
-[[slav intima]]
-[[inherent curse word]]
+[[inflexible wirehaired terrier]]
+[[backlink load test]]

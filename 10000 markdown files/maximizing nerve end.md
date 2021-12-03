@@ -92,6 +92,6 @@ ALICE'S RIGHT FOOT ESQ.
 
 ## Wikilinks load test
 
-[[tall due process]]
-[[piscine leopard lizard]]
-[[descendent buspirone]]
+[[foremost intergalactic space]]
+[[gauche soloist]]
+[[backlink load test]]

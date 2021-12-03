@@ -81,7 +81,9 @@ Luckily for Mabel for to
 
 ## Wikilinks load test
 
-[[singhalese apocrypha]]
-[[blue-eyed bill poster]]
-[[alone double first]]
-[[interlinear falkner]]
+[[chartered guanine]]
+[[correlated venting]]
+[[overshot roping]]
+[[undescriptive listed security]]
+[[semantic bokmal]]
+[[backlink load test]]

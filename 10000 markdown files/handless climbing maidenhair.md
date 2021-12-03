@@ -85,8 +85,7 @@ There are nobody spoke fancy
 
 ## Wikilinks load test
 
-[[splayfoot genus melolontha]]
-[[moody astrodome]]
-[[unhumorous technology administration]]
-[[rock-inhabiting greensand]]
-[[conclusive dosage]]
+[[monitory genus satureia]]
+[[authorised lucius domitius ahenobarbus]]
+[[iodized bower actinidia]]
+[[backlink load test]]

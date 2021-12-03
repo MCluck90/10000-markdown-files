@@ -84,6 +84,5 @@ Serpent.
 
 ## Wikilinks load test
 
-[[semestral territorial dominion]]
-[[hindmost levi-strauss]]
-[[multivalent gavel]]
+[[three-legged pericardial sac]]
+[[backlink load test]]

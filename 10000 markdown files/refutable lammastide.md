@@ -82,8 +82,8 @@ Mary Ann.
 
 ## Wikilinks load test
 
-[[ascetic dwarf buffalo]]
-[[brown-grey welcomer]]
-[[staunch st. ignatius]]
-[[splendiferous vinification]]
-[[aflutter piper betel]]
+[[intertribal steerageway]]
+[[explosive iris foetidissima]]
+[[rearmost free fall]]
+[[pro-choice great smoky mountains]]
+[[backlink load test]]

@@ -79,5 +79,8 @@ Let this be NO mistake about
 
 ## Wikilinks load test
 
-[[west african pindolol]]
-[[biographical omelette pan]]
+[[bicylindrical josiah willard gibbs]]
+[[macrocosmic calymmatobacterium granulomatis]]
+[[gaunt subphylum tunicata]]
+[[liplike umbellifer]]
+[[backlink load test]]

@@ -89,8 +89,8 @@ Luckily for I ask
 
 ## Wikilinks load test
 
-[[untasted dolby]]
-[[unreportable gelignite]]
-[[maximum luggage carrousel]]
-[[snooty genus corydalis]]
-[[eponymic tetrodotoxin]]
+[[seeming autoimmune disorder]]
+[[hired harold hart crane]]
+[[supporting archbishop]]
+[[logy troponymy]]
+[[backlink load test]]

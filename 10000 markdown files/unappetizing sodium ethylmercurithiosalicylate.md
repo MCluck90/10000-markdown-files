@@ -86,6 +86,7 @@ A Mad Tea-Party There goes
 
 ## Wikilinks load test
 
-[[spendthrift idesia polycarpa]]
-[[knee-length black comedy]]
-[[unobtrusive black-necked grebe]]
+[[stereotyped boil]]
+[[bilabial star divination]]
+[[infrasonic male bonding]]
+[[backlink load test]]

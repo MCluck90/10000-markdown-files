@@ -86,7 +86,9 @@ Read them red.
 
 ## Wikilinks load test
 
-[[fuzzy giovanni francesco albani]]
-[[unsoluble colombo]]
-[[chummy hog plum]]
-[[elephantine synovial fluid]]
+[[in play red planet]]
+[[coccal air passage]]
+[[well thought out kw-hr]]
+[[frilled communication channel]]
+[[unconfined left-hander]]
+[[backlink load test]]

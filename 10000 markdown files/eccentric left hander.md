@@ -84,6 +84,8 @@ Everything is.
 
 ## Wikilinks load test
 
-[[disintegrative oriental beetle]]
-[[crapulent life imprisonment]]
-[[assuming republic of nauru]]
+[[carmelite nitrostat]]
+[[clayey yucatec]]
+[[aloof ignatius]]
+[[decompositional igniter]]
+[[backlink load test]]

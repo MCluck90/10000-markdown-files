@@ -76,7 +76,8 @@ Once upon Bill.
 
 ## Wikilinks load test
 
-[[liquefiable genus mandragora]]
-[[triangulate erasable programmable read-only memory]]
-[[blunt immediacy]]
-[[spare mexican tea]]
+[[petrous sterculia gum]]
+[[unfattened tubeless]]
+[[bellicose bruce]]
+[[meshugga quality of life]]
+[[backlink load test]]

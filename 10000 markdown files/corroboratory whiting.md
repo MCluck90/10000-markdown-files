@@ -87,6 +87,6 @@ YOU must ever heard.
 
 ## Wikilinks load test
 
-[[deaf-mute northern lobster]]
-[[temperate 12]]
-[[soigne pregnancy]]
+[[stalinist lecanora]]
+[[ultramontane anapest]]
+[[backlink load test]]

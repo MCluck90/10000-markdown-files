@@ -86,7 +86,9 @@ his garden how is only by
 
 ## Wikilinks load test
 
-[[spendthrift idesia polycarpa]]
-[[erose hoary pea]]
-[[interplanetary virginia waterleaf]]
-[[paternalistic large-flowered calamint]]
+[[noncombining eloquence]]
+[[monosyllabic carya myristiciformis]]
+[[emended pda]]
+[[alkaloidal aeroplane]]
+[[pantropical peripheral device]]
+[[backlink load test]]

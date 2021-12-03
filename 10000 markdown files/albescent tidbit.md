@@ -83,7 +83,6 @@ Pat what's the sense and still
 
 ## Wikilinks load test
 
-[[unmemorable druidism]]
-[[autobiographical crankcase]]
-[[spendthrift idesia polycarpa]]
-[[self-effacing genus nepeta]]
+[[skim intonation pattern]]
+[[demolished electrical contact]]
+[[backlink load test]]

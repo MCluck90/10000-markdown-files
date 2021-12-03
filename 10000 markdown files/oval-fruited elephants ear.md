@@ -86,7 +86,9 @@ To begin lessons to invent
 
 ## Wikilinks load test
 
-[[ingratiatory genus aneides]]
-[[vascular sulfur oxide]]
-[[spiteful inefficiency]]
-[[sulfuric shoestring fungus]]
+[[paramagnetic aertex]]
+[[three-petalled greenhood]]
+[[laughing lake leman]]
+[[calyptrate do-gooder]]
+[[bimotored indian chocolate]]
+[[backlink load test]]

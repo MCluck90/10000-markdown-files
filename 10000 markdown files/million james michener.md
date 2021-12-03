@@ -81,8 +81,6 @@ Boots and looked all alone here
 
 ## Wikilinks load test
 
-[[left-of-center monochromat]]
-[[murky genus allionia]]
-[[diaphanous bristletail]]
-[[unlovable cutaway drawing]]
-[[marketable kangaroo hare]]
+[[unregistered pulmonary circulation]]
+[[depressing barium peroxide]]
+[[backlink load test]]

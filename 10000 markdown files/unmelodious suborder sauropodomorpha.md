@@ -86,8 +86,5 @@ Good-bye feet.
 
 ## Wikilinks load test
 
-[[milch pyrausta nubilalis]]
-[[taken with line of descent]]
-[[propagandistic holy spirit]]
-[[acrocentric tertiary period]]
-[[hyperbolic paper electrophoresis]]
+[[hairsplitting brown bent]]
+[[backlink load test]]

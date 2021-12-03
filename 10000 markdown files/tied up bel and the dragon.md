@@ -91,8 +91,9 @@ _I_ don't put a LITTLE
 
 ## Wikilinks load test
 
-[[myelic potassium iodide]]
-[[structural bahraini]]
-[[transplantable genus pedioecetes]]
-[[debilitated tax base]]
-[[outlying electrical contact]]
+[[some autoimmune diabetes]]
+[[subdural netherlands]]
+[[naming self-education]]
+[[reasoning c]]
+[[coltish matchmaker]]
+[[backlink load test]]

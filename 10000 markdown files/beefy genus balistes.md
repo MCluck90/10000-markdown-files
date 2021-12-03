@@ -84,8 +84,8 @@ I've finished off when
 
 ## Wikilinks load test
 
-[[spontaneous polytechnic]]
-[[petalless andreas vesalius]]
-[[pyrotechnical duchesse de valentinois]]
-[[unmitigable wiesenboden]]
-[[wonderworking bahasa melayu]]
+[[southwest spotted antbird]]
+[[nonmechanical jotunn]]
+[[anginose armata corsa]]
+[[barbadian orchestral bells]]
+[[backlink load test]]

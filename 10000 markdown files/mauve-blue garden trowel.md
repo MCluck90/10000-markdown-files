@@ -79,5 +79,9 @@ See how large letters.
 
 ## Wikilinks load test
 
-[[cinnamon colored telecast]]
-[[level lobipes lobatus]]
+[[impoverished sixty-fourth note]]
+[[acromegalic gulf of aegina]]
+[[lincolnian wagga wagga]]
+[[gloomful swedish mile]]
+[[mannish pickup truck]]
+[[backlink load test]]

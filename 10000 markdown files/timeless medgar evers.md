@@ -75,5 +75,5 @@ Oh a vegetable.
 
 ## Wikilinks load test
 
-[[sickish cycad family]]
-[[unsounded evergreen beech]]
+[[setose cowpen daisy]]
+[[backlink load test]]

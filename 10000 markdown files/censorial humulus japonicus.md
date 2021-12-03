@@ -84,5 +84,5 @@ Visit either question but
 
 ## Wikilinks load test
 
-[[coppery fuddy-duddy]]
-[[awake velvet ant]]
+[[institutionalised prairie dock]]
+[[backlink load test]]

@@ -84,7 +84,5 @@ from all manner of
 
 ## Wikilinks load test
 
-[[breeched ginger beer]]
-[[curly-grained skim]]
-[[dressed-up appeasement]]
-[[thalamocortical allentown]]
+[[cramped romance language]]
+[[backlink load test]]

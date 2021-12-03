@@ -78,7 +78,7 @@ Idiot.
 
 ## Wikilinks load test
 
-[[flesh-eating harlem renaissance]]
-[[steep-sided banger]]
-[[multi-colour essential]]
-[[dorsal fishing vessel]]
+[[tribadistic reserpine]]
+[[ponderous artery]]
+[[hook-shaped merry-go-round]]
+[[backlink load test]]

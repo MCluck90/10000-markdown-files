@@ -78,7 +78,8 @@ Write that if not
 
 ## Wikilinks load test
 
-[[odoriferous talipes calcaneus]]
-[[ukrainian fast reactor]]
-[[self-willed limp]]
-[[centralised beggary]]
+[[coagulate africa]]
+[[defoliate beet blight]]
+[[nonfissile family gasterosteidae]]
+[[pycnotic genus pterospermum]]
+[[backlink load test]]

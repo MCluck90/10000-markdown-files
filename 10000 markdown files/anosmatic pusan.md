@@ -83,6 +83,5 @@ IT.
 
 ## Wikilinks load test
 
-[[educational brights disease]]
-[[pensionable proteinuria]]
-[[setaceous allium paradoxum]]
+[[cosmogonical teleologist]]
+[[backlink load test]]

@@ -88,5 +88,7 @@ thought it saw maps
 
 ## Wikilinks load test
 
-[[bandy genus anarhichas]]
-[[matriarchic shastan]]
+[[ovarian starship]]
+[[unhomogenised riggs disease]]
+[[warm-blooded red birch]]
+[[backlink load test]]

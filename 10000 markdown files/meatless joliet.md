@@ -83,4 +83,6 @@ Always lay far as it appeared
 
 ## Wikilinks load test
 
-[[awash vanda caerulea]]
+[[roundish kaiser bill]]
+[[plane shaggy dog story]]
+[[backlink load test]]

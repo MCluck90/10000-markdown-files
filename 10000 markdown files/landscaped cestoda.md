@@ -84,5 +84,8 @@ To begin with cupboards and sharks
 
 ## Wikilinks load test
 
-[[insolvable propenoate]]
-[[full-size choke coil]]
+[[regimented cheval glass]]
+[[overzealous opening move]]
+[[indefensible tergiversation]]
+[[erose hoary pea]]
+[[backlink load test]]

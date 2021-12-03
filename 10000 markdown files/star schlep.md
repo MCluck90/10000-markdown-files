@@ -88,8 +88,9 @@ Your Majesty must know.
 
 ## Wikilinks load test
 
-[[xcvi main line]]
-[[photoemissive technical school]]
-[[unprogressive davallia]]
-[[wayfaring fishpole bamboo]]
-[[irreversible physicist]]
+[[documentary thud]]
+[[aglitter footgear]]
+[[level mocker]]
+[[splashy mournful widow]]
+[[slovenly cyclorama]]
+[[backlink load test]]

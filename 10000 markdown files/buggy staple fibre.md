@@ -78,7 +78,7 @@ they'll all day is which
 
 ## Wikilinks load test
 
-[[syncretistical bosn]]
-[[marly genus lota]]
-[[victimised descriptive adjective]]
-[[unsinkable admiral dewey]]
+[[eighteenth hunt]]
+[[universalist garboard]]
+[[bullying peppercorn]]
+[[backlink load test]]

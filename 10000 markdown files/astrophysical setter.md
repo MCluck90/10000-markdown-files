@@ -78,6 +78,9 @@ Ten hours I passed
 
 ## Wikilinks load test
 
-[[award-winning psychiatric hospital]]
-[[disjoint genus hylobates]]
-[[nodding revolutionary proletarian nucleus]]
+[[cartesian genus ozothamnus]]
+[[soigne setoff]]
+[[in the public eye forceps]]
+[[chanceful donatism]]
+[[unindustrialised plumbers helper]]
+[[backlink load test]]

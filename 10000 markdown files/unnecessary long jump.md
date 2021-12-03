@@ -89,8 +89,7 @@ but why then added the mouth
 
 ## Wikilinks load test
 
-[[geosynchronous hill myna]]
-[[suntanned concavity]]
-[[mystifying varnish tree]]
-[[niggling semitropics]]
-[[fortieth genus castanospermum]]
+[[avifaunal bermuda plan]]
+[[dull lamarckian]]
+[[one-party disabled]]
+[[backlink load test]]

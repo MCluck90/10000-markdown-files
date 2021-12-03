@@ -89,7 +89,5 @@ This question and last turned round
 
 ## Wikilinks load test
 
-[[semestral fennic]]
-[[bathyal interdiction]]
-[[short-bodied knight-errant]]
-[[anosmatic pusan]]
+[[metaphoric standoff]]
+[[backlink load test]]

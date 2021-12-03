@@ -82,8 +82,5 @@ Soup is you doing here
 
 ## Wikilinks load test
 
-[[brown-striped absurdness]]
-[[unfrosted live wire]]
-[[reproducible straw boss]]
-[[awl-shaped psycholinguist]]
-[[skinless sabahan]]
+[[square-jawed serkin]]
+[[backlink load test]]

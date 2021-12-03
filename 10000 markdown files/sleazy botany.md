@@ -84,8 +84,9 @@ There's no such a candle.
 
 ## Wikilinks load test
 
-[[star schlep]]
-[[new-mown practicability]]
-[[spurned plasterboard]]
-[[x-linked inexperience]]
-[[raped genus nitrosomonas]]
+[[weak dekagram]]
+[[unlearned walkabout]]
+[[literal radiculitis]]
+[[undeferential rock squirrel]]
+[[greedy cotoneaster]]
+[[backlink load test]]

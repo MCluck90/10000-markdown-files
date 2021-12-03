@@ -84,6 +84,5 @@ May it set them as he
 
 ## Wikilinks load test
 
-[[ungraceful medulla]]
-[[coal-burning marlinspike]]
-[[photoconductive perspicacity]]
+[[asquint yellow mariposa tulip]]
+[[backlink load test]]

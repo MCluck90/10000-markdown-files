@@ -91,5 +91,5 @@ What's your feelings.
 
 ## Wikilinks load test
 
-[[brainless backgammon board]]
-[[italic horseshow]]
+[[dialectal yard measure]]
+[[backlink load test]]

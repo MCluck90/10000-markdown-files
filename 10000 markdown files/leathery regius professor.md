@@ -85,6 +85,8 @@ Prizes.
 
 ## Wikilinks load test
 
-[[ironclad cruise liner]]
-[[prefaded sialadenitis]]
-[[parenthetic hairgrip]]
+[[slam-bang venetia]]
+[[chartaceous acid precipitation]]
+[[anagogical generousness]]
+[[vacillating anode]]
+[[backlink load test]]

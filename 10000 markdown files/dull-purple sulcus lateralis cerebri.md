@@ -78,8 +78,6 @@ My dear paws and
 
 ## Wikilinks load test
 
-[[middle-aged jakob boehm]]
-[[curving paleo-indian]]
-[[scintillating genus hymenophyllum]]
-[[epizoic addiction]]
-[[hebrew indefinite quantity]]
+[[continent cassock]]
+[[dreamless bouncing bet]]
+[[backlink load test]]

@@ -84,5 +84,5 @@ Shan't said to listen.
 
 ## Wikilinks load test
 
-[[sun-dried il duce]]
-[[unending japanese red army]]
+[[exterminated great-nephew]]
+[[backlink load test]]

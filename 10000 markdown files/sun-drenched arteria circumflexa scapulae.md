@@ -85,5 +85,6 @@ they all know how late to
 
 ## Wikilinks load test
 
-[[blushful pisces the fishes]]
-[[precipitate coronary heart disease]]
+[[blindfolded calluna]]
+[[empty-handed bufflehead]]
+[[backlink load test]]

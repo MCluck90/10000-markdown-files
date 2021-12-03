@@ -90,7 +90,5 @@ Let us Drawling Stretching and thinking
 
 ## Wikilinks load test
 
-[[conciliatory mutchkin]]
-[[shabby blind person]]
-[[crestfallen billie the kid]]
-[[bouncing 17 november]]
+[[pre-columbian anders celsius]]
+[[backlink load test]]

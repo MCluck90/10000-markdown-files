@@ -82,8 +82,8 @@ Treacle said as large
 
 ## Wikilinks load test
 
-[[short-stalked martes americana]]
-[[impressive riffle]]
-[[sticky cathode-ray oscilloscope]]
-[[slow-moving seismogram]]
-[[nazarene genus genyonemus]]
+[[closely-held grab sample]]
+[[pitiless depersonalization]]
+[[bloody speedwell]]
+[[bogartian genus piroplasma]]
+[[backlink load test]]

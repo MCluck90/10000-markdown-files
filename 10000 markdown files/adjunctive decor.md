@@ -93,8 +93,9 @@ However on hearing this
 
 ## Wikilinks load test
 
-[[endoscopic megacycle per second]]
-[[moravian labor coach]]
-[[wooly-haired male orgasm]]
-[[unappareled red clover]]
-[[bivalve caper sauce]]
+[[inopportune maclura pomifera]]
+[[gritty leech]]
+[[anthropogenic welcome wagon]]
+[[typographical ipomoea orizabensis]]
+[[wiry-stemmed class bacillariophyceae]]
+[[backlink load test]]

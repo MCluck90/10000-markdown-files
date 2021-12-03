@@ -83,8 +83,7 @@ Some of feet at.
 
 ## Wikilinks load test
 
-[[allegorical deluge]]
-[[paleontological european wood mouse]]
-[[counterterrorist fasces]]
-[[unbelievable adrenergic agonist eyedrop]]
-[[ungathered age group]]
+[[one hundred five waxycap]]
+[[right-side-up quidnunc]]
+[[concentrated webbed foot]]
+[[backlink load test]]

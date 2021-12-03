@@ -91,7 +91,6 @@ It'll be managed it
 
 ## Wikilinks load test
 
-[[dulled bismarck archipelago]]
-[[pro prunus susquehanae]]
-[[nonreflective cantaloupe vine]]
-[[accretionary pansy]]
+[[ex vivo sewing-machine stitch]]
+[[hard-pressed scutigera coleoptrata]]
+[[backlink load test]]

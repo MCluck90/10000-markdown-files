@@ -79,5 +79,5 @@ YOU'D better.
 
 ## Wikilinks load test
 
-[[disingenuous plectognath]]
-[[inscriptive stairway]]
+[[hemolytic grimes golden]]
+[[backlink load test]]

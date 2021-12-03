@@ -87,4 +87,9 @@ Chorus again as before.
 
 ## Wikilinks load test
 
-[[bivalve caper sauce]]
+[[cool frontbencher]]
+[[silvery-blue toadfish]]
+[[semiweekly sulcus]]
+[[saccadic identification number]]
+[[semidetached misrepresentation]]
+[[backlink load test]]

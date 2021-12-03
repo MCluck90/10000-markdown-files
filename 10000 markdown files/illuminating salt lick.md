@@ -86,6 +86,6 @@ from under her childhood
 
 ## Wikilinks load test
 
-[[antipathetic ophthalmoscope]]
-[[recurvate shnorrer]]
-[[antiferromagnetic genus aegiceras]]
+[[childish gummed label]]
+[[anginose armata corsa]]
+[[backlink load test]]

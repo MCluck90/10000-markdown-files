@@ -87,6 +87,6 @@ After these in large pool.
 
 ## Wikilinks load test
 
-[[steel-plated general relativity]]
-[[autogenous james wyatt]]
-[[crookback cush-cush]]
+[[ascomycetous heart-leaf]]
+[[bracted shipwright]]
+[[backlink load test]]

@@ -79,8 +79,9 @@ It'll be different.
 
 ## Wikilinks load test
 
-[[helmet-shaped bipedalism]]
-[[unblemished herb mercury]]
-[[shadowed salmon]]
-[[noxious detective agency]]
-[[trabeculate farewell]]
+[[unidimensional dingo]]
+[[amenorrhoeal fucoid]]
+[[eviscerate corvine bird]]
+[[aloof ignatius]]
+[[virtuoso aaron copland]]
+[[backlink load test]]

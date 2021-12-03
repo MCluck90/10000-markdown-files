@@ -84,5 +84,7 @@ Tell me executed.
 
 ## Wikilinks load test
 
-[[amygdaline lunisolar calendar]]
-[[ecologic stingaree-bush]]
+[[four-pronged question mark]]
+[[crumpled star begonia]]
+[[showery paragrapher]]
+[[backlink load test]]

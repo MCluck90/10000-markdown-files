@@ -88,8 +88,6 @@ Really now you cut it appeared
 
 ## Wikilinks load test
 
-[[pointillist grand total]]
-[[astonishing broken wind]]
-[[evidenced embroidery stitch]]
-[[troubling capital of the dominican republic]]
-[[out of the blue writ of execution]]
+[[seventy-four penstemon cyananthus]]
+[[fulgurant ssw]]
+[[backlink load test]]

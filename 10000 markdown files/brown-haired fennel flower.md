@@ -78,5 +78,8 @@ Same as mouse-traps and fork with
 
 ## Wikilinks load test
 
-[[life-threatening quiscalus quiscula]]
-[[toneless felt fungus]]
+[[zesty subdivision zygomycota]]
+[[twiglike nyasaland]]
+[[waist-length sphecoid wasp]]
+[[contested republic of ghana]]
+[[backlink load test]]

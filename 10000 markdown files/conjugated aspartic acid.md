@@ -82,7 +82,5 @@ Beautiful Soup does it
 
 ## Wikilinks load test
 
-[[appetitive acclimation]]
-[[undetected cider]]
-[[soulless musculus sphincter ductus choledochi]]
-[[aflame tropopause]]
+[[uncategorized irresistibility]]
+[[backlink load test]]

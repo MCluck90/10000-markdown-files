@@ -85,6 +85,5 @@ Fetch me that wherever
 
 ## Wikilinks load test
 
-[[carminative khoisan language]]
-[[xxii red eft]]
-[[drawn anal phase]]
+[[second-sighted cynodontia]]
+[[backlink load test]]

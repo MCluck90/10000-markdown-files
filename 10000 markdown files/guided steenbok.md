@@ -90,7 +90,9 @@ Call it No indeed and
 
 ## Wikilinks load test
 
-[[swollen vernix caseosa]]
-[[poetical big bill haywood]]
-[[cleanable monocular vision]]
-[[caliginous congridae]]
+[[understaffed osage orange]]
+[[carbonyl seagull]]
+[[peaky jointworm]]
+[[white spanish civil war]]
+[[dark-coloured pall mall]]
+[[backlink load test]]

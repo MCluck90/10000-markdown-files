@@ -87,7 +87,7 @@ Thinking again You MUST
 
 ## Wikilinks load test
 
-[[etymological beta-adrenoceptor]]
-[[sinewy killarney fern]]
-[[autumn-blooming zygodactyl foot]]
-[[dulled bismarck archipelago]]
+[[neutralized dystopia]]
+[[grey-brown bowmans capsule]]
+[[three-lipped bycatch]]
+[[backlink load test]]

@@ -75,8 +75,6 @@ or else you'd better this
 
 ## Wikilinks load test
 
-[[terror-stricken after-shave lotion]]
-[[peppy genus myroxylon]]
-[[sculpted genus polyergus]]
-[[graphic scet]]
-[[syrian megaflop]]
+[[unfashionable left atrium]]
+[[potent criollo]]
+[[backlink load test]]

@@ -84,8 +84,6 @@ You'll get out at
 
 ## Wikilinks load test
 
-[[incorrupt alicyclic compound]]
-[[supernatural finger-root]]
-[[preliterate currency]]
-[[trusty plumed tussock]]
-[[offending bessemer process]]
+[[sweeping francois maurice marie mitterrand]]
+[[house-trained fancy-dress ball]]
+[[backlink load test]]

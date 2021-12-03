@@ -78,5 +78,9 @@ CHORUS.
 
 ## Wikilinks load test
 
-[[misogynic mandibular joint]]
-[[undependable microbiology]]
+[[jingoistic megaptera]]
+[[blood-related yips]]
+[[desirous elective course]]
+[[hand-held kaffir pox]]
+[[goddamn deckle]]
+[[backlink load test]]

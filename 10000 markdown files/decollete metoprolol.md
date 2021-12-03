@@ -88,7 +88,6 @@ Serpent I shall I hadn't mentioned
 
 ## Wikilinks load test
 
-[[knock-down-and-drag-out maldivian]]
-[[avifaunal bermuda plan]]
-[[drug-addicted muscicapa grisola]]
-[[aversive nooks and crannies]]
+[[induced spreading pogonia]]
+[[earthy precession]]
+[[backlink load test]]

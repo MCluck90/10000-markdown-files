@@ -84,7 +84,8 @@ William's conduct at tea-time.
 
 ## Wikilinks load test
 
-[[shelvy pliny]]
-[[zillion flashiness]]
-[[iritic chocolate pudding]]
-[[long-snouted breathing space]]
+[[deceased mangold-wurzel]]
+[[apomictical kilometer]]
+[[tusked alexander graham bell]]
+[[contemporaneous jacques louis david]]
+[[backlink load test]]

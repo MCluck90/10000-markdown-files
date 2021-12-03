@@ -86,7 +86,6 @@ about you will do cats.
 
 ## Wikilinks load test
 
-[[non-automatic gustav klimt]]
-[[backswept north peak]]
-[[forfeit stuffed egg]]
-[[comparable with first council of nicaea]]
+[[botryoid stadium]]
+[[guitar-shaped family mastodontidae]]
+[[backlink load test]]

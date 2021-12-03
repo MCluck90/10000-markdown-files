@@ -89,5 +89,9 @@ Some of great wonder if
 
 ## Wikilinks load test
 
-[[knocked out wild spinach]]
-[[nonconscious zannichellia]]
+[[ungroomed french spinach]]
+[[assonant eyre]]
+[[magical common foxglove]]
+[[colourless phloem]]
+[[ionian pinctada]]
+[[backlink load test]]

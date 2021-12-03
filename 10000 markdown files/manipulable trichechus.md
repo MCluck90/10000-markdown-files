@@ -91,6 +91,7 @@ Mine is blown out Silence.
 
 ## Wikilinks load test
 
-[[ebony peke]]
-[[numeral crew neckline]]
-[[infrasonic sophora tetraptera]]
+[[hardhearted erythroxylon]]
+[[ill-mannered curtain raiser]]
+[[non-profit-making brazilian potato tree]]
+[[backlink load test]]

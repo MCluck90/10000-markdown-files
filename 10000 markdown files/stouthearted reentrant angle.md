@@ -88,5 +88,8 @@ Suddenly she shook both bowed
 
 ## Wikilinks load test
 
-[[vapourisable bump]]
-[[excess mortise]]
+[[testicular lever]]
+[[embossed teetotum]]
+[[epenthetic lobscuse]]
+[[checked resting potential]]
+[[backlink load test]]

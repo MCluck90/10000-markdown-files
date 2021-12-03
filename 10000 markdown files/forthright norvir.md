@@ -83,5 +83,9 @@ Boots and days wrong.
 
 ## Wikilinks load test
 
-[[unelaborated versicle]]
-[[flagging airmail letter]]
+[[wolfish enterolith]]
+[[dissatisfied phoneme]]
+[[unsent locust bean]]
+[[statant genus oryzopsis]]
+[[intestinal regeneration]]
+[[backlink load test]]

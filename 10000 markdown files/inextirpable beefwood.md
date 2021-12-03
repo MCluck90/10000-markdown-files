@@ -86,7 +86,5 @@ However he handed back
 
 ## Wikilinks load test
 
-[[edified sniper]]
-[[unicuspid rockingham podocarp]]
-[[closed-ring calcite]]
-[[ceric childs body]]
+[[undependable microbiology]]
+[[backlink load test]]

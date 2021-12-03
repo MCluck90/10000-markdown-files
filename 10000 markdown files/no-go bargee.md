@@ -74,5 +74,5 @@ thump.
 
 ## Wikilinks load test
 
-[[tartaric elastomer]]
-[[crannied edward young]]
+[[upstart magic bullet]]
+[[backlink load test]]

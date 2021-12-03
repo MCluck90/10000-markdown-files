@@ -86,7 +86,9 @@ ALL RETURNED FROM HIM.
 
 ## Wikilinks load test
 
-[[herbal xanthophyl]]
-[[drooping oakleaf goosefoot]]
-[[algolagnic geological time]]
-[[angiomatous hog]]
+[[lyric muskhogean]]
+[[cortico-hypothalamic giant clam]]
+[[hibernal twentieth]]
+[[motorized walter lippmann]]
+[[thick-billed tetanus]]
+[[backlink load test]]

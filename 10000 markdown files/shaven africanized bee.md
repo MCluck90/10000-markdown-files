@@ -88,7 +88,7 @@ Beautiful Soup.
 
 ## Wikilinks load test
 
-[[leftist grevillea banksii]]
-[[enlightening henrik johan ibsen]]
-[[cypriot caudate]]
-[[holistic inkwell]]
+[[crannied edward young]]
+[[paddle-shaped aphesis]]
+[[unimpassioned champion lode]]
+[[backlink load test]]

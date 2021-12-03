@@ -75,5 +75,9 @@ How are THESE.
 
 ## Wikilinks load test
 
-[[pyrectic dianthus plumarius]]
-[[impeded kwakiutl]]
+[[leafy aristolochiaceae]]
+[[slangy bottlenose dolphin]]
+[[testaceous safety zone]]
+[[formidable puebla]]
+[[neuromatous inachis io]]
+[[backlink load test]]

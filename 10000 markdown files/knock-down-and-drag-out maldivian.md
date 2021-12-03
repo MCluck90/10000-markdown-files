@@ -88,7 +88,5 @@ Let's go no more till
 
 ## Wikilinks load test
 
-[[bearish fullback]]
-[[bituminous flammulina]]
-[[roaring giorgio de chirico]]
-[[relaxant megapodiidae]]
+[[knee-length foam rubber]]
+[[backlink load test]]

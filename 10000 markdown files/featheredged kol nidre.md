@@ -84,8 +84,9 @@ Right as solemn as
 
 ## Wikilinks load test
 
-[[unacquainted with jam session]]
-[[charcoal defense logistics agency]]
-[[acoustical salk]]
-[[spherical sisyrinchium]]
-[[blood-related yips]]
+[[semimonthly hounds-tongue]]
+[[uninominal suit]]
+[[semicentennial antimycotic agent]]
+[[calendric water locust]]
+[[chelate tiziano vecellio]]
+[[backlink load test]]

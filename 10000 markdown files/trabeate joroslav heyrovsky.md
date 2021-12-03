@@ -90,5 +90,9 @@ Let's go through all dripping
 
 ## Wikilinks load test
 
-[[perfunctory carassius]]
-[[headlong cobitidae]]
+[[peppy rescue operation]]
+[[mortified japanese angelica tree]]
+[[neighbourly pericles]]
+[[south-polar meleagrididae]]
+[[regimented cheval glass]]
+[[backlink load test]]

@@ -90,5 +90,6 @@ RABBIT engraved upon Bill was
 
 ## Wikilinks load test
 
-[[true foundry]]
-[[ineffable typing]]
+[[reasoning friesian]]
+[[illuminating irish strawberry]]
+[[backlink load test]]

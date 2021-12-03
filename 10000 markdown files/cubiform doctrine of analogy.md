@@ -92,4 +92,7 @@ Come it's sure I NEVER get
 
 ## Wikilinks load test
 
-[[worked up errand boy]]
+[[ridiculous john bach mcmaster]]
+[[bioluminescent wildebeest]]
+[[pleasing redbrush]]
+[[backlink load test]]

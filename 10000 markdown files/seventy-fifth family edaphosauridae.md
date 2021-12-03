@@ -93,5 +93,6 @@ Hand it more calmly though.
 
 ## Wikilinks load test
 
-[[falsetto nautical mile]]
-[[ferine phi coefficient]]
+[[babelike red giant star]]
+[[indian standardiser]]
+[[backlink load test]]

@@ -88,7 +88,5 @@ later.
 
 ## Wikilinks load test
 
-[[ophthalmic arterial pressure]]
-[[argent drive-by killing]]
-[[unforeseeable acentric chromosome]]
-[[romanist crossbreeding]]
+[[anechoic globularness]]
+[[backlink load test]]

@@ -85,8 +85,7 @@ That'll be grand words out
 
 ## Wikilinks load test
 
-[[headlong steamed pudding]]
-[[ferial loather]]
-[[crenulated consonantal system]]
-[[pennate inductor]]
-[[cytopathogenic serge]]
+[[lancelike scalene triangle]]
+[[organicistic interspersion]]
+[[definite tupelo family]]
+[[backlink load test]]

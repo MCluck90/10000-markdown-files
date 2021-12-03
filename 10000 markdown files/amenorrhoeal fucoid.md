@@ -78,8 +78,7 @@ Come that attempt proved it stays
 
 ## Wikilinks load test
 
-[[boring strut]]
-[[dioecian barbados cherry]]
-[[stock-still christopher william bradshaw isherwood]]
-[[chesty hot weather]]
-[[affectional order aspergillales]]
+[[self-established eragrostis tef]]
+[[offbeat yacca]]
+[[certified costochondritis]]
+[[backlink load test]]

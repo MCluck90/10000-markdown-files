@@ -91,4 +91,7 @@ Stand up at OURS
 
 ## Wikilinks load test
 
-[[downward googly]]
+[[ring-shaped petroleum]]
+[[hulking gladness]]
+[[anechoic dr. seuss]]
+[[backlink load test]]

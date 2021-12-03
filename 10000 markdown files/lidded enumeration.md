@@ -86,6 +86,8 @@ Herald read as loud as
 
 ## Wikilinks load test
 
-[[unbound small person]]
-[[bimestrial teutoburger wald]]
-[[clapped out pectoralis]]
+[[schematic vincenzo bellini]]
+[[pastel lobelia dortmanna]]
+[[snake-haired aldehyde]]
+[[competitive genus steatornis]]
+[[backlink load test]]

@@ -84,5 +84,6 @@ Stuff and turning into the
 
 ## Wikilinks load test
 
-[[snake-haired arenaceous rock]]
-[[sneak alcoholic beverage]]
+[[volute gag order]]
+[[hazardous klutz]]
+[[backlink load test]]

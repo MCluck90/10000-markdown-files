@@ -89,5 +89,9 @@ All on three to grin.
 
 ## Wikilinks load test
 
-[[tetragonal easy street]]
-[[lucky art nouveau]]
+[[populated fourth part]]
+[[branchless washbowl]]
+[[colloquial genus botrychium]]
+[[ingratiatory genus aneides]]
+[[unsurpassed blue wall of silence]]
+[[backlink load test]]

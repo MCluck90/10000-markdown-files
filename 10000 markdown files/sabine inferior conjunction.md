@@ -80,7 +80,8 @@ thump.
 
 ## Wikilinks load test
 
-[[pursued scincid lizard]]
-[[unequalled pinhole]]
-[[do-it-yourself merlangus]]
-[[motherless bubble and squeak]]
+[[attritional gradable opposition]]
+[[funny visual range]]
+[[paddle-shaped aphesis]]
+[[olive-colored seal of approval]]
+[[backlink load test]]

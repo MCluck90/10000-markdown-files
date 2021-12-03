@@ -77,8 +77,8 @@ On which you hate cats nasty
 
 ## Wikilinks load test
 
-[[salubrious summary judgment]]
-[[full-bosomed genus elodea]]
-[[milky sailing master]]
-[[guarded strip cropping]]
-[[neo-lamarckian collection plate]]
+[[myelic potassium iodide]]
+[[strident annwn]]
+[[shockable sturt pea]]
+[[unpainted star-nosed mole]]
+[[backlink load test]]

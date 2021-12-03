@@ -85,8 +85,6 @@ Did you turned the
 
 ## Wikilinks load test
 
-[[dim-sighted guerilla]]
-[[shakespearian yellow jasmine]]
-[[sceptred password]]
-[[last-minute antihistamine]]
-[[galled fred hoyle]]
+[[magenta pink paderewski]]
+[[crapulent life imprisonment]]
+[[backlink load test]]

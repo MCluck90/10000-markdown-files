@@ -81,5 +81,5 @@ ever getting extremely small
 
 ## Wikilinks load test
 
-[[choky blueweed]]
-[[arboraceous snap roll]]
+[[galactic damsel]]
+[[backlink load test]]

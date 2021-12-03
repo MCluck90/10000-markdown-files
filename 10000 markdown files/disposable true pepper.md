@@ -79,5 +79,8 @@ they both sat silent.
 
 ## Wikilinks load test
 
-[[flowing mansard]]
-[[shopsoiled ticket booth]]
+[[indian standardiser]]
+[[scattershot tracheobronchitis]]
+[[bimestrial ranunculus flammula]]
+[[statistical blackfoot]]
+[[backlink load test]]

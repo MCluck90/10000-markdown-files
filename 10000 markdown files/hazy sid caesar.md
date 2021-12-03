@@ -89,6 +89,6 @@ wow.
 
 ## Wikilinks load test
 
-[[chinked blue fox]]
-[[topless john wickliffe]]
-[[double-bedded delectation]]
+[[buggy staple fibre]]
+[[multivalent gavel]]
+[[backlink load test]]

@@ -90,8 +90,5 @@ Half-past one place for this
 
 ## Wikilinks load test
 
-[[cathodic five-finger]]
-[[augean tourniquet]]
-[[carroty milking stool]]
-[[amnionic jelly egg]]
-[[sociable asterid dicot family]]
+[[iodinated dog]]
+[[backlink load test]]

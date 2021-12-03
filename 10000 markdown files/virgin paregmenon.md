@@ -87,8 +87,8 @@ sighed the spot.
 
 ## Wikilinks load test
 
-[[cheap white beech]]
-[[homonymic acedia]]
-[[naturalistic montia perfoliata]]
-[[waxed deeds]]
-[[permanent ancestor]]
+[[inappropriate anemone riparia]]
+[[singsong serviceability]]
+[[feisty luminosity]]
+[[calycular smoke alarm]]
+[[backlink load test]]

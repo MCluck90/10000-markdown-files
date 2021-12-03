@@ -92,7 +92,7 @@ shouted in their wits.
 
 ## Wikilinks load test
 
-[[usufructuary genus juniperus]]
-[[professed martes martes]]
-[[tref rockchuck]]
-[[adequate to helen]]
+[[semiparasitic locus classicus]]
+[[complaintive carvedilol]]
+[[cross-eyed sponge morel]]
+[[backlink load test]]

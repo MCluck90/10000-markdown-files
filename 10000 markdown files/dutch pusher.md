@@ -81,7 +81,8 @@ either if you've been examining
 
 ## Wikilinks load test
 
-[[outraged penstemon linarioides]]
-[[bicolour absentee rate]]
-[[blotted out abstract entity]]
-[[coarse-textured leontocebus rosalia]]
+[[sinistral inciter]]
+[[formalised popper]]
+[[myelic potassium iodide]]
+[[splotched bond paper]]
+[[backlink load test]]

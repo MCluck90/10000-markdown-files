@@ -87,4 +87,6 @@ After a doze but
 
 ## Wikilinks load test
 
-[[aortal mourning cloak butterfly]]
+[[bacciferous heterocercal fin]]
+[[abstracted swallow-tailed hawk]]
+[[backlink load test]]

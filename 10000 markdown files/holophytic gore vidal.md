@@ -82,4 +82,8 @@ There's a jar for instance suppose
 
 ## Wikilinks load test
 
-[[decipherable amenhotep iv]]
+[[diclinous extraordinariness]]
+[[lobeliaceous saguaro]]
+[[uncomprehended gastroepiploic vein]]
+[[huffish tragelaphus imberbis]]
+[[backlink load test]]

@@ -83,6 +83,6 @@ down without knocking said Five.
 
 ## Wikilinks load test
 
-[[funny exerciser]]
-[[stopped up lymphocyte]]
-[[aspheric nincompoop]]
+[[insolvable propenoate]]
+[[secretarial vasodilative]]
+[[backlink load test]]

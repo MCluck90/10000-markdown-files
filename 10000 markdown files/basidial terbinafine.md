@@ -78,8 +78,7 @@ Half-past one who ran
 
 ## Wikilinks load test
 
-[[hired tibialis anterior]]
-[[pagan sensory receptor]]
-[[ill-conceived mesocarp]]
-[[downright stapling machine]]
-[[peaceable family triakidae]]
+[[verifiable deficiency disease]]
+[[admirable self-organisation]]
+[[three-fold zollinger-ellison syndrome]]
+[[backlink load test]]

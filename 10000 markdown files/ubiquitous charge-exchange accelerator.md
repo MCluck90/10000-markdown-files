@@ -87,8 +87,8 @@ Tut tut child again no denial
 
 ## Wikilinks load test
 
-[[refutable hyperacusia]]
-[[self-seeking graminales]]
-[[color burke]]
-[[splendiferous vinification]]
-[[chlorophyllous venter]]
+[[uninitiate hurt]]
+[[abomasal tribology]]
+[[amative commercial credit]]
+[[intercalary president reagan]]
+[[backlink load test]]

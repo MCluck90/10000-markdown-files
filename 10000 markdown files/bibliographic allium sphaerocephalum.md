@@ -80,6 +80,7 @@ Does YOUR temper and
 
 ## Wikilinks load test
 
-[[must ostariophysi]]
-[[seljuk glossopharyngeal nerve]]
-[[arbitrative bomarea edulis]]
+[[bleached dray horse]]
+[[paramagnetic aertex]]
+[[antenatal ethnic slur]]
+[[backlink load test]]

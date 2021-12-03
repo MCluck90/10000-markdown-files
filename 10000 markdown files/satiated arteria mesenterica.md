@@ -79,6 +79,7 @@ Ahem.
 
 ## Wikilinks load test
 
-[[acoustical salk]]
-[[semiconscious direct quotation]]
-[[contented control]]
+[[standpat procurement]]
+[[unbranching jacobite]]
+[[oppressive digitaria]]
+[[backlink load test]]

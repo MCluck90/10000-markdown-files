@@ -82,7 +82,7 @@ ARE OLD FATHER WILLIAM said
 
 ## Wikilinks load test
 
-[[self-established eragrostis tef]]
-[[obstructive skydiver]]
-[[snuggled common amsinckia]]
-[[twin quadrangular prism]]
+[[foremost hour]]
+[[autochthonal needle blight]]
+[[self-important scarlet musk flower]]
+[[backlink load test]]

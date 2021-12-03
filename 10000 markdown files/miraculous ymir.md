@@ -87,6 +87,6 @@ she opened the Rabbit's
 
 ## Wikilinks load test
 
-[[biographical omelette pan]]
-[[propaedeutic interferometer]]
-[[proustian judgement of dismissal]]
+[[high-grade globicephala]]
+[[anthropomorphous belgian sheepdog]]
+[[backlink load test]]

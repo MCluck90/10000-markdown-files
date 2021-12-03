@@ -83,6 +83,6 @@ roared the teacups would
 
 ## Wikilinks load test
 
-[[cathodic learners dictionary]]
-[[rested relinquishing]]
-[[fifty-five land mine]]
+[[detested myrobalan]]
+[[sneak alcoholic beverage]]
+[[backlink load test]]

@@ -80,6 +80,9 @@ Therefore I'm somebody else's hand with
 
 ## Wikilinks load test
 
-[[sublimated fishing net]]
-[[procurable cotton rush]]
-[[rosy-purple tennis pro]]
+[[bicorned 1830s]]
+[[sentient straw man]]
+[[interplanetary virginia waterleaf]]
+[[pessimal taboo]]
+[[itinerant latchkey child]]
+[[backlink load test]]

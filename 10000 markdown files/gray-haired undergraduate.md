@@ -82,7 +82,9 @@ Would the queerest thing as prizes.
 
 ## Wikilinks load test
 
-[[corticifugal eucalyptus rostrata]]
-[[aflame tropopause]]
-[[egg-producing clucking]]
-[[diagnostic romantic realism]]
+[[ceremonial genus anabrus]]
+[[unclouded intelligibility]]
+[[unbranching jacobite]]
+[[wild-eyed concoction]]
+[[nanocephalic tietzes syndrome]]
+[[backlink load test]]

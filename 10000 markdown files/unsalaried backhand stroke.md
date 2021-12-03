@@ -89,6 +89,5 @@ These were indeed Tis
 
 ## Wikilinks load test
 
-[[cruciate bootlicker]]
-[[licit y chromosome]]
-[[thalassic dimension]]
+[[semidetached misrepresentation]]
+[[backlink load test]]

@@ -87,8 +87,9 @@ Will you mean it
 
 ## Wikilinks load test
 
-[[anechoic globularness]]
-[[overcurious anesthetist]]
-[[pawky red dogwood]]
-[[triploid augean stables]]
-[[unilluminated first duke of wellington]]
+[[sensationalistic shrimp-fish]]
+[[pinkish-orange barrack]]
+[[actinic inhalator]]
+[[lean sable]]
+[[re-entrant chimonanthus praecox]]
+[[backlink load test]]

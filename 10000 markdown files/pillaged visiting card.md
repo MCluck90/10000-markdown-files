@@ -85,5 +85,8 @@ Only a sorrowful tone don't take
 
 ## Wikilinks load test
 
-[[fledgling horus]]
-[[declassified trap-and-drain auger]]
+[[audio-lingual atomic mass unit]]
+[[garbed frequency-response characteristic]]
+[[assumptive binary digit]]
+[[chatty smoking compartment]]
+[[backlink load test]]

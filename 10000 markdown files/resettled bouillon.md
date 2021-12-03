@@ -89,8 +89,5 @@ muttered the frightened by talking.
 
 ## Wikilinks load test
 
-[[noninstitutionalised genus salicornia]]
-[[aflutter hiking]]
-[[variable chlamys]]
-[[non-living formal garden]]
-[[spiffed up hungarian]]
+[[logistic pelycosaur]]
+[[backlink load test]]

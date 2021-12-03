@@ -88,4 +88,5 @@ you my right so as quickly
 
 ## Wikilinks load test
 
-[[fisheye prima donna]]
+[[indigo five-finger]]
+[[backlink load test]]

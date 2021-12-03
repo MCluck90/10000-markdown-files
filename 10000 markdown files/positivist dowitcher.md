@@ -82,8 +82,5 @@ Fetch me very likely
 
 ## Wikilinks load test
 
-[[stipendiary klan]]
-[[slow-moving seismogram]]
-[[toneless felt fungus]]
-[[tapered greenling]]
-[[flexile joseph pulitzer]]
+[[discorporate peromyscus gossypinus]]
+[[backlink load test]]

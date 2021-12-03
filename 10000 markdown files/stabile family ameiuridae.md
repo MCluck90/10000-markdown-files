@@ -92,7 +92,5 @@ Then followed a rush at
 
 ## Wikilinks load test
 
-[[ambassadorial gazillion]]
-[[addicted nylghai]]
-[[millenary pleura]]
-[[ameban family arcidae]]
+[[favourite pancytopenia]]
+[[backlink load test]]

@@ -89,8 +89,8 @@ You've no sorrow you
 
 ## Wikilinks load test
 
-[[inertial hot potato]]
-[[groomed edition]]
-[[sublimated fishing net]]
-[[anticholinergic farandole]]
-[[snakelike lean-to tent]]
+[[wise boswellia carteri]]
+[[six nephrosis]]
+[[sinewy naturalization]]
+[[ineluctable szilard]]
+[[backlink load test]]

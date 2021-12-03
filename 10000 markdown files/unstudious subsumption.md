@@ -89,8 +89,6 @@ For some attempts at
 
 ## Wikilinks load test
 
-[[nonadjacent sempatch]]
-[[piratical platt national park]]
-[[gigantic laurel]]
-[[wriggling genus ostryopsis]]
-[[unsymbolic eugenia]]
+[[numidian hatred]]
+[[metabolous illyrian]]
+[[backlink load test]]

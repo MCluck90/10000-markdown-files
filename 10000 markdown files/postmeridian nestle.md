@@ -78,7 +78,9 @@ wow.
 
 ## Wikilinks load test
 
-[[tongan bitter cress]]
-[[discretional turnoff]]
-[[unforgiving urease]]
-[[dendriform hairline fracture]]
+[[homoecious topical anaesthetic]]
+[[bahamian wyeth]]
+[[manipulable golf-club head]]
+[[wearisome demolishing]]
+[[integrative castilleia]]
+[[backlink load test]]

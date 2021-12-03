@@ -84,8 +84,6 @@ Really now Don't choke him two
 
 ## Wikilinks load test
 
-[[cosmogonical teleologist]]
-[[many genus aplodontia]]
-[[year-around new york aster]]
-[[blackened communicativeness]]
-[[splotched homophobia]]
+[[quick-frozen buck]]
+[[disappointed battle of crecy]]
+[[backlink load test]]

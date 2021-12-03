@@ -82,5 +82,5 @@ Now you turned away without noticing
 
 ## Wikilinks load test
 
-[[gynaecological ptyas]]
-[[sophomore smoke bomb]]
+[[geodesical compline]]
+[[backlink load test]]

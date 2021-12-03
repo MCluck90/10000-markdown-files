@@ -82,5 +82,5 @@ Run home.
 
 ## Wikilinks load test
 
-[[antitypical speed of light]]
-[[trial-and-error sachem]]
+[[endozoan ravenousness]]
+[[backlink load test]]

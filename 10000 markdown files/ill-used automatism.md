@@ -87,8 +87,9 @@ Sing her still in couples
 
 ## Wikilinks load test
 
-[[mediaeval carditis]]
-[[downward googly]]
-[[conscience-smitten genus procyon]]
-[[confutable waffle]]
-[[bloody speedwell]]
+[[intense genus solandra]]
+[[cxx hairsplitter]]
+[[excess mortise]]
+[[unhumorous technology administration]]
+[[grassless mail call]]
+[[backlink load test]]

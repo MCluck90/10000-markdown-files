@@ -79,7 +79,8 @@ Repeat YOU manage better.
 
 ## Wikilinks load test
 
-[[error-prone platyrrhinian]]
-[[crimson at]]
-[[triangular muster]]
-[[prototypic nalline]]
+[[reflexive priestess]]
+[[three-pronged driveway]]
+[[trained exploding cucumber]]
+[[grecian genus negaprion]]
+[[backlink load test]]

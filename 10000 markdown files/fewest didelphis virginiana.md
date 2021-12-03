@@ -89,4 +89,8 @@ Right as before.
 
 ## Wikilinks load test
 
-[[life-giving rush candle]]
+[[iodized plaint]]
+[[adust black music]]
+[[copper-bottomed boar]]
+[[milch pyrausta nubilalis]]
+[[backlink load test]]

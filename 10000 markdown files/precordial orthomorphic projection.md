@@ -85,6 +85,6 @@ Back to climb up
 
 ## Wikilinks load test
 
-[[bantu samia]]
-[[snake-haired aldehyde]]
-[[prakritic slave-making ant]]
+[[ungual gossypium]]
+[[indefensible staysail]]
+[[backlink load test]]

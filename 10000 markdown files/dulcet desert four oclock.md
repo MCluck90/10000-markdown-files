@@ -79,4 +79,8 @@ Come I'll eat bats I shan't.
 
 ## Wikilinks load test
 
-[[icelandic inside]]
+[[spearhead-shaped blok]]
+[[accretionary pansy]]
+[[finable pholistoma]]
+[[furrowed telegraph key]]
+[[backlink load test]]

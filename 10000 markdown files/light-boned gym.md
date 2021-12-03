@@ -90,6 +90,6 @@ on such sudden change
 
 ## Wikilinks load test
 
-[[self-sealing hamburger steak]]
-[[neuroanatomical erudition]]
-[[north animatronics]]
+[[unpopulated foster home]]
+[[clubby magnesium carbonate]]
+[[backlink load test]]

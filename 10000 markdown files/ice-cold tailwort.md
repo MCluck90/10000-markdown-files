@@ -80,6 +80,9 @@ I'M not much use without
 
 ## Wikilinks load test
 
-[[lateen-rigged dress hat]]
-[[cairned sea]]
-[[diaphanous bristletail]]
+[[moravian labor coach]]
+[[parisian softness]]
+[[yellowed lord high chancellor]]
+[[arrhythmic antique]]
+[[billiard sir alexander mackenzie]]
+[[backlink load test]]

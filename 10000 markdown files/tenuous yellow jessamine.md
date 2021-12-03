@@ -86,8 +86,7 @@ Tell her to tremble.
 
 ## Wikilinks load test
 
-[[tabular calabura]]
-[[lumpy hooded seal]]
-[[eyes-only fixative]]
-[[side pseudovariola]]
-[[nightly letter of intent]]
+[[concrete lepiota naucina]]
+[[fuzzy crocodile river]]
+[[unfretted ligustrum japonicum]]
+[[backlink load test]]

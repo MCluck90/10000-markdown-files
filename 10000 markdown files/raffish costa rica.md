@@ -77,7 +77,8 @@ Repeat YOU like a head
 
 ## Wikilinks load test
 
-[[cosmogonical sou-west]]
-[[elating newspaperman]]
-[[satisfying recoil]]
-[[bedaubed webbing]]
+[[unrepaired babar]]
+[[caramel glissando]]
+[[pessimum crude]]
+[[anapestic pusillanimity]]
+[[backlink load test]]

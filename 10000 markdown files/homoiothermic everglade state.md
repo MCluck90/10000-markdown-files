@@ -76,8 +76,6 @@ No there they were animals with
 
 ## Wikilinks load test
 
-[[royal entrance money]]
-[[majuscule spreadhead]]
-[[harsh-voiced bell foundry]]
-[[proximate capital of taiwan]]
-[[scummy pornography]]
+[[sentient straw man]]
+[[out-of-town roosevelt]]
+[[backlink load test]]

@@ -89,7 +89,7 @@ Fifteenth said I'm never
 
 ## Wikilinks load test
 
-[[equine frenzy]]
-[[tzarist otho of lagery]]
-[[lacerate triangulation]]
-[[hilar laotian]]
+[[helical arilus cristatus]]
+[[epidermic red-necked grebe]]
+[[vacillating anode]]
+[[backlink load test]]

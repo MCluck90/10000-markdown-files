@@ -88,8 +88,7 @@ I'M not make personal remarks now
 
 ## Wikilinks load test
 
-[[out-of-pocket spectrophotometer]]
-[[greaseproof housetop]]
-[[calcifugous tuck shop]]
-[[connected james clerk maxwell]]
-[[felonious loony bin]]
+[[punic firewheel tree]]
+[[no-win microcytic anaemia]]
+[[articled hesperiphona vespertina]]
+[[backlink load test]]

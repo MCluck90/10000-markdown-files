@@ -75,7 +75,5 @@ sighed wearily.
 
 ## Wikilinks load test
 
-[[rush tepic]]
-[[deep hcfc]]
-[[lidded enumeration]]
-[[laughing lake leman]]
+[[duplex communist manifesto]]
+[[backlink load test]]

@@ -76,8 +76,6 @@ However I've fallen into that
 
 ## Wikilinks load test
 
-[[monastic superabundance]]
-[[breezy deportee]]
-[[unregulated bellerophon]]
-[[lentissimo department of the federal government]]
-[[sweeping francois maurice marie mitterrand]]
+[[cxv dreck]]
+[[consequent ruskin]]
+[[backlink load test]]

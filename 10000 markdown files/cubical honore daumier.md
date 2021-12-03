@@ -87,8 +87,9 @@ She's under sentence in one corner
 
 ## Wikilinks load test
 
-[[resettled bouillon]]
-[[setaceous allium paradoxum]]
-[[lousy loony bin]]
-[[affectionate steinem]]
-[[erratic butcher shop]]
+[[telocentric thunderhead]]
+[[insensible gelidity]]
+[[pro-choice great smoky mountains]]
+[[siberian tick trefoil]]
+[[chlorophyllous venter]]
+[[backlink load test]]

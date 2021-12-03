@@ -82,5 +82,9 @@ I'd have been wandering when her
 
 ## Wikilinks load test
 
-[[impressive bothrops]]
-[[hardened scrub nurse]]
+[[illuminating salt lick]]
+[[steamy georges clemenceau]]
+[[concrete lepiota naucina]]
+[[anaclitic military censorship]]
+[[nanocephalic tietzes syndrome]]
+[[backlink load test]]

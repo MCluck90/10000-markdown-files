@@ -84,6 +84,8 @@ thump.
 
 ## Wikilinks load test
 
-[[asymptomatic credulousness]]
-[[criminative genus ceratotherium]]
-[[fizzing gpa]]
+[[centralist strawberry haemangioma]]
+[[prepubescent dejection]]
+[[hard-pressed scutigera coleoptrata]]
+[[clincher-built uub]]
+[[backlink load test]]

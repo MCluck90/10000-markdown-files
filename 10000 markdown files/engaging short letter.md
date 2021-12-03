@@ -93,8 +93,8 @@ Imagine her but nevertheless she
 
 ## Wikilinks load test
 
-[[unsoluble colombo]]
-[[bituminous flammulina]]
-[[first-come-first-serve headship]]
-[[tref rockchuck]]
-[[lapsed klinefelter syndrome]]
+[[checked resting potential]]
+[[bimestrial ranunculus flammula]]
+[[apparitional boob tube]]
+[[asexual giant squid]]
+[[backlink load test]]

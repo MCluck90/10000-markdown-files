@@ -80,7 +80,9 @@ But there ought to you
 
 ## Wikilinks load test
 
-[[heritable false teeth]]
-[[localised undersurface]]
-[[frightened mantinea]]
-[[polish mafia]]
+[[tribadistic reserpine]]
+[[icelandic-speaking le douanier rousseau]]
+[[unseasoned felis manul]]
+[[nonalcoholic berg]]
+[[one-seed tricolor tube]]
+[[backlink load test]]

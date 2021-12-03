@@ -76,8 +76,9 @@ Thank you won't you don't
 
 ## Wikilinks load test
 
-[[unfading integration]]
-[[arenaceous genus sagina]]
-[[frightened unoriginality]]
-[[galilean laity]]
-[[hapless x-linked scid]]
+[[supernatural finger-root]]
+[[forgetful streetcar track]]
+[[anglo-jewish alternanthera]]
+[[thickheaded piaget]]
+[[turbinate tulostoma]]
+[[backlink load test]]

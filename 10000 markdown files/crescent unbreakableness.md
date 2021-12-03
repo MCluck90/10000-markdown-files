@@ -82,8 +82,7 @@ Good-bye feet they should I
 
 ## Wikilinks load test
 
-[[barbed standard of living]]
-[[ebony peke]]
-[[heedful genus rhodymenia]]
-[[pre-columbian anders celsius]]
-[[cubical honore daumier]]
+[[colicky auto-changer]]
+[[bared trumpet tree]]
+[[swordlike staffordshire bull terrier]]
+[[backlink load test]]

@@ -82,7 +82,9 @@ Boots and night and yawned
 
 ## Wikilinks load test
 
-[[quondam multiprogramming]]
-[[adaptational hijinks]]
-[[exposed glandular cancer]]
-[[feverish criminal offense]]
+[[certified customs service]]
+[[domesticated fire chief]]
+[[appalled antisocial personality disorder]]
+[[extroversive charless wain]]
+[[portable interventricular foramen]]
+[[backlink load test]]

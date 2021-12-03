@@ -79,8 +79,6 @@ Will you our Dinah I want
 
 ## Wikilinks load test
 
-[[nonadjacent sempatch]]
-[[reassuring crinoidea]]
-[[horn-rimmed lawmaking]]
-[[shelflike chuck short ribs]]
-[[fisheye turban]]
+[[hopeful northern bog lemming]]
+[[criminological abdominal aortic aneurysm]]
+[[backlink load test]]

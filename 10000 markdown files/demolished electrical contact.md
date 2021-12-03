@@ -90,7 +90,5 @@ You should say this way
 
 ## Wikilinks load test
 
-[[pyrogenetic blocker]]
-[[sheeny plasminogen activator]]
-[[diffident capital of serbia and montenegro]]
-[[abyssal moodiness]]
+[[loth greek clover]]
+[[backlink load test]]

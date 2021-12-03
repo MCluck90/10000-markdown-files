@@ -83,8 +83,9 @@ Mine is sure but I'm angry
 
 ## Wikilinks load test
 
-[[spotless naucrates ductor]]
-[[mismated inkpad]]
-[[stereotypic praisworthiness]]
-[[wriggling genus ostryopsis]]
-[[nonplused 4to]]
+[[curly-grained levi-strauss]]
+[[teachable exodontics]]
+[[misplaced genus scomberesox]]
+[[contingent on montserrat]]
+[[unchallenged sumo]]
+[[backlink load test]]

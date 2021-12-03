@@ -84,8 +84,5 @@ Your Majesty the fun now
 
 ## Wikilinks load test
 
-[[systematic libertarian]]
-[[uneatable public lavatory]]
-[[awed limpness]]
-[[cespitose heterotrichales]]
-[[jerky toe dancing]]
+[[augean dance master]]
+[[backlink load test]]

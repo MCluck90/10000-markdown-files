@@ -80,7 +80,8 @@ Stupid things are no wonder
 
 ## Wikilinks load test
 
-[[ferine phi coefficient]]
-[[earliest diatom]]
-[[primaeval korean war]]
-[[bauxitic order coraciiformes]]
+[[pet arcus]]
+[[powdery-blue hard drive]]
+[[well-favoured indigo]]
+[[bibliographic allium sphaerocephalum]]
+[[backlink load test]]

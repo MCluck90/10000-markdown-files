@@ -84,8 +84,8 @@ or of cucumber-frames there may be
 
 ## Wikilinks load test
 
-[[comburant common reed]]
-[[tiered beldame]]
-[[slangy bottlenose dolphin]]
-[[araceous phylogeny]]
-[[forty-eighth gastritis]]
+[[padded botanical medicine]]
+[[inanimate ceiba pentandra]]
+[[desired wet-nurse]]
+[[cross-eyed esophagus]]
+[[backlink load test]]

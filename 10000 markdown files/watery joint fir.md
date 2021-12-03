@@ -86,6 +86,8 @@ Turn that this before.
 
 ## Wikilinks load test
 
-[[elegiac cobitidae]]
-[[awl-shaped psycholinguist]]
-[[aflare closing curtain]]
+[[tegular intracranial cavity]]
+[[calcitic superior rectus muscle]]
+[[pitiable cicatrix]]
+[[infirm genus lycopersicum]]
+[[backlink load test]]

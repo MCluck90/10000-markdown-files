@@ -89,5 +89,5 @@ What's your acceptance of time
 
 ## Wikilinks load test
 
-[[twin quadrangular prism]]
-[[cytoplasmatic plum tomato]]
+[[misty chronological sequence]]
+[[backlink load test]]

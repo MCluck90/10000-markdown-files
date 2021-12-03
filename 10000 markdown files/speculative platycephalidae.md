@@ -88,7 +88,6 @@ _I_ shan't go anywhere
 
 ## Wikilinks load test
 
-[[equiangular genus chateura]]
-[[boric pulassan]]
-[[playable blastosphere]]
-[[dissipated goldfish]]
+[[inexplicable home plate]]
+[[hallucinatory genus halogeton]]
+[[backlink load test]]

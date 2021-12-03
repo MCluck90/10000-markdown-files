@@ -93,7 +93,9 @@ Digging for eggs as curious thing
 
 ## Wikilinks load test
 
-[[counterbalanced ev]]
-[[inframaxillary scomberomorus cavalla]]
-[[rapt focal length]]
-[[diaphanous nycticebus]]
+[[projecting detonating device]]
+[[smoked genus lonicera]]
+[[leisurely face cloth]]
+[[fatless coffee shop]]
+[[calcitic superior rectus muscle]]
+[[backlink load test]]

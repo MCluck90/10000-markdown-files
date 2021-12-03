@@ -86,5 +86,5 @@ Call the nearer Alice feeling.
 
 ## Wikilinks load test
 
-[[crowning say hey kid]]
-[[brachycephalic order cetacea]]
+[[overshot roping]]
+[[backlink load test]]

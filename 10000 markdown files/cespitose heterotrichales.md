@@ -90,8 +90,5 @@ he fumbled over at
 
 ## Wikilinks load test
 
-[[statistical genus lycopodium]]
-[[larboard go-cart]]
-[[amygdaloid gill]]
-[[arabian waddler]]
-[[color burke]]
+[[disposed mishegaas]]
+[[backlink load test]]

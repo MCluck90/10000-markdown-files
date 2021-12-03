@@ -84,4 +84,8 @@ What's in books and
 
 ## Wikilinks load test
 
-[[unmitigable physalis peruviana]]
+[[prismatic amnesiac]]
+[[fulgent patagonia]]
+[[disjoint cynipid gall wasp]]
+[[lancelike scalene triangle]]
+[[backlink load test]]

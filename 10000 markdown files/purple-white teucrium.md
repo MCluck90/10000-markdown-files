@@ -83,8 +83,8 @@ They couldn't answer to touch
 
 ## Wikilinks load test
 
-[[al dente downside]]
-[[minoan amphioxus]]
-[[unliveable granadillo]]
-[[homonymous miso]]
-[[debased illogicality]]
+[[gilded defamation]]
+[[data-based dude ranch]]
+[[po-faced origanum vulgare]]
+[[perceivable bunkmate]]
+[[backlink load test]]

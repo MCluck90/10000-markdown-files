@@ -82,6 +82,8 @@ Alas.
 
 ## Wikilinks load test
 
-[[turbaned elymus hispidus]]
-[[small-cap petitio]]
-[[arrow-shaped family labiatae]]
+[[tref defiance]]
+[[unsurpassed blue wall of silence]]
+[[icterogenic disconcertion]]
+[[synesthetic summer camp]]
+[[backlink load test]]

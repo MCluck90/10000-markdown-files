@@ -88,7 +88,9 @@ Begin at the dream
 
 ## Wikilinks load test
 
-[[classy bulgur pilaf]]
-[[lentissimo bise]]
-[[shiny wu dialect]]
-[[moody astrodome]]
+[[unlamented huguenot]]
+[[monochrome connoisseurship]]
+[[rabbinic lead tetraethyl]]
+[[waxed deeds]]
+[[tacit cryptanalysis]]
+[[backlink load test]]

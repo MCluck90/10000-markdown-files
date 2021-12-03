@@ -82,6 +82,5 @@ Wake up into one
 
 ## Wikilinks load test
 
-[[profligate renegade state]]
-[[touching classical ballet]]
-[[dopy fructidor]]
+[[buttoned-up press gallery]]
+[[backlink load test]]

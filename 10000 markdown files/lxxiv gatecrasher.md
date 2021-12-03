@@ -87,5 +87,6 @@ Suppose it asked it
 
 ## Wikilinks load test
 
-[[glaciated corvine bird]]
-[[spindly laotian capital]]
+[[super thyme]]
+[[bratty congridae]]
+[[backlink load test]]

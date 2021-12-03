@@ -79,8 +79,5 @@ Always lay the mallets
 
 ## Wikilinks load test
 
-[[preliterate currency]]
-[[wobbling shawn]]
-[[alphabetised genus strepsiceros]]
-[[mind-expanding mydriatic]]
-[[blasting towing rope]]
+[[childish gummed label]]
+[[backlink load test]]

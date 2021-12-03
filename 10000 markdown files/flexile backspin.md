@@ -88,6 +88,5 @@ _I_ shan't grow smaller and sighing
 
 ## Wikilinks load test
 
-[[brownish-grey legislator]]
-[[boisterous gardenia augusta]]
-[[disconcerting lining]]
+[[all-devouring magnetomotive force]]
+[[backlink load test]]

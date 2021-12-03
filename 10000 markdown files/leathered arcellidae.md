@@ -87,8 +87,7 @@ Ten hours I really offended you
 
 ## Wikilinks load test
 
-[[pet arcus]]
-[[checked resting potential]]
-[[braggart practician]]
-[[self-important scarlet musk flower]]
-[[take-away manawyddan]]
+[[garbed frequency-response characteristic]]
+[[recursive israel strassberg]]
+[[monastic rondeau]]
+[[backlink load test]]

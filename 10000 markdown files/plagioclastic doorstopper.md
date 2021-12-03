@@ -87,7 +87,8 @@ My dear she made her hedgehog
 
 ## Wikilinks load test
 
-[[sunless tracer bullet]]
-[[urn-shaped cabbage butterfly]]
-[[autobiographical crankcase]]
-[[last-minute strayer]]
+[[suffocating redstem storksbill]]
+[[all-time spore case]]
+[[unstrung presidential term]]
+[[house-trained fancy-dress ball]]
+[[backlink load test]]

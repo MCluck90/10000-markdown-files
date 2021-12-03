@@ -83,4 +83,9 @@ Silence all the snail.
 
 ## Wikilinks load test
 
-[[linear hitler]]
+[[pedagogical jauntiness]]
+[[erythematous alton glenn miller]]
+[[overambitious liparis loeselii]]
+[[calceiform genus lycopodium]]
+[[forlorn family morchellaceae]]
+[[backlink load test]]

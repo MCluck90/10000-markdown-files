@@ -89,6 +89,7 @@ These were mine before
 
 ## Wikilinks load test
 
-[[bimotored indian chocolate]]
-[[marbled software engineer]]
-[[able euphorbia litchi]]
+[[amygdaliform freeway]]
+[[cambial muffle]]
+[[lxviii lateral rectus]]
+[[backlink load test]]

@@ -89,7 +89,5 @@ Pat.
 
 ## Wikilinks load test
 
-[[lite genus napaea]]
-[[inoffensive piper nigrum]]
-[[tawdry camorra]]
-[[middle-aged jakob boehm]]
+[[hawaiian falcon]]
+[[backlink load test]]

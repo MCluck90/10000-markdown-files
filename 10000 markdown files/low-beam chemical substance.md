@@ -93,6 +93,9 @@ Pat.
 
 ## Wikilinks load test
 
-[[embossed teetotum]]
-[[nonplused 4to]]
-[[covetous blue sky]]
+[[homeward fusillade]]
+[[overflowing acrylic]]
+[[tended to louis iii]]
+[[goaded command language]]
+[[bespectacled genus chamaeleo]]
+[[backlink load test]]

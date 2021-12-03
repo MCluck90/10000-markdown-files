@@ -81,6 +81,8 @@ She'll get them when you
 
 ## Wikilinks load test
 
-[[unthoughtful claxon]]
-[[dolourous crotalaria]]
-[[greedy cotoneaster]]
+[[brownish heart cherry]]
+[[recondite haemoproteus]]
+[[norwegian alertness]]
+[[then bush tit]]
+[[backlink load test]]

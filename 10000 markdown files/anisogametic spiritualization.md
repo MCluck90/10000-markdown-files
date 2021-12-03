@@ -82,7 +82,9 @@ for the sun and how I
 
 ## Wikilinks load test
 
-[[slovenian milk float]]
-[[bedaubed webbing]]
-[[arcadian feldspar]]
-[[entomological mcluhan]]
+[[error-prone platyrrhinian]]
+[[honourable sauce vinaigrette]]
+[[rash nervous prostration]]
+[[catechetical haliotidae]]
+[[outraged penstemon linarioides]]
+[[backlink load test]]

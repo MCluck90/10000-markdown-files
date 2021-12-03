@@ -87,6 +87,9 @@ quite absurd but out-of the-way things
 
 ## Wikilinks load test
 
-[[denary garrison]]
-[[new-made dried fruit]]
-[[peeled order umbellales]]
+[[cairned vestryman]]
+[[sugarless absolute threshold]]
+[[frostian x]]
+[[inordinate towing rope]]
+[[quick actias luna]]
+[[backlink load test]]

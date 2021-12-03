@@ -89,7 +89,6 @@ Wow.
 
 ## Wikilinks load test
 
-[[unarbitrary humulus]]
-[[collagenic little bighorn river]]
-[[attacking hackelia]]
-[[glamorous fissure of sylvius]]
+[[time-honoured julius marx]]
+[[striate lepidopterist]]
+[[backlink load test]]

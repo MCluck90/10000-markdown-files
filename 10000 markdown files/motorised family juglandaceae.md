@@ -93,5 +93,9 @@ Once upon an eel
 
 ## Wikilinks load test
 
-[[pharmacological candied apple]]
-[[bald-headed wanted notice]]
+[[maritime icetray]]
+[[destructible saint augustine]]
+[[judgmental new years day]]
+[[chicken-breasted pinus edulis]]
+[[etched levanter]]
+[[backlink load test]]

@@ -88,8 +88,6 @@ Besides SHE'S she let me
 
 ## Wikilinks load test
 
-[[familial repartee]]
-[[pyrogenetic blocker]]
-[[comparable order podicipediformes]]
-[[hydrodynamic alnico]]
-[[one-sided fiddlestick]]
+[[discontinuous swap]]
+[[suspect bpm]]
+[[backlink load test]]

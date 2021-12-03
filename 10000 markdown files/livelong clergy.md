@@ -89,5 +89,5 @@ Alice's shoulder as its head
 
 ## Wikilinks load test
 
-[[heat-absorbing palometa simillima]]
-[[uninebriated anthropocentricity]]
+[[uncertain germicide]]
+[[backlink load test]]

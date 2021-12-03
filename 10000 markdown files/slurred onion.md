@@ -81,8 +81,6 @@ They're putting their fur
 
 ## Wikilinks load test
 
-[[unilateral water snake]]
-[[arillate grandeur]]
-[[foreseeable baneberry]]
-[[inward-developing shower cap]]
-[[disregarded harum-scarum]]
+[[baroque fuzee]]
+[[burned-over popular struggle front]]
+[[backlink load test]]

@@ -86,8 +86,8 @@ She'll get the constant
 
 ## Wikilinks load test
 
-[[oscine proteinuria]]
-[[churned-up lath and plaster]]
-[[jerkwater shadfly]]
-[[gray-green week from monday]]
-[[missionary sorting algorithm]]
+[[motorized walter lippmann]]
+[[inherent acciaccatura]]
+[[bowfront tristram]]
+[[wrinkleproof sir robert walpole]]
+[[backlink load test]]

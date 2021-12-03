@@ -79,5 +79,9 @@ Your hair has become of
 
 ## Wikilinks load test
 
-[[pennate inductor]]
-[[light-tight ordinal]]
+[[autoimmune genus lygodium]]
+[[braky charge per unit]]
+[[softish thiobacillus]]
+[[re-entrant chimonanthus praecox]]
+[[crisp hexanedioic acid]]
+[[backlink load test]]

@@ -80,8 +80,5 @@ they lived on my gloves that
 
 ## Wikilinks load test
 
-[[malformed sheep dip]]
-[[moonlit adhesive friction]]
-[[nonmechanical moharram]]
-[[single-barrelled intestine]]
-[[forgetful polyconic projection]]
+[[mandibulate desmodium gyrans]]
+[[backlink load test]]

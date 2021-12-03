@@ -82,6 +82,6 @@ the blades of swimming
 
 ## Wikilinks load test
 
-[[airless hematolysis]]
-[[inhuman sun parlor]]
-[[mozartian trental]]
+[[paraphrastic hamsun]]
+[[mandatory machinery]]
+[[backlink load test]]

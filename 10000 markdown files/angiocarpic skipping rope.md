@@ -88,7 +88,7 @@ Wow.
 
 ## Wikilinks load test
 
-[[parenthetic hairgrip]]
-[[intractable fearlessness]]
-[[unprofessional guanabenz]]
-[[setose cowpen daisy]]
+[[hurtful carothers]]
+[[extralinguistic helvella acetabulum]]
+[[hidrotic threshers lung]]
+[[backlink load test]]

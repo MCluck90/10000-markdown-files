@@ -81,7 +81,7 @@ William's conduct at applause
 
 ## Wikilinks load test
 
-[[censorial humulus japonicus]]
-[[accurate kitul tree]]
-[[hard-of-hearing yves tanguy]]
-[[perplexing louvre museum]]
+[[mindless autoerotism]]
+[[pediatric dinoceras]]
+[[heatable purpura hemorrhagica]]
+[[backlink load test]]

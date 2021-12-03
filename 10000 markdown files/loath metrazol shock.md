@@ -80,8 +80,9 @@ Fetch me but for I
 
 ## Wikilinks load test
 
-[[mantled electric fan]]
-[[grey-headed metronidazole]]
-[[immodest longboat]]
-[[ambiversive fringed orchid]]
-[[empirical catoptrics]]
+[[oversexed salal]]
+[[amethyst derring-do]]
+[[one-to-one flashpoint]]
+[[cowled mile-high city]]
+[[edentate marshall plan]]
+[[backlink load test]]

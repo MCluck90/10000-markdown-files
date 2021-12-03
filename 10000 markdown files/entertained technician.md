@@ -83,7 +83,7 @@ Soup does.
 
 ## Wikilinks load test
 
-[[self-contradictory black mulberry]]
-[[lexicalised daniel patrick moynihan]]
-[[one hundred forty alir]]
-[[sierra leonean genus trichoceros]]
+[[rhizoidal startle response]]
+[[controllable himmler]]
+[[candy-scented theoterrorism]]
+[[backlink load test]]

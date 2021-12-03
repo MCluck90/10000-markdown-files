@@ -84,8 +84,6 @@ Stupid things had kept all
 
 ## Wikilinks load test
 
-[[isoclinal accusative]]
-[[perplexing louvre museum]]
-[[revitalising sir john everett millais]]
-[[documental arc sine]]
-[[costate david lewelyn wark griffith]]
+[[mesic key]]
+[[casteless pelvis]]
+[[backlink load test]]

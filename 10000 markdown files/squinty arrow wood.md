@@ -91,8 +91,8 @@ Get to nobody spoke.
 
 ## Wikilinks load test
 
-[[cosmogonical comfort woman]]
-[[rhyming e-bomb]]
-[[albinal next of kin]]
-[[substantival sand wedge]]
-[[sober oaxaca]]
+[[dud intercommunion]]
+[[animistic domain name]]
+[[perfidious nouvelle cuisine]]
+[[extraterrestrial aelius donatus]]
+[[backlink load test]]

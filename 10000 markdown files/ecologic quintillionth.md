@@ -74,7 +74,9 @@ wow.
 
 ## Wikilinks load test
 
-[[augean goliath]]
-[[supplicant norwegian]]
-[[metabolous illyrian]]
-[[stupendous rudder]]
+[[schematic lorry]]
+[[transformed pussley]]
+[[enceinte marchand de vin]]
+[[one-party disabled]]
+[[edacious texas tortoise]]
+[[backlink load test]]

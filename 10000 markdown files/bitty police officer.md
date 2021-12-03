@@ -84,6 +84,5 @@ Oh don't believe it won't stand
 
 ## Wikilinks load test
 
-[[batter-fried pinniped]]
-[[gynandromorphous action at law]]
-[[capitulary oreortyx]]
+[[cosmogonical teleologist]]
+[[backlink load test]]

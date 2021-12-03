@@ -86,6 +86,8 @@ Right as this to wink
 
 ## Wikilinks load test
 
-[[good-for-nothing genus collinsonia]]
-[[bibulous snow-on-the-mountain]]
-[[geometric viral delivery vector]]
+[[tabular calabura]]
+[[checked resting potential]]
+[[nonrepetitive astigmatism]]
+[[ripened british capacity unit]]
+[[backlink load test]]

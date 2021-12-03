@@ -87,7 +87,9 @@ Hadn't time round on
 
 ## Wikilinks load test
 
-[[ratiocinative spermophilus]]
-[[commercialised malignant anemia]]
-[[infuriating cannon fodder]]
-[[temporary fluorite]]
+[[blackish corbett]]
+[[purplish-white map projection]]
+[[brachycranial humectant]]
+[[assonant cruet-stand]]
+[[untasted dolby]]
+[[backlink load test]]

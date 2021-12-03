@@ -80,5 +80,9 @@ Stand up one foot
 
 ## Wikilinks load test
 
-[[purple cleavers]]
-[[slumbrous grand jury]]
+[[sickish cycad family]]
+[[silvery-blue toadfish]]
+[[nonsexual herbert marcuse]]
+[[wily james joyce]]
+[[injudicious keyboard instrument]]
+[[backlink load test]]

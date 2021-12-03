@@ -86,7 +86,9 @@ interrupted.
 
 ## Wikilinks load test
 
-[[colonised foreshank]]
-[[off-guard genus erithacus]]
-[[anaerobiotic provence]]
-[[toupeed tenderizer]]
+[[monogamous despite]]
+[[tactless cupressus lusitanica]]
+[[sierra leonean genus trichoceros]]
+[[stopped antelope chipmunk]]
+[[burglarproof fish species]]
+[[backlink load test]]

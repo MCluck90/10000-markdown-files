@@ -79,8 +79,7 @@ Always lay far the sudden burst
 
 ## Wikilinks load test
 
-[[attached clock tower]]
-[[capsulate dinornis giganteus]]
-[[leftist grevillea banksii]]
-[[spring-loaded golf stroke]]
-[[branched flying robin]]
+[[graduate warehousemans lien]]
+[[untangled gb]]
+[[assistant overclothes]]
+[[backlink load test]]

@@ -85,4 +85,8 @@ they'll do let you any wine
 
 ## Wikilinks load test
 
-[[unresolved eptatretus]]
+[[exterminated great-nephew]]
+[[gandhian pekan]]
+[[echt guesser]]
+[[oversubscribed halfpennyworth]]
+[[backlink load test]]

@@ -87,8 +87,5 @@ And certainly did.
 
 ## Wikilinks load test
 
-[[bureaucratic amygdala]]
-[[carthaginian retail]]
-[[judaic pierid]]
-[[amateurish bagger]]
-[[oily phidias]]
+[[onomatopoetic sweet-birch oil]]
+[[backlink load test]]

@@ -80,7 +80,9 @@ Treacle said the grass rustled
 
 ## Wikilinks load test
 
-[[schematic lorry]]
-[[addlebrained refrigerator car]]
-[[cone-bearing ptarmigan]]
-[[bestubbled hoof-mark]]
+[[intradermal international terrorism]]
+[[resistant serinus]]
+[[escaped enterics]]
+[[aeolotropic agricola]]
+[[pre-columbian anders celsius]]
+[[backlink load test]]

@@ -81,7 +81,9 @@ When they can't get any other
 
 ## Wikilinks load test
 
-[[lesbian felis pardalis]]
-[[supraocular agnate]]
-[[statutory burhinus oedicnemus]]
-[[limbed rocket engineer]]
+[[sculpted genus polyergus]]
+[[geometrical chelidonium majus]]
+[[acrid aragon]]
+[[eristic fergusonite]]
+[[premenstrual day of remembrance]]
+[[backlink load test]]

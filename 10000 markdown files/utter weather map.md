@@ -75,5 +75,5 @@ Off with the whiting
 
 ## Wikilinks load test
 
-[[triangulate erasable programmable read-only memory]]
-[[brumal alveolar point]]
+[[frayed mover]]
+[[backlink load test]]

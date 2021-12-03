@@ -83,8 +83,5 @@ Give your temper.
 
 ## Wikilinks load test
 
-[[sidereal egret]]
-[[accessory french pastry]]
-[[congested sarcophilus]]
-[[participating kentuckian]]
-[[confiding hallucinosis]]
+[[conditioned screen door]]
+[[backlink load test]]

@@ -83,8 +83,6 @@ By-the bye what the experiment.
 
 ## Wikilinks load test
 
-[[abysmal anoa depressicornis]]
-[[slipshod disturbance]]
-[[despondent chicken leg]]
-[[animistic domain name]]
-[[killable general security services]]
+[[dimorphic southernism]]
+[[unnotched botcher]]
+[[backlink load test]]

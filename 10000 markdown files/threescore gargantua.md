@@ -81,5 +81,7 @@ Her first speech.
 
 ## Wikilinks load test
 
-[[serial hippo regius]]
-[[trancelike gemsbuck]]
+[[overwrought natural resources]]
+[[draughty voyage]]
+[[clockwise place setting]]
+[[backlink load test]]

@@ -94,8 +94,9 @@ It began thinking it may SIT
 
 ## Wikilinks load test
 
-[[non-automatic gustav klimt]]
-[[buddhist canadian hemlock]]
-[[sharp republic of ireland]]
-[[clammy sitophylus]]
-[[myrmecophytic soda can]]
+[[polysemantic anthropogeny]]
+[[centralising modernization]]
+[[hesitant genus osmanthus]]
+[[rush maiden name]]
+[[peroneal fetal movement]]
+[[backlink load test]]

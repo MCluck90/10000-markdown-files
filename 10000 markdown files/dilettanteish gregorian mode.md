@@ -77,7 +77,9 @@ Nearly two guinea-pigs cheered.
 
 ## Wikilinks load test
 
-[[grief-stricken autumn crocus]]
-[[unstinting supplement]]
-[[nonviscid bedding]]
-[[doltish orthoepy]]
+[[alarming heyerdahl]]
+[[diffusing wire gage]]
+[[marketable kangaroo hare]]
+[[life-giving rush candle]]
+[[untold toulon]]
+[[backlink load test]]

@@ -89,7 +89,9 @@ Do as herself out
 
 ## Wikilinks load test
 
-[[fatal new zealand dollar]]
-[[whitened amethystine python]]
-[[sufi hydrilla]]
-[[wiggly plume grass]]
+[[faceted ammonia clock]]
+[[too bad araneae]]
+[[oval-fruited elephants ear]]
+[[unsavory disbandment]]
+[[boughten corpuscular radiation]]
+[[backlink load test]]

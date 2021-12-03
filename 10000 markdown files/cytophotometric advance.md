@@ -89,7 +89,8 @@ When the trial is
 
 ## Wikilinks load test
 
-[[armor-plated erik axel karlfeldt]]
-[[ungroomed french spinach]]
-[[bilinear seven wonders of the ancient world]]
-[[eyes-only fixative]]
+[[twenty-fifth worm salamander]]
+[[paradisaic parsec]]
+[[acarpelous von sternberg]]
+[[bilobated hatband]]
+[[backlink load test]]

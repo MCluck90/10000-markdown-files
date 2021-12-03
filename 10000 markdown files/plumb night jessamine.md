@@ -93,8 +93,8 @@ Wouldn't it she put my
 
 ## Wikilinks load test
 
-[[ipsilateral criticality]]
-[[antonymous prolapsus]]
-[[blue lipchitz]]
-[[unsatisfactory animal foot]]
-[[wine-red stanford white]]
+[[blood-and-guts cy pres]]
+[[acerose freedom rider]]
+[[peruvian autochthon]]
+[[motorized walter lippmann]]
+[[backlink load test]]

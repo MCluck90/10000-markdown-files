@@ -82,6 +82,5 @@ the three were ten
 
 ## Wikilinks load test
 
-[[emphasised matelote]]
-[[amalgamate pargetry]]
-[[greyish-white last day]]
+[[leery genus hipsurus]]
+[[backlink load test]]

@@ -84,8 +84,6 @@ they saw mine before said
 
 ## Wikilinks load test
 
-[[achy reflective power]]
-[[finable platymiscium]]
-[[touching furor]]
-[[downward googly]]
-[[conjugated aspartic acid]]
+[[absorbable oil tycoon]]
+[[cytoarchitectural phalaenoptilus]]
+[[backlink load test]]

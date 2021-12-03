@@ -85,5 +85,6 @@ _I_ don't.
 
 ## Wikilinks load test
 
-[[topsy-turvy tang]]
-[[cram full nervus spinalis]]
+[[undeterminable dacrydium]]
+[[self-respecting seljuk]]
+[[backlink load test]]

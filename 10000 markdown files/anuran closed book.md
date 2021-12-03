@@ -87,6 +87,8 @@ later.
 
 ## Wikilinks load test
 
-[[prefatorial missioner]]
-[[clip-on stocktaking]]
-[[hidrotic threshers lung]]
+[[exciting indri brevicaudatus]]
+[[spindly laotian capital]]
+[[horse-drawn hard times]]
+[[complex omicron]]
+[[backlink load test]]

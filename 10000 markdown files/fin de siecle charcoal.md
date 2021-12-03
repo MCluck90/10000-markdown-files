@@ -91,8 +91,8 @@ Did you manage it home the
 
 ## Wikilinks load test
 
-[[unsoluble yellow bunting]]
-[[patient of sporobolus cryptandrus]]
-[[prerecorded fortune teller]]
-[[warm-blooded seneca lake]]
-[[high-sudsing sedum]]
+[[unholy unearned revenue]]
+[[outward-moving gantanol]]
+[[wry wild sensitive plant]]
+[[boughless saint benedict]]
+[[backlink load test]]

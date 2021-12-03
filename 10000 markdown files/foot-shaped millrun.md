@@ -88,4 +88,9 @@ Consider my way.
 
 ## Wikilinks load test
 
-[[insurrectional valdecoxib]]
+[[protective haemosporidian]]
+[[inhuman sun parlor]]
+[[bimestrial teutoburger wald]]
+[[mysophobic grand duchy of luxembourg]]
+[[lipped os pisiforme]]
+[[backlink load test]]

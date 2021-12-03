@@ -90,6 +90,5 @@ Shy they hurried by it so
 
 ## Wikilinks load test
 
-[[pandurate blister rust]]
-[[blue-sky suntan]]
-[[centric luftwaffe]]
+[[grievous wales]]
+[[backlink load test]]

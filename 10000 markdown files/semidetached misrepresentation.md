@@ -84,5 +84,5 @@ Soup of short speech.
 
 ## Wikilinks load test
 
-[[dwarfish lead time]]
-[[clip-on fuji-san]]
+[[corbelled piriform area]]
+[[backlink load test]]

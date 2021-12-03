@@ -92,8 +92,6 @@ ARE OLD FATHER WILLIAM
 
 ## Wikilinks load test
 
-[[angiocarpic skipping rope]]
-[[delayed read-only memory chip]]
-[[in writing drosophilidae]]
-[[humanist countryside]]
-[[anorexic zenaidura macroura]]
+[[thickening appaloosa]]
+[[antimonopoly warszawa]]
+[[backlink load test]]

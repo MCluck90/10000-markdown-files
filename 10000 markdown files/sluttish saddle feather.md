@@ -89,6 +89,8 @@ Once said poor man said What.
 
 ## Wikilinks load test
 
-[[sparing nanga parbat]]
-[[blue-blooded genus ptilonorhynchus]]
-[[municipal dagga]]
+[[pockmarked stinging hair]]
+[[bracted shipwright]]
+[[antipodal onomasticon]]
+[[extraterrestrial bob woodward]]
+[[backlink load test]]

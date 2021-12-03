@@ -81,8 +81,8 @@ Soo oop of every word
 
 ## Wikilinks load test
 
-[[committed shirley temple]]
-[[carpal stalemate]]
-[[all-around stylomecon heterophyllum]]
-[[on the hook straight arrow]]
-[[gemmiferous subdivision cycadophyta]]
+[[mitral atomic number 29]]
+[[striking sheet iron]]
+[[recusant buteo lineatus]]
+[[inordinate towing rope]]
+[[backlink load test]]

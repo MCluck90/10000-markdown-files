@@ -85,8 +85,8 @@ Yes.
 
 ## Wikilinks load test
 
-[[wheel-like hazan]]
-[[apprehensible alec guinness]]
-[[malay crispiness]]
-[[galactic damsel]]
-[[alcalescent sorghum bicolor]]
+[[raisable resistor]]
+[[thermoelectric henri toulouse-lautrec]]
+[[free-living chlamydera]]
+[[off-line vintager]]
+[[backlink load test]]

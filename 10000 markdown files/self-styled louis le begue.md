@@ -80,8 +80,9 @@ Beautiful beauti FUL SOUP.
 
 ## Wikilinks load test
 
-[[isothermal acacia melanoxylon]]
-[[leafy aristolochiaceae]]
-[[prissy ltm]]
-[[protozoal swim]]
-[[slate-black pill roller]]
+[[schematic lorry]]
+[[decollete metoprolol]]
+[[cuspated full professor]]
+[[valent saturday night special]]
+[[lxxx orwell]]
+[[backlink load test]]

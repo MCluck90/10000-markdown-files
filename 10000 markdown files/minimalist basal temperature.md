@@ -82,5 +82,8 @@ sh.
 
 ## Wikilinks load test
 
-[[million james michener]]
-[[histological richard feynman]]
+[[oil-fired buffalo bill cody]]
+[[preferred creel]]
+[[boughless saint benedict]]
+[[awake velvet ant]]
+[[backlink load test]]

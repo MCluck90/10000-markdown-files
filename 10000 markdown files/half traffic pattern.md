@@ -85,6 +85,8 @@ RABBIT engraved upon a
 
 ## Wikilinks load test
 
-[[awnless surveyors instrument]]
-[[rhythmical belloc]]
-[[impressive bothrops]]
+[[nurturant spread eagle]]
+[[bimestrial argosy]]
+[[uncoiled finishing]]
+[[emblematical snuffler]]
+[[backlink load test]]

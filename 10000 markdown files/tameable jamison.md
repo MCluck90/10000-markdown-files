@@ -88,6 +88,9 @@ IF I fell on its
 
 ## Wikilinks load test
 
-[[spread-out hardback]]
-[[heart-shaped coiffeuse]]
-[[succulent small cell carcinoma]]
+[[quick-frozen buck]]
+[[glaucous green goddess]]
+[[winning genus capros]]
+[[promotional department of the federal government]]
+[[rhythmical belloc]]
+[[backlink load test]]

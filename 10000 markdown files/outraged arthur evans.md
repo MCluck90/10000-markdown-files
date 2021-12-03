@@ -81,8 +81,7 @@ Behead that attempt proved it
 
 ## Wikilinks load test
 
-[[formulated amish sect]]
-[[awestricken lampropeltis triangulum]]
-[[machiavellian full house]]
-[[magenta pink paderewski]]
-[[biserrate magnetic flux density]]
+[[revitalising sir john everett millais]]
+[[morphological i.w.w.]]
+[[bridal cape verde escudo]]
+[[backlink load test]]

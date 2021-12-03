@@ -80,8 +80,5 @@ I'LL soon found quite silent.
 
 ## Wikilinks load test
 
-[[tranquil hommos]]
-[[southerly bumpiness]]
-[[consolable ida tarbell]]
-[[apsidal edible corn]]
-[[fawn-colored mental soundness]]
+[[scrabbly harlow shapley]]
+[[backlink load test]]

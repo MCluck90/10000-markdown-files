@@ -86,4 +86,5 @@ roared the pebbles came a dreadful
 
 ## Wikilinks load test
 
-[[addicted nylghai]]
+[[go regular octahedron]]
+[[backlink load test]]

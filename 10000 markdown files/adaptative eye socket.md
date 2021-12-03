@@ -82,8 +82,7 @@ Stupid things get very truthful
 
 ## Wikilinks load test
 
-[[accident-prone golden calf]]
-[[overemotional club moss]]
-[[forty-seven biting louse]]
-[[vegetational whinchat]]
-[[precast lh]]
+[[tiger-striped task]]
+[[agape screwtop]]
+[[stouthearted reentrant angle]]
+[[backlink load test]]

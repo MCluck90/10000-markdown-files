@@ -79,7 +79,6 @@ I'M not going on.
 
 ## Wikilinks load test
 
-[[large-minded quarterstaff]]
-[[dioecian barbados cherry]]
-[[prokaryotic scientist]]
-[[extroverted artificial blood]]
+[[shaven africanized bee]]
+[[collusive teucrium chamaedrys]]
+[[backlink load test]]

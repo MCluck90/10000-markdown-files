@@ -78,8 +78,6 @@ that curious song please
 
 ## Wikilinks load test
 
-[[spindly laotian capital]]
-[[anal retentive mikhail glinka]]
-[[flame-coloured disbeliever]]
-[[long-wooled whalebone whale]]
-[[umbellate dungeon]]
+[[sinuate dioon]]
+[[molal orology]]
+[[backlink load test]]

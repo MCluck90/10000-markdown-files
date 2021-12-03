@@ -78,8 +78,7 @@ they'll do How cheerfully he
 
 ## Wikilinks load test
 
-[[lobar faroe islands]]
-[[cut-and-dried hidden reserve]]
-[[genteel hugo grotius]]
-[[esophageal family comatulidae]]
-[[lusty summer haw]]
+[[stopped antelope chipmunk]]
+[[city-bred geode]]
+[[eighty-seven hairball]]
+[[backlink load test]]

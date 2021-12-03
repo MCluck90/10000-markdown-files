@@ -81,8 +81,8 @@ Certainly not easy to queer
 
 ## Wikilinks load test
 
-[[rotted left gastric artery]]
-[[inaccurate gum olibanum]]
-[[sheltered oxblood red]]
-[[statuesque camelot]]
-[[brag man and wife]]
+[[neurotoxic footboard]]
+[[hebdomadary phaeton]]
+[[inductive school ship]]
+[[pink-red sloe]]
+[[backlink load test]]

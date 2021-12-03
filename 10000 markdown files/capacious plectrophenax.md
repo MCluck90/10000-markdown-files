@@ -89,8 +89,5 @@ or at.
 
 ## Wikilinks load test
 
-[[overgenerous entomophthoraceae]]
-[[denotative plight]]
-[[lousy loony bin]]
-[[crabwise holstein-friesian]]
-[[microelectronic spontaneous generation]]
+[[restrictive gutta-percha]]
+[[backlink load test]]

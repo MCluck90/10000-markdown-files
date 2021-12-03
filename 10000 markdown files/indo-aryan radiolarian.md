@@ -84,7 +84,6 @@ down off the right-hand bit hurt
 
 ## Wikilinks load test
 
-[[bulb-shaped genus styphelia]]
-[[inexhaustible quartz battery]]
-[[undistinguishable stopple]]
-[[bespectacled urga]]
+[[algebraical crowfoot family]]
+[[indiscriminate thermos flask]]
+[[backlink load test]]

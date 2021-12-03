@@ -88,6 +88,6 @@ Prizes.
 
 ## Wikilinks load test
 
-[[audiometric closed-heart surgery]]
-[[horrific legal proceeding]]
-[[barefooted genus ensete]]
+[[detestable rotary motion]]
+[[cognizant pliers]]
+[[backlink load test]]

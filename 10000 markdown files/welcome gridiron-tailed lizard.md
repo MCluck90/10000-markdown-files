@@ -78,6 +78,7 @@ Prizes.
 
 ## Wikilinks load test
 
-[[phenotypical genus pinicola]]
-[[stiff-branched dioxide]]
-[[encased family tulostomaceae]]
+[[hebephrenic hemianopia]]
+[[louche river horse]]
+[[injudicious keyboard instrument]]
+[[backlink load test]]

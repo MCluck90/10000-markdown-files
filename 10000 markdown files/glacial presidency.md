@@ -85,7 +85,9 @@ later editions continued in at
 
 ## Wikilinks load test
 
-[[unpolished systematics]]
-[[iridic trifler]]
-[[stinking upper avon]]
-[[snooty genus corydalis]]
+[[youthful tangiers]]
+[[unapprehensive meteor shower]]
+[[toll-free mrs]]
+[[colorimetrical genus plectrophenax]]
+[[fascinating inventor]]
+[[backlink load test]]

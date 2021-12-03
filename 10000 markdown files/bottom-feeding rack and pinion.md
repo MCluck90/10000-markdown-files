@@ -74,8 +74,5 @@ ALL.
 
 ## Wikilinks load test
 
-[[multivalent gavel]]
-[[socratic capital of georgia]]
-[[tameable jamison]]
-[[long-distance dance of death]]
-[[marked-up megalobatrachus maximus]]
+[[neo-lamarckian collection plate]]
+[[backlink load test]]

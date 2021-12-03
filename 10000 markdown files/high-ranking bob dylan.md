@@ -88,6 +88,5 @@ Two lines.
 
 ## Wikilinks load test
 
-[[hook-shaped merry-go-round]]
-[[institutionalized densitometry]]
-[[superposable darkie]]
+[[macroscopical superficial temporal vein]]
+[[backlink load test]]

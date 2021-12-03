@@ -84,5 +84,5 @@ Run home the prisoner's
 
 ## Wikilinks load test
 
-[[unnoticed upthrust]]
-[[reducible biological science]]
+[[nonrepetitive astigmatism]]
+[[backlink load test]]

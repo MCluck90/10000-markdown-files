@@ -85,7 +85,5 @@ Oh YOU said there's the teapot.
 
 ## Wikilinks load test
 
-[[depopulated pyxidium]]
-[[barbecued mahernia verticillata]]
-[[pervious natal]]
-[[primary arroyo]]
+[[cross-eyed esophagus]]
+[[backlink load test]]

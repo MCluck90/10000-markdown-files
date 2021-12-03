@@ -85,6 +85,9 @@ Get to watch out at
 
 ## Wikilinks load test
 
-[[swollen candy bar]]
-[[magenta pink paderewski]]
-[[tearing gps]]
+[[holographical clematis baldwinii]]
+[[sunburnt physical body]]
+[[mantled electric fan]]
+[[short-spurred fly honeysuckle]]
+[[approbative neva river]]
+[[backlink load test]]

@@ -86,6 +86,7 @@ Nothing whatever happens.
 
 ## Wikilinks load test
 
-[[happy bethel]]
-[[declarable advocator]]
-[[holophytic vivisectionist]]
+[[sown battleground]]
+[[multifarious nougat]]
+[[casteless pelvis]]
+[[backlink load test]]

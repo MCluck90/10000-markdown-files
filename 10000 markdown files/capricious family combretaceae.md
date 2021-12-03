@@ -83,8 +83,5 @@ Of course they never once
 
 ## Wikilinks load test
 
-[[lesbian felis pardalis]]
-[[romaic hip roof]]
-[[upper-class facade]]
-[[lxxxii iron-storage disease]]
-[[sophomore briefness]]
+[[peace-loving combination lock]]
+[[backlink load test]]

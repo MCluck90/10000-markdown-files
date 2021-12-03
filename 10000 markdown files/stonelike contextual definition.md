@@ -87,6 +87,8 @@ ARE OLD FATHER WILLIAM to pocket
 
 ## Wikilinks load test
 
-[[rectangular farmyard]]
-[[purpose-made cephalotus]]
-[[insuperable cochran]]
+[[untraditional kauai]]
+[[light-minded amoralism]]
+[[edgy genus sciara]]
+[[supple crankiness]]
+[[backlink load test]]

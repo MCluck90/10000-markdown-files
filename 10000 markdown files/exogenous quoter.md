@@ -79,8 +79,6 @@ I'll go THERE again so
 
 ## Wikilinks load test
 
-[[funky daniel ortega saavedra]]
-[[newsy family characidae]]
-[[foreordained praise]]
-[[glaucous sideline]]
-[[modifiable mauve]]
+[[decreasing monotonic trompe loeil]]
+[[achy reflective power]]
+[[backlink load test]]

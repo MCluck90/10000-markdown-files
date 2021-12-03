@@ -84,7 +84,6 @@ Wow.
 
 ## Wikilinks load test
 
-[[dull-purple modernist]]
-[[thrown-away power drill]]
-[[venose prince otto eduard leopold von bismarck]]
-[[authorised lucius domitius ahenobarbus]]
+[[procurable cotton rush]]
+[[graspable planetesimal hypothesis]]
+[[backlink load test]]

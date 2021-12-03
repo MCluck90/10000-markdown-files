@@ -76,7 +76,6 @@ Pray don't look of nothing
 
 ## Wikilinks load test
 
-[[purging strip cropping]]
-[[iodized plaint]]
-[[unarmored lower status]]
-[[expressionless exponential curve]]
+[[hair-shirt blackfriar]]
+[[runcinate khat]]
+[[backlink load test]]

@@ -75,7 +75,9 @@ Where CAN have lessons.
 
 ## Wikilinks load test
 
-[[electropositive calamine]]
-[[resistant serinus]]
-[[vanquishable kitambilla]]
-[[contemptuous 10000]]
+[[slow-moving seismogram]]
+[[weak dekagram]]
+[[out of work gap]]
+[[sybaritic callathump]]
+[[split suborder myxiniformes]]
+[[backlink load test]]

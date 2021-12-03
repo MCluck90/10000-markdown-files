@@ -80,8 +80,6 @@ Twinkle twinkle little nervous or your
 
 ## Wikilinks load test
 
-[[crisscross jargon]]
-[[demotic full]]
-[[grayish-white ferber]]
-[[gaelic shedder]]
-[[painterly transposability]]
+[[left-of-center monochromat]]
+[[perfumed extermination]]
+[[backlink load test]]

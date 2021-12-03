@@ -90,5 +90,9 @@ After a world of
 
 ## Wikilinks load test
 
-[[filled corn spurry]]
-[[intact psycholinguist]]
+[[disclike astarte]]
+[[axial theodicy]]
+[[indo-aryan radiolarian]]
+[[antemortem cub]]
+[[ornamental burial]]
+[[backlink load test]]

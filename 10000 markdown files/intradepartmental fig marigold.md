@@ -85,8 +85,7 @@ Pig.
 
 ## Wikilinks load test
 
-[[heated up greater scaup]]
-[[prickly-leafed ethiopian banana]]
-[[friendly colophony]]
-[[continent-wide horseshit]]
-[[positivist dowitcher]]
+[[shifty filename]]
+[[home-loving straight]]
+[[informal revulsion]]
+[[backlink load test]]

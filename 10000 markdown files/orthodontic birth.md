@@ -89,8 +89,5 @@ Come that begins with many tea-things
 
 ## Wikilinks load test
 
-[[pet arcus]]
-[[biddable luba]]
-[[determined francis turner palgrave]]
-[[consolidative almond willow]]
-[[lower-class bottle screw]]
+[[commonsensical sick berth]]
+[[backlink load test]]

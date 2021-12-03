@@ -81,8 +81,7 @@ Prizes.
 
 ## Wikilinks load test
 
-[[navicular cookfire]]
-[[ambulacral peccadillo]]
-[[bedded cosmography]]
-[[papery gorgerin]]
-[[guarded strip cropping]]
+[[endogamic taxonomic group]]
+[[fisheye prima donna]]
+[[concretistic ipomoea quamoclit]]
+[[backlink load test]]

@@ -89,6 +89,9 @@ However jury-men would die.
 
 ## Wikilinks load test
 
-[[informal revulsion]]
-[[scaley uintathere]]
-[[hidrotic threshers lung]]
+[[off her guard interbrain]]
+[[ready-made tranquillizer]]
+[[tritanopic entric]]
+[[statistical blackfoot]]
+[[grammatical agave sisalana]]
+[[backlink load test]]

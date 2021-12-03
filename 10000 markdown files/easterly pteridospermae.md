@@ -84,8 +84,6 @@ So she sits purring so
 
 ## Wikilinks load test
 
-[[understanding conglomerate]]
-[[nonreturnable steeple]]
-[[amerciable storehouse]]
-[[bibliomaniacal home folk]]
-[[squeaking aphakic]]
+[[toed subspace]]
+[[recognizable chlorophyte]]
+[[backlink load test]]

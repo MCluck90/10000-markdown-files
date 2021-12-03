@@ -82,8 +82,9 @@ UNimportant of beautiful garden with
 
 ## Wikilinks load test
 
-[[sternutative cock-a-leekie]]
-[[shrinkable clique]]
-[[disapproving vanessa stephen]]
-[[berried pristis pectinatus]]
-[[bibulous snow-on-the-mountain]]
+[[noncollapsable bootleg]]
+[[mercuric pimenta officinalis]]
+[[worshipful precipitin]]
+[[outraged penstemon linarioides]]
+[[prognostic brown rot gummosis]]
+[[backlink load test]]

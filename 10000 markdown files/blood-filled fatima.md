@@ -82,5 +82,8 @@ So Bill's got used and
 
 ## Wikilinks load test
 
-[[albanian sir john frederick william herschel]]
-[[unsinkable admiral dewey]]
+[[far-out mayakovski]]
+[[soft-finned sir thomas malory]]
+[[pedestrian representational process]]
+[[torn irish strawberry]]
+[[backlink load test]]

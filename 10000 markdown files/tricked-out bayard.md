@@ -84,5 +84,9 @@ Suppose we learned French
 
 ## Wikilinks load test
 
-[[slavelike paring]]
-[[burned-over popular struggle front]]
+[[unbiassed just the ticket]]
+[[darned ethel merman]]
+[[low-growing onomatomania]]
+[[forty-nine dune cycling]]
+[[argillaceous genus templetonia]]
+[[backlink load test]]

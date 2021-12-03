@@ -83,8 +83,7 @@ Reeling and ran as himself in
 
 ## Wikilinks load test
 
-[[injudicious ojibway]]
-[[bicyclic spurious wing]]
-[[dendriform hairline fracture]]
-[[allomorphic berserker]]
-[[leafy giant fulmar]]
+[[bright-red lake tanganyika]]
+[[nonopening climatic zone]]
+[[totalitarian zygomycotina]]
+[[backlink load test]]

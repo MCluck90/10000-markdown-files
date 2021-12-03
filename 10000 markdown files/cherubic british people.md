@@ -78,5 +78,9 @@ asked in contemptuous tones
 
 ## Wikilinks load test
 
-[[suave switcheroo]]
-[[tiger-striped indian reservation]]
+[[nonmusical fixed costs]]
+[[hypothermic territorial army]]
+[[cacophonous gafsa]]
+[[thronged crochet needle]]
+[[benedictine immunization]]
+[[backlink load test]]

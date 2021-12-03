@@ -79,4 +79,8 @@ She'd soon submitted to
 
 ## Wikilinks load test
 
-[[silky-haired bald eagle]]
+[[tangy oil beetle]]
+[[southeast prince consort]]
+[[p.m. republic]]
+[[manipulable battle of little bighorn]]
+[[backlink load test]]

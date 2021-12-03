@@ -76,5 +76,7 @@ quite enough yet it's done such
 
 ## Wikilinks load test
 
-[[antitank cross-country skiing]]
-[[well-informed schenectady]]
+[[bulbous ridgeline]]
+[[overflowing acrylic]]
+[[morphological i.w.w.]]
+[[backlink load test]]

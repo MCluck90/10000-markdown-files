@@ -82,7 +82,7 @@ Well at one flapper across
 
 ## Wikilinks load test
 
-[[cut-rate pinus flexilis]]
-[[maledict mention]]
-[[lidded enumeration]]
-[[clausal middle greek]]
+[[ecuadorian pollen tube]]
+[[amphitheatrical comedy]]
+[[brachiate separationism]]
+[[backlink load test]]

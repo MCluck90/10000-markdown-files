@@ -84,7 +84,7 @@ Stand up towards it
 
 ## Wikilinks load test
 
-[[lutheran chinch bug]]
-[[rabelaisian 22]]
-[[yellow-tipped acknowledgement]]
-[[discredited lake ilmen]]
+[[blabbermouthed privatization]]
+[[marched upon leaning]]
+[[diclinous extraordinariness]]
+[[backlink load test]]

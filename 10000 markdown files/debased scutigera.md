@@ -79,8 +79,5 @@ Suppress him said EVERYBODY
 
 ## Wikilinks load test
 
-[[dorsoventral tripper]]
-[[publicised sciolist]]
-[[debauched tartar sauce]]
-[[sweet-breathed gesell]]
-[[unguaranteed shaman]]
+[[depictive enteroptosis]]
+[[backlink load test]]

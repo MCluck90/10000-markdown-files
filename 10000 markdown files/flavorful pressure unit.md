@@ -78,8 +78,7 @@ A MILE HIGH TO
 
 ## Wikilinks load test
 
-[[light-handed eastern dasyure]]
-[[do-it-yourself merlangus]]
-[[amalgamative optical fibre]]
-[[cross-section somalian shilling]]
-[[ecologic brainpan]]
+[[calyptrate physical value]]
+[[head-in-the-clouds vapour density]]
+[[greathearted anchorite]]
+[[backlink load test]]

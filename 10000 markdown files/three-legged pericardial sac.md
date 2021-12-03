@@ -90,5 +90,5 @@ When they WILL do why if
 
 ## Wikilinks load test
 
-[[iodinated dog]]
-[[mutilated mefenamic acid]]
+[[flattering loxodonta]]
+[[backlink load test]]

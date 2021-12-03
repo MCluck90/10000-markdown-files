@@ -86,6 +86,6 @@ William's conduct at applause which
 
 ## Wikilinks load test
 
-[[wolfish enterolith]]
-[[adust ginger]]
-[[alto xinjiang uighur autonomous region]]
+[[cone-bearing ptarmigan]]
+[[pilose whitener]]
+[[backlink load test]]

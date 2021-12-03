@@ -86,7 +86,6 @@ Bill's to an account
 
 ## Wikilinks load test
 
-[[squally monad]]
-[[minty homyel]]
-[[dearly-won erotica]]
-[[testate hardening of the arteries]]
+[[inherent curse word]]
+[[exothermal molding]]
+[[backlink load test]]

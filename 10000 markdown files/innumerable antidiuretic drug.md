@@ -77,5 +77,5 @@ Do I WAS no idea was
 
 ## Wikilinks load test
 
-[[promissory lucky lindy]]
-[[lobate punching ball]]
+[[finable brittle star]]
+[[backlink load test]]

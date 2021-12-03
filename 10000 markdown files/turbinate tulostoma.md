@@ -87,6 +87,6 @@ When they couldn't guess of which
 
 ## Wikilinks load test
 
-[[varicose buddleia]]
-[[bleary-eyed scalp lock]]
-[[abducent port moresby]]
+[[horror-struck artfulness]]
+[[capsulate dinornis giganteus]]
+[[backlink load test]]

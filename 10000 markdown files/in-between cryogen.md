@@ -84,7 +84,8 @@ Just about half of sight before
 
 ## Wikilinks load test
 
-[[nonproductive cyanogen]]
-[[prototypic nalline]]
-[[pasted genus martynia]]
-[[beamy lachrymal gland]]
+[[echt guesser]]
+[[rabelaisian contemplation]]
+[[horn-shaped breakwater]]
+[[turbinate tulostoma]]
+[[backlink load test]]

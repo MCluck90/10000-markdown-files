@@ -82,5 +82,5 @@ What is to dive
 
 ## Wikilinks load test
 
-[[candescent psychobabble]]
-[[gabled fishpaste]]
+[[trinucleate wollaston]]
+[[backlink load test]]

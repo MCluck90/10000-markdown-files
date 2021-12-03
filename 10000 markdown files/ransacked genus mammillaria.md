@@ -80,6 +80,9 @@ they'll do without interrupting him you
 
 ## Wikilinks load test
 
-[[ducal pandemic]]
-[[clubbish horizontality]]
-[[bicornate baldrick]]
+[[paddle-shaped aphesis]]
+[[shuttered class acrasiomycetes]]
+[[defunct emerald creeper]]
+[[sentient mountain range]]
+[[rushed jean luc godard]]
+[[backlink load test]]

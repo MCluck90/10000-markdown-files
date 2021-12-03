@@ -87,5 +87,5 @@ Next came back once but
 
 ## Wikilinks load test
 
-[[spongelike backgammon]]
-[[two-handed national bank]]
+[[argillaceous genus templetonia]]
+[[backlink load test]]

@@ -86,6 +86,5 @@ CHORUS.
 
 ## Wikilinks load test
 
-[[ornithological pine mouse]]
-[[astigmatic fiefdom]]
-[[bottom-up honor system]]
+[[notched croton tiglium]]
+[[backlink load test]]

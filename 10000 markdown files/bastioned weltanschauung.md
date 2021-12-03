@@ -78,8 +78,6 @@ as much.
 
 ## Wikilinks load test
 
-[[arboraceous snap roll]]
-[[splenic garnishment]]
-[[alienated historical school]]
-[[featherbrained genus antedon]]
-[[unregulated bellerophon]]
+[[herbivorous gasterosteus]]
+[[moderating futurism]]
+[[backlink load test]]

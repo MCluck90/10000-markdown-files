@@ -85,6 +85,7 @@ Beautiful beauti FUL SOUP.
 
 ## Wikilinks load test
 
-[[bubbling bomber crew]]
-[[uncluttered aegean civilization]]
-[[coal-burning marlinspike]]
+[[unconscious compensatory spending]]
+[[wooden-headed cupronickel]]
+[[encomiastic professionalism]]
+[[backlink load test]]

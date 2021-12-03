@@ -84,5 +84,8 @@ You'll see that dark
 
 ## Wikilinks load test
 
-[[magenta pink paderewski]]
-[[pre-existent kindergartner]]
+[[heraldic microprocessor]]
+[[ambiguous homepage]]
+[[kod impartiality]]
+[[overshot roping]]
+[[backlink load test]]

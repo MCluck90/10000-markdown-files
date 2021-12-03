@@ -77,7 +77,5 @@ cried so after some mischief
 
 ## Wikilinks load test
 
-[[large-hearted gymnopilus]]
-[[flat-top writ of right]]
-[[folksy hatbox]]
-[[seeming meuse]]
+[[consular drumbeat]]
+[[backlink load test]]

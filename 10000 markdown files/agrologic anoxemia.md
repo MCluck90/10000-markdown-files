@@ -90,7 +90,8 @@ Silence in prison the queerest thing
 
 ## Wikilinks load test
 
-[[nonglutinous fantasist]]
-[[long-distance dance of death]]
-[[developed grooving]]
-[[used to lysimachia vulgaris]]
+[[peachy plumage]]
+[[diagnostic romantic realism]]
+[[brumal multiplicative inverse]]
+[[undesired testicular vein]]
+[[backlink load test]]

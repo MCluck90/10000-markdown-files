@@ -88,7 +88,6 @@ Which way up one knee while
 
 ## Wikilinks load test
 
-[[orthodontic birth]]
-[[hispaniolan hebraist]]
-[[latticelike marsh bellflower]]
-[[cacodaemonic malamud]]
+[[anglican baldy]]
+[[paschal cellulose tape]]
+[[backlink load test]]

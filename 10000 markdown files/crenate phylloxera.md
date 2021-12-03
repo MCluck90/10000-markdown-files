@@ -85,5 +85,9 @@ one a-piece all else seemed too
 
 ## Wikilinks load test
 
-[[farseeing chincapin]]
-[[wrathful bean sprout]]
+[[left over kwa]]
+[[costate david lewelyn wark griffith]]
+[[handheld bitter cassava]]
+[[jellied 20]]
+[[telephonic playfellow]]
+[[backlink load test]]

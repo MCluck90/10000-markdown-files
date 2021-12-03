@@ -86,7 +86,6 @@ Change lobsters to eat
 
 ## Wikilinks load test
 
-[[x-linked inexperience]]
-[[pungent master race]]
-[[extramural farming]]
-[[adaptative eye socket]]
+[[punk brass]]
+[[spindly laotian capital]]
+[[backlink load test]]

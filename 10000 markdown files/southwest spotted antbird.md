@@ -78,4 +78,9 @@ won't walk with either
 
 ## Wikilinks load test
 
-[[exogamous maltese]]
+[[biogenetic restriction]]
+[[grating obligato]]
+[[devilish black currant]]
+[[blue-sky suntan]]
+[[suety orange sneezeweed]]
+[[backlink load test]]

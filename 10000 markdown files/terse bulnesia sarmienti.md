@@ -81,6 +81,6 @@ Come let's try and strange
 
 ## Wikilinks load test
 
-[[literary stypsis]]
-[[stilted weil]]
-[[topical fillagree]]
+[[cuspated full professor]]
+[[skeletal lamb]]
+[[backlink load test]]

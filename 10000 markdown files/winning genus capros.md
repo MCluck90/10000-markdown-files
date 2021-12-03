@@ -88,7 +88,6 @@ Beau ootiful Soo oop
 
 ## Wikilinks load test
 
-[[insured coinsurance]]
-[[sky-blue strand]]
-[[discretional turnoff]]
-[[balsamy tillage]]
+[[sheepish neurosurgeon]]
+[[terror-stricken after-shave lotion]]
+[[backlink load test]]

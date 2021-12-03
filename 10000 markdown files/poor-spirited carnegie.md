@@ -84,4 +84,9 @@ But here Alice swallowing down at
 
 ## Wikilinks load test
 
-[[capsulate dinornis giganteus]]
+[[panhellenic broomstick]]
+[[unfretted ligustrum japonicum]]
+[[solvable schoolmate]]
+[[yellow-green lying-in]]
+[[degrading amorphophallus]]
+[[backlink load test]]

@@ -80,6 +80,9 @@ She'd soon make out the
 
 ## Wikilinks load test
 
-[[wire-haired foredeck]]
-[[five hundred callicebus]]
-[[tempest-tost antigua]]
+[[mad microstomus]]
+[[capsulate dinornis giganteus]]
+[[woolly lacerta agilis]]
+[[compact boudoir]]
+[[impeded kwakiutl]]
+[[backlink load test]]

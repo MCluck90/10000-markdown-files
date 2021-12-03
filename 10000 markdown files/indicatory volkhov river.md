@@ -80,7 +80,8 @@ Fetch me.
 
 ## Wikilinks load test
 
-[[consistent candlenut]]
-[[salted penlight]]
-[[italic horseshow]]
-[[in-between cryogen]]
+[[romaic hip roof]]
+[[sentient straw man]]
+[[mutilated genus serranus]]
+[[synoptical credit account]]
+[[backlink load test]]

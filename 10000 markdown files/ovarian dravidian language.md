@@ -81,6 +81,5 @@ Get up both mad
 
 ## Wikilinks load test
 
-[[irreversible physicist]]
-[[brag man and wife]]
-[[savourless swede]]
+[[bleary-eyed scalp lock]]
+[[backlink load test]]

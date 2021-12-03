@@ -79,8 +79,5 @@ Suppress him sighing in curving
 
 ## Wikilinks load test
 
-[[forgetful polyconic projection]]
-[[trifoliate nubbiness]]
-[[coordinated north dakotan]]
-[[equidistant line of questioning]]
-[[stoppered monocot family]]
+[[scriptural plane angle]]
+[[backlink load test]]

@@ -85,8 +85,6 @@ so awfully clever thing with her
 
 ## Wikilinks load test
 
-[[spellbound jainism]]
-[[misanthropic burp gun]]
-[[beardown post horn]]
-[[synchronised arthur schopenhauer]]
-[[en deshabille kendall rank correlation]]
+[[clxx blechnum spicant]]
+[[marbled software engineer]]
+[[backlink load test]]

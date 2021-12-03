@@ -82,7 +82,7 @@ roared the end of
 
 ## Wikilinks load test
 
-[[discomycetous polytetrafluoroethylene]]
-[[hibernal twentieth]]
-[[gruelling erythromycin]]
-[[white-collar million floating point operations per second]]
+[[eastward rhinostenosis]]
+[[lineal transferability]]
+[[blue-chip food elevator]]
+[[backlink load test]]

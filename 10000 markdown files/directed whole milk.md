@@ -80,7 +80,5 @@ My dear old Father
 
 ## Wikilinks load test
 
-[[unconvincing hard drink]]
-[[hardened scrub nurse]]
-[[whitened tongs]]
-[[neuter cryptograph]]
+[[degenerative genus raphicerus]]
+[[backlink load test]]

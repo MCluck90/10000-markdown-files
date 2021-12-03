@@ -85,4 +85,7 @@ Pinch him while Alice it's
 
 ## Wikilinks load test
 
-[[dull jerky]]
+[[toothy fragrant water lily]]
+[[rush maiden name]]
+[[umbellate gayfeather]]
+[[backlink load test]]

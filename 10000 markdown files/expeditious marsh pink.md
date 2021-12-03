@@ -83,5 +83,9 @@ How brave they'll all day
 
 ## Wikilinks load test
 
-[[rosy-purple pace car]]
-[[mediterranean drift ice]]
+[[rutty macroglossia]]
+[[debilitated tax base]]
+[[inhomogeneous pipe clamp]]
+[[incomparable potency]]
+[[cockeyed gatecrasher]]
+[[backlink load test]]

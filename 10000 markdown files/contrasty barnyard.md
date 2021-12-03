@@ -89,6 +89,6 @@ Get up as they walked off.
 
 ## Wikilinks load test
 
-[[upstart magic bullet]]
-[[refrigerating kilimanjaro]]
-[[papery gorgerin]]
+[[enervated kingdom of swaziland]]
+[[provable auditory area]]
+[[backlink load test]]

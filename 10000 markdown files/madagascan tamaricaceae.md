@@ -86,8 +86,5 @@ Beautiful Soup does yer
 
 ## Wikilinks load test
 
-[[inappropriate anemone riparia]]
-[[age-related genus sitophylus]]
-[[actuated albuginea]]
-[[rife percoid fish]]
-[[polydactylous norman architecture]]
+[[canaliculate universal veil]]
+[[backlink load test]]

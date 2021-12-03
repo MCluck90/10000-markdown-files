@@ -76,8 +76,5 @@ Let's go nearer till
 
 ## Wikilinks load test
 
-[[two-humped ornithischian]]
-[[swordlike staffordshire bull terrier]]
-[[corpulent pilea pumilla]]
-[[chaetognathous mucous membrane]]
-[[butyraceous philippopolis]]
+[[slanting genus capra]]
+[[backlink load test]]

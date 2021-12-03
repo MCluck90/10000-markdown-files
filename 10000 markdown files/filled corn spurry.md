@@ -78,7 +78,5 @@ won't you make with Dinah
 
 ## Wikilinks load test
 
-[[abroach shell ginger]]
-[[gamey chromatic scale]]
-[[scabby triaenodon]]
-[[arundinaceous l-dopa]]
+[[succulent small cell carcinoma]]
+[[backlink load test]]

@@ -86,4 +86,7 @@ Write that makes the
 
 ## Wikilinks load test
 
-[[commercial mt. everest]]
+[[cut out recife]]
+[[hindmost levi-strauss]]
+[[freewill baseball card]]
+[[backlink load test]]

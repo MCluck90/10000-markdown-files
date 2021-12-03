@@ -82,5 +82,5 @@ Either the highest tree.
 
 ## Wikilinks load test
 
-[[vital copper glance]]
-[[sparse genus carum]]
+[[intrasentential rupicola peruviana]]
+[[backlink load test]]

@@ -87,6 +87,5 @@ Fetch me Pat.
 
 ## Wikilinks load test
 
-[[awful relativity]]
-[[xciii constipation]]
-[[bicylindrical josiah willard gibbs]]
+[[wittgensteinian sir james augustus murray]]
+[[backlink load test]]

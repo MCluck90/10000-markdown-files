@@ -84,8 +84,7 @@ I've something important unimportant important as
 
 ## Wikilinks load test
 
-[[broody blattella germanica]]
-[[paradigmatic dashiell hammett]]
-[[short-range bawler]]
-[[empirical chimney swift]]
-[[farming zambezi]]
+[[hypoactive tare]]
+[[overindulgent gladness]]
+[[hard-of-hearing yves tanguy]]
+[[backlink load test]]

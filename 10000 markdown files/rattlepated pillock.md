@@ -85,6 +85,8 @@ so very likely story.
 
 ## Wikilinks load test
 
-[[paperlike cello]]
-[[jural saddler]]
-[[dietetical strawberry hemangioma]]
+[[bulbous ridgeline]]
+[[rhythmic gasolene]]
+[[mystifying varnish tree]]
+[[shabby-genteel smart]]
+[[backlink load test]]

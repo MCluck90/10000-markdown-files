@@ -87,5 +87,9 @@ they'll do let you
 
 ## Wikilinks load test
 
-[[acyclic loblolly]]
-[[whitened amethystine python]]
+[[disavowable dagon]]
+[[related to operand]]
+[[parabolical sidereal day]]
+[[populous corticosteroid]]
+[[untrusting transmutability]]
+[[backlink load test]]

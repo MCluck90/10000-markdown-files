@@ -94,6 +94,5 @@ was gone.
 
 ## Wikilinks load test
 
-[[lasting scriber]]
-[[orthomolecular ash gray]]
-[[constitutional arteria cerebelli]]
+[[belittling ginkgophytina]]
+[[backlink load test]]

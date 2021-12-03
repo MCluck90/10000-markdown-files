@@ -88,7 +88,5 @@ Run home.
 
 ## Wikilinks load test
 
-[[keyless daimler]]
-[[evangelistic tickling]]
-[[fogged leo the lion]]
-[[late-flowering gorilla gorilla gorilla]]
+[[spunky devils flax]]
+[[backlink load test]]

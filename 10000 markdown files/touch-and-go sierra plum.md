@@ -79,4 +79,9 @@ Is that ever getting
 
 ## Wikilinks load test
 
-[[in-chief circulating decimal]]
+[[sophomore smoke bomb]]
+[[kantian chipping]]
+[[unforgettable alsophila pometaria]]
+[[dusky-coloured babys dummy]]
+[[eremitic broad arrow]]
+[[backlink load test]]

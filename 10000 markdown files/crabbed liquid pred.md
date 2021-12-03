@@ -78,8 +78,6 @@ sh.
 
 ## Wikilinks load test
 
-[[ground-floor synthetic cubism]]
-[[omissive neolentinus]]
-[[nonobligatory sideropenia]]
-[[geostrategic forefather]]
-[[polysemantic anthropogeny]]
+[[administrative pine tree]]
+[[inlaid motor ataxia]]
+[[backlink load test]]

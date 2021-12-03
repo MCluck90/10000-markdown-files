@@ -78,8 +78,9 @@ Never imagine yourself some other
 
 ## Wikilinks load test
 
-[[all-important elkhorn fern]]
-[[amphiprostyle hyper-eutectoid steel]]
-[[cryogenic muscidae]]
-[[jarring carduelis cucullata]]
-[[broad-headed tapis]]
+[[slow-witted brown bat]]
+[[unconventional class war]]
+[[safe metic]]
+[[burbling rana goliath]]
+[[pinnatifid temporal arrangement]]
+[[backlink load test]]

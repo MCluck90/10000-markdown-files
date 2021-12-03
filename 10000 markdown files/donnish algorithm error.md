@@ -83,8 +83,6 @@ IT.
 
 ## Wikilinks load test
 
-[[colourless phloem]]
-[[award-winning premature labour]]
-[[valent saturday night special]]
-[[abducent common racoon]]
-[[macrocosmic calymmatobacterium granulomatis]]
+[[libidinous shellac varnish]]
+[[breezy deportee]]
+[[backlink load test]]

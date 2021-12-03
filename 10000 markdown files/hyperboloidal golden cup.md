@@ -77,6 +77,5 @@ catch a commotion in ringlets
 
 ## Wikilinks load test
 
-[[suitable bylaw]]
-[[nonsuppurative odontaspididae]]
-[[bar-shaped lime disease spirochete]]
+[[inward-moving solar constant]]
+[[backlink load test]]

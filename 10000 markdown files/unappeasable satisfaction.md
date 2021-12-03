@@ -81,5 +81,6 @@ IT TO BE TRUE that's
 
 ## Wikilinks load test
 
-[[sleazy botany]]
-[[alphanumeric somersaulting]]
+[[awestricken lampropeltis triangulum]]
+[[tenth mammee apple]]
+[[backlink load test]]

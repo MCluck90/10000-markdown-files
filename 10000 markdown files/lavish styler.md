@@ -86,8 +86,7 @@ Nearly two sobs to
 
 ## Wikilinks load test
 
-[[juridical torture chamber]]
-[[windy new world beaver]]
-[[misplaced genus scomberesox]]
-[[semantic bokmal]]
-[[cytologic umbrella bird]]
+[[efferent largemouthed black bass]]
+[[neo-lamarckian collection plate]]
+[[oncologic laureate]]
+[[backlink load test]]

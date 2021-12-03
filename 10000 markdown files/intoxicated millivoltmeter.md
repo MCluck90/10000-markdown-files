@@ -84,8 +84,8 @@ Serpent.
 
 ## Wikilinks load test
 
-[[frayed mover]]
-[[endozoan sully]]
-[[self-disciplined archaebacterium]]
-[[catarrhal plavix]]
-[[xv false saber-toothed tiger]]
+[[wrinkleless vapours]]
+[[merging overgrowth]]
+[[penitential wire glass]]
+[[prenatal spotted crake]]
+[[backlink load test]]

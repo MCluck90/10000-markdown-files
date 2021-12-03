@@ -92,8 +92,6 @@ This is Bill was something
 
 ## Wikilinks load test
 
-[[responsive type family]]
-[[large-minded genus coturnix]]
-[[unobtainable cumberland plateau]]
-[[numeric bhagavad-gita]]
-[[three-legged pericardial sac]]
+[[aneurysmal annona muricata]]
+[[crapulent life imprisonment]]
+[[backlink load test]]

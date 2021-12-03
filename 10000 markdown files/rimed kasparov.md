@@ -88,7 +88,6 @@ Suppress him said it to
 
 ## Wikilinks load test
 
-[[planetary temptation]]
-[[equinoctial high-warp loom]]
-[[catercorner burial ground]]
-[[second-sighted cynodontia]]
+[[piteous pitchstone]]
+[[rachitic laugher]]
+[[backlink load test]]

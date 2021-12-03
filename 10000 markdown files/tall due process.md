@@ -85,7 +85,8 @@ He only kept a
 
 ## Wikilinks load test
 
-[[treed black humor]]
-[[logy troponymy]]
-[[short and sweet dryer]]
-[[stipendiary klan]]
+[[candescent psychobabble]]
+[[panicky isurus glaucus]]
+[[h-shaped dustmop]]
+[[flag-waving sinusoidal projection]]
+[[backlink load test]]

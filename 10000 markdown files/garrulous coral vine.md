@@ -87,8 +87,6 @@ Have some day.
 
 ## Wikilinks load test
 
-[[diploid autotelism]]
-[[unprotected anhydride]]
-[[underfed bloodguilt]]
-[[awl-shaped psycholinguist]]
-[[foul-spoken fornicatress]]
+[[low-growing onomatomania]]
+[[labyrinthian job-control language]]
+[[backlink load test]]

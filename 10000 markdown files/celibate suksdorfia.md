@@ -78,5 +78,5 @@ on both go to wink of
 
 ## Wikilinks load test
 
-[[ungraded chelonian reptile]]
-[[home-style serigraph]]
+[[dry-cleaned paleness]]
+[[backlink load test]]

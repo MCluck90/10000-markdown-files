@@ -94,8 +94,9 @@ Please then keep the
 
 ## Wikilinks load test
 
-[[embonpoint dijon]]
-[[principal spassky]]
-[[lamarckian philadelphus coronarius]]
-[[sheltered oahu]]
-[[eel-shaped sneezer]]
+[[avoidable che guevara]]
+[[roan chlordiazepoxide]]
+[[passant blood clot]]
+[[expiratory hyoscyamus muticus]]
+[[bhutanese rule of morphology]]
+[[backlink load test]]

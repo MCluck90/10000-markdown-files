@@ -84,7 +84,7 @@ Dinah'll be ONE.
 
 ## Wikilinks load test
 
-[[blue-purple malayalam]]
-[[preserved intelligence cell]]
-[[biogeographic ablation]]
-[[averse celiocentesis]]
+[[legato pterygoid muscle]]
+[[prehensile cgs system]]
+[[knockabout ravelling]]
+[[backlink load test]]

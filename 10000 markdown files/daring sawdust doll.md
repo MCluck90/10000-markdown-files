@@ -94,7 +94,5 @@ they'll remember it stays
 
 ## Wikilinks load test
 
-[[neo class pteridospermopsida]]
-[[bimodal birdsong]]
-[[triangular mountain pride]]
-[[choosy hosiery]]
+[[unconvincing genus comatula]]
+[[backlink load test]]

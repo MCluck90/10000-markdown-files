@@ -84,8 +84,5 @@ Does the wandering when
 
 ## Wikilinks load test
 
-[[personable strawberry tomato]]
-[[end-rhymed coquetry]]
-[[consolatory marrakesh]]
-[[canicular san joaquin river]]
-[[branchiopodan ecstasy]]
+[[absorbefacient trap]]
+[[backlink load test]]

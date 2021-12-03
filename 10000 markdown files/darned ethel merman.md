@@ -82,8 +82,6 @@ Quick now had expected before.
 
 ## Wikilinks load test
 
-[[aecial kafiri]]
-[[muscovite zonal pelargonium]]
-[[endocentric blue baby]]
-[[tortious hypothermia]]
-[[taxonomical exercising]]
+[[kind teiid lizard]]
+[[efficient sarda chiliensis]]
+[[backlink load test]]

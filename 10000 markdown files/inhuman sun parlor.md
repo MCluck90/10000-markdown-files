@@ -83,8 +83,6 @@ thump.
 
 ## Wikilinks load test
 
-[[illusory caramel bun]]
-[[dehumanised omelette pan]]
-[[hysterical epictetus]]
-[[euphonic pigmentation]]
-[[distrait cirsium heterophylum]]
+[[immortal electrical power]]
+[[syphilitic venula]]
+[[backlink load test]]

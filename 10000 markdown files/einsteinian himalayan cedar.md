@@ -94,7 +94,5 @@ Therefore I'm getting somewhere near
 
 ## Wikilinks load test
 
-[[sweet-scented transistor]]
-[[geometrical osteoblast]]
-[[consoling impresario]]
-[[refractive genus eretmochelys]]
+[[stony-broke radio operator]]
+[[backlink load test]]

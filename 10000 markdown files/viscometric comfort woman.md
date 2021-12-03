@@ -84,7 +84,6 @@ William and retire in
 
 ## Wikilinks load test
 
-[[rule-governed threshing floor]]
-[[semicentenary bitter pea]]
-[[truncated anarchist]]
-[[hair-raising corokia]]
+[[collagenic little bighorn river]]
+[[seljuk glossopharyngeal nerve]]
+[[backlink load test]]

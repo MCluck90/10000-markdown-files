@@ -74,8 +74,9 @@ Up lazy thing I've a
 
 ## Wikilinks load test
 
-[[overage girru]]
-[[snazzy furfural]]
-[[nonsubmersible eye-catcher]]
-[[cloven-hoofed corythosaurus]]
-[[nodding revolutionary proletarian nucleus]]
+[[ixc benny hill]]
+[[western george town]]
+[[impoverished aloe family]]
+[[geometrical chelidonium majus]]
+[[patent dionysius]]
+[[backlink load test]]

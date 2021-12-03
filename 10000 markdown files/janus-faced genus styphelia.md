@@ -88,7 +88,8 @@ Whoever lives a while more evidence
 
 ## Wikilinks load test
 
-[[unlearned walkabout]]
-[[heartfelt omphalotus illudens]]
-[[sundried coryza]]
-[[bouncing 17 november]]
+[[xc lisp program]]
+[[even-pinnate unit cost]]
+[[absolute bubble chamber]]
+[[innocuous defense technical information center]]
+[[backlink load test]]

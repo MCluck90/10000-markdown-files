@@ -84,5 +84,8 @@ Even the earth.
 
 ## Wikilinks load test
 
-[[herbivorous apple butter]]
-[[superfatted output]]
+[[adulterated course catalogue]]
+[[christly kilowatt]]
+[[hispaniolan hebraist]]
+[[fanatic natural gas]]
+[[backlink load test]]

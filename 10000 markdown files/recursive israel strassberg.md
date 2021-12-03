@@ -77,6 +77,5 @@ _I_ shan't be a
 
 ## Wikilinks load test
 
-[[overburdened y-axis]]
-[[inapt rectal reflex]]
-[[callous effulgence]]
+[[acinose burmeisteria retusa]]
+[[backlink load test]]

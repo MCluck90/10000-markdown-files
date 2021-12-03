@@ -85,5 +85,8 @@ Hush.
 
 ## Wikilinks load test
 
-[[dreamed crex crex]]
-[[fixed flagstaff]]
+[[clip-on fuji-san]]
+[[large-capitalization family solenidae]]
+[[perplexing protester]]
+[[bismuthic fixed-width font]]
+[[backlink load test]]

@@ -89,6 +89,9 @@ later editions continued the regular course
 
 ## Wikilinks load test
 
-[[self-seeking graminales]]
-[[amalgamative lignum]]
-[[intradermal international terrorism]]
+[[silky-leafed incontinency]]
+[[bardic devanagari script]]
+[[spondaic installation]]
+[[topological mafioso]]
+[[downtown cobble]]
+[[backlink load test]]

@@ -80,7 +80,9 @@ about.
 
 ## Wikilinks load test
 
-[[perked up spit and polish]]
-[[southeast prince consort]]
-[[bronchoscopic pewter]]
-[[eusporangiate valeric acid]]
+[[gynaecological ptyas]]
+[[tenth mammee apple]]
+[[lexicographical waxmallow]]
+[[right-side-up quidnunc]]
+[[ignitible piano wire]]
+[[backlink load test]]

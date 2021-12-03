@@ -87,7 +87,7 @@ Seven said pig Alice you had
 
 ## Wikilinks load test
 
-[[incident stereotype]]
-[[crenulated tonegawa susumu]]
-[[springy baked potato]]
-[[dowered incineration]]
+[[prospering bunny hug]]
+[[syrian megaflop]]
+[[donnean yellow cypress]]
+[[backlink load test]]

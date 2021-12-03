@@ -76,8 +76,6 @@ Hand it just see
 
 ## Wikilinks load test
 
-[[motherless bubble and squeak]]
-[[collected hieracium venosum]]
-[[tangy oil beetle]]
-[[flowering webbing moth]]
-[[otherwise sea trifoly]]
+[[neo class pteridospermopsida]]
+[[obovate geophysicist]]
+[[backlink load test]]

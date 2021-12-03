@@ -80,4 +80,8 @@ Take off the strange
 
 ## Wikilinks load test
 
-[[nonfat hare wallaby]]
+[[minimum good luck]]
+[[recognisable cheekiness]]
+[[deflated sanskrit]]
+[[lowercase panhandler]]
+[[backlink load test]]

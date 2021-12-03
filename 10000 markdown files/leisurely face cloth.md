@@ -86,8 +86,5 @@ Idiot.
 
 ## Wikilinks load test
 
-[[dashed hot-button issue]]
-[[unshaped cowman]]
-[[unnoticeable oreopteris]]
-[[stylized drift]]
-[[cut-and-dried hidden reserve]]
+[[suppressed genus nephrolepis]]
+[[backlink load test]]

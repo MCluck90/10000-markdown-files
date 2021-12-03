@@ -75,4 +75,7 @@ Treacle said EVERYBODY has
 
 ## Wikilinks load test
 
-[[entomophilous cedar nut]]
+[[promissory lucky lindy]]
+[[bright-red lake tanganyika]]
+[[ukrainian fast reactor]]
+[[backlink load test]]

@@ -86,5 +86,5 @@ Still she still sobbing she again
 
 ## Wikilinks load test
 
-[[patrimonial vladimir lenin]]
-[[descending twin towers]]
+[[metaphoric ripper]]
+[[backlink load test]]

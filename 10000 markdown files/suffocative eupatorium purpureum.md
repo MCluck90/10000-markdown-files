@@ -92,5 +92,8 @@ Stop this Alice they haven't
 
 ## Wikilinks load test
 
-[[endless empirin]]
-[[hundred-and-twentieth milk sickness]]
+[[allegorical adenopathy]]
+[[asiatic air force academy]]
+[[burlesque punch pliers]]
+[[familiarising irresponsibility]]
+[[backlink load test]]

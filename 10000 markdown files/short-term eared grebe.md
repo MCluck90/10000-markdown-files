@@ -87,6 +87,9 @@ Pinch him it directed at me
 
 ## Wikilinks load test
 
-[[self-luminous the virgin]]
-[[nonfatal buckminster fuller]]
-[[ill-equipped paralithodes]]
+[[miserly chou en-lai]]
+[[semiotic ataturk]]
+[[babelike red giant star]]
+[[nippy haiku]]
+[[explosive ritualism]]
+[[backlink load test]]

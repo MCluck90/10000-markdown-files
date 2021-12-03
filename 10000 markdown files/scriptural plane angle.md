@@ -88,4 +88,7 @@ Ahem.
 
 ## Wikilinks load test
 
-[[undramatic genus scincus]]
+[[sound despatch]]
+[[comparable order podicipediformes]]
+[[shrinkable home movie]]
+[[backlink load test]]

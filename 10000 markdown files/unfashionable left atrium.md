@@ -88,5 +88,6 @@ holding and with passion
 
 ## Wikilinks load test
 
-[[bolometric tiresias]]
-[[credentialled mackinac bridge]]
+[[tamed philhellenist]]
+[[accustomed pingpong paddle]]
+[[backlink load test]]

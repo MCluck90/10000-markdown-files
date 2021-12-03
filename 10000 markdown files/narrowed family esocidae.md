@@ -86,8 +86,7 @@ Wake up now thought this very
 
 ## Wikilinks load test
 
-[[biggish corkscrew]]
-[[extortionate genus funka]]
-[[white-tie sasquatch]]
-[[brushed genus thermobia]]
-[[recondite haemoproteus]]
+[[comminatory calla palustris]]
+[[rushlike wayne]]
+[[blood-related yips]]
+[[backlink load test]]

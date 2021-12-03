@@ -93,8 +93,7 @@ With what such thing I
 
 ## Wikilinks load test
 
-[[handheld bitter cassava]]
-[[philatelical half hatchet]]
-[[able-bodied automatic teller machine]]
-[[quantal nutmeg family]]
-[[nine-membered photolithograph]]
+[[achromic golfing]]
+[[pinkish-white infinitude]]
+[[reprehensible ware]]
+[[backlink load test]]

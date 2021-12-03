@@ -84,6 +84,5 @@ How COULD grin.
 
 ## Wikilinks load test
 
-[[magical common foxglove]]
-[[heterometabolous jutland]]
-[[livable ops]]
+[[nonspatial swimmer]]
+[[backlink load test]]

@@ -87,8 +87,6 @@ exclaimed turning purple.
 
 ## Wikilinks load test
 
-[[cruciate bootlicker]]
-[[verbalised present progressive]]
-[[moon-round tobacco juice]]
-[[imbecilic fusain]]
-[[understood very high frequency]]
+[[web-toed articulated lorry]]
+[[gamy cordwood]]
+[[backlink load test]]

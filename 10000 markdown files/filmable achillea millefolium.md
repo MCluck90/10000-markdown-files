@@ -83,6 +83,5 @@ Write that SOMEBODY ought
 
 ## Wikilinks load test
 
-[[blebby thamnophilus]]
-[[conjugal octad]]
-[[anaclitic military censorship]]
+[[spurned plasterboard]]
+[[backlink load test]]

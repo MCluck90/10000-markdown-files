@@ -77,6 +77,8 @@ HEARTHRUG NEAR THE BOOTS
 
 ## Wikilinks load test
 
-[[infirm genus lycopersicum]]
-[[cantonal toxicodendron vernicifluum]]
-[[jolting heliotropism]]
+[[flat-top writ of right]]
+[[celtic attracter]]
+[[curly-grained levi-strauss]]
+[[two-needled sparkling wine]]
+[[backlink load test]]

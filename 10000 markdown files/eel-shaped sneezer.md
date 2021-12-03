@@ -92,8 +92,7 @@ Up above the Queen's ears for
 
 ## Wikilinks load test
 
-[[alpine rattail]]
-[[hundred-and-sixty-fifth benzodiazepine]]
-[[educative avocado pear]]
-[[formulary phenobarbital]]
-[[antemortem cub]]
+[[supranormal cortland]]
+[[empowered isopoda]]
+[[annular garlic chive]]
+[[backlink load test]]

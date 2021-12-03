@@ -87,8 +87,5 @@ IF I needn't try if we
 
 ## Wikilinks load test
 
-[[nutritional battle of pharsalus]]
-[[principal spassky]]
-[[sociable asterid dicot family]]
-[[bothersome abu dhabi]]
-[[angiomatous hog]]
+[[unaided genus ptyas]]
+[[backlink load test]]

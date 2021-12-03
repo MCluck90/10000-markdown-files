@@ -83,5 +83,5 @@ Tis the capital of THAT direction
 
 ## Wikilinks load test
 
-[[painted agrippina the elder]]
-[[waggish seek]]
+[[peachy plumage]]
+[[backlink load test]]

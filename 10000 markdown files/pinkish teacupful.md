@@ -77,4 +77,9 @@ Why they're not appear and reduced
 
 ## Wikilinks load test
 
-[[darned ethel merman]]
+[[tongan bitter cress]]
+[[multipotent slumberer]]
+[[statistical blackfoot]]
+[[distraught multiengine plane]]
+[[blebby thamnophilus]]
+[[backlink load test]]

@@ -84,8 +84,6 @@ An arm a fact
 
 ## Wikilinks load test
 
-[[watertight capsicum frutescens]]
-[[silver-haired genus lanthanotus]]
-[[insolent lanyard]]
-[[self-directed radioscopy]]
-[[thirteenth pitta]]
+[[breasted bowstring hemp]]
+[[good-humoured aramaic]]
+[[backlink load test]]

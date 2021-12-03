@@ -88,6 +88,5 @@ Same as usual you can't
 
 ## Wikilinks load test
 
-[[fashioned andelmin]]
-[[annular indecorousness]]
-[[polyploid geomorphology]]
+[[limp buttermilk]]
+[[backlink load test]]

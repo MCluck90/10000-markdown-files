@@ -83,4 +83,5 @@ They lived much pleasanter
 
 ## Wikilinks load test
 
-[[showery paragrapher]]
+[[diabolical citrus tree]]
+[[backlink load test]]

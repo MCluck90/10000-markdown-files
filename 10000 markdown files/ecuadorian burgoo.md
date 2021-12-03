@@ -79,4 +79,7 @@ Ahem.
 
 ## Wikilinks load test
 
-[[raftered fencing mask]]
+[[rabble-rousing birthroot]]
+[[undutiful cleome hassleriana]]
+[[bared trumpet tree]]
+[[backlink load test]]

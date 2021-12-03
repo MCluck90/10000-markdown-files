@@ -86,8 +86,8 @@ wow.
 
 ## Wikilinks load test
 
-[[cathodic gentleness]]
-[[postganglionic file cabinet]]
-[[well-favoured indigo]]
-[[uneconomical naval tactical data system]]
-[[pantalooned oesterreich]]
+[[competitory naumachy]]
+[[paleozoic absolver]]
+[[patrilinear paedophile]]
+[[full-size choke coil]]
+[[backlink load test]]

@@ -89,4 +89,6 @@ Either the mushroom for its children.
 
 ## Wikilinks load test
 
-[[graphic scet]]
+[[sarcosomal statecraft]]
+[[riskless jackknife]]
+[[backlink load test]]

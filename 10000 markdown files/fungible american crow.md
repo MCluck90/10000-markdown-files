@@ -87,8 +87,5 @@ roared the beak Pray don't
 
 ## Wikilinks load test
 
-[[vociferous good-temperedness]]
-[[obedient cortaderia selloana]]
-[[stopped up pilot ladder]]
-[[lateen-rigged dress hat]]
-[[cross-eyed esophagus]]
+[[exothermic hogarth]]
+[[backlink load test]]

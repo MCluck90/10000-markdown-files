@@ -84,6 +84,8 @@ Twinkle twinkle twinkle Here
 
 ## Wikilinks load test
 
-[[untrusting transmutability]]
-[[runaway liposome]]
-[[endemical king of england]]
+[[frothy ribes sativum]]
+[[exothermal molding]]
+[[levelheaded epigastric fossa]]
+[[ill-tempered pediatrician]]
+[[backlink load test]]

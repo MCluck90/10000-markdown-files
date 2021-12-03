@@ -78,8 +78,6 @@ Whoever lives there they seemed to
 
 ## Wikilinks load test
 
-[[blowsy kaffir corn]]
-[[destructible saint augustine]]
-[[dissected gridiron]]
-[[collarless inferior epigastric vein]]
-[[single-barreled cranberry juice]]
+[[kantian dark-field microscope]]
+[[vapourised ca]]
+[[backlink load test]]

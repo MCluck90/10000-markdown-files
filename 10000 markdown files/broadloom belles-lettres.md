@@ -86,8 +86,6 @@ Digging for asking riddles.
 
 ## Wikilinks load test
 
-[[practised channel catfish]]
-[[collegiate lemon meringue pie]]
-[[churrigueresque patrick white]]
-[[utilizable ethyl acetate]]
-[[autobiographical crankcase]]
+[[rhombohedral sports page]]
+[[basiscopic adjuvant]]
+[[backlink load test]]

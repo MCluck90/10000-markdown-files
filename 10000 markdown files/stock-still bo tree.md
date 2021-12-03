@@ -79,8 +79,8 @@ I BEG your tongue
 
 ## Wikilinks load test
 
-[[distrait cirsium heterophylum]]
-[[lumpy hooded seal]]
-[[connate rupicolous plant]]
-[[hair-raising rene antoine ferchault de reaumur]]
-[[coal-burning marlinspike]]
+[[thoughtful troop carrier]]
+[[utile muscle relaxant]]
+[[chlorophyllous venter]]
+[[ruinous microradian]]
+[[backlink load test]]

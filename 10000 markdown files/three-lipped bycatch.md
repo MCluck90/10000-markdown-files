@@ -78,8 +78,6 @@ RABBIT engraved upon the
 
 ## Wikilinks load test
 
-[[roman catholic helmet]]
-[[invidious smokescreen]]
-[[languorous lynx rufus]]
-[[cortico-hypothalamic genus psychotria]]
-[[uncorrelated audio compact disc]]
+[[unsalaried qibla]]
+[[subaquatic taklamakan desert]]
+[[backlink load test]]

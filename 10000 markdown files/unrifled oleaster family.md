@@ -84,7 +84,6 @@ exclaimed.
 
 ## Wikilinks load test
 
-[[bared trumpet tree]]
-[[evolutionary black snakeroot]]
-[[specified order temnospondyli]]
-[[antenatal ethnic slur]]
+[[galled fred hoyle]]
+[[portable interventricular foramen]]
+[[backlink load test]]

@@ -83,8 +83,8 @@ And beat them quite hungry
 
 ## Wikilinks load test
 
-[[freakish anima]]
-[[blurry centaurea moschata]]
-[[hindu vepsian]]
-[[bothersome abu dhabi]]
-[[distinctive family peridiniidae]]
+[[pelvic european catfish]]
+[[unwilled linseed]]
+[[ulcerative xylene]]
+[[hand-down eremite]]
+[[backlink load test]]

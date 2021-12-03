@@ -82,6 +82,9 @@ UNimportant of bread-and butter
 
 ## Wikilinks load test
 
-[[alphanumeric somersaulting]]
-[[hemiparasitic tactical maneuver]]
-[[gangling cush-cush]]
+[[bimotored indian chocolate]]
+[[tutelary commission on human rights]]
+[[broody marsh buggy]]
+[[unenforced birth-control reformer]]
+[[argent catchphrase]]
+[[backlink load test]]

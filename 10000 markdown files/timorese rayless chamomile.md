@@ -88,5 +88,6 @@ down stupid whether it old woman
 
 ## Wikilinks load test
 
-[[unaddressed rose globe lily]]
-[[wimpy cricket]]
+[[untaught cockatoo]]
+[[awesome handrest]]
+[[backlink load test]]

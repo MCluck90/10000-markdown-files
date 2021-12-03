@@ -84,6 +84,8 @@ Sing her pet Dinah's our cat
 
 ## Wikilinks load test
 
-[[multiplied hypermotility]]
-[[crabwise pavo]]
-[[contested citellus citellus]]
+[[ordinal big sioux river]]
+[[rhombohedral sports page]]
+[[guatemalan sapidness]]
+[[liquefiable genus mandragora]]
+[[backlink load test]]

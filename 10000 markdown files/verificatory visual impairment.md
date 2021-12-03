@@ -95,6 +95,9 @@ Pray how the driest thing
 
 ## Wikilinks load test
 
-[[enforceable prunus nigra]]
-[[heavenly babinski reflex]]
-[[naturistic austronesia]]
+[[galilean laity]]
+[[cod steamship line]]
+[[hypothermic starlight]]
+[[victimised descriptive adjective]]
+[[endemic political prisoner]]
+[[backlink load test]]

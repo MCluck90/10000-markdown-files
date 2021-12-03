@@ -88,6 +88,5 @@ In a most important
 
 ## Wikilinks load test
 
-[[wingless common european dogwood]]
-[[joint primum mobile]]
-[[recursive israel strassberg]]
+[[thronged blackmail]]
+[[backlink load test]]

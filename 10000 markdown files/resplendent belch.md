@@ -83,8 +83,5 @@ Down down but out-of the-way down
 
 ## Wikilinks load test
 
-[[drug-addicted tablecloth]]
-[[sour first-rater]]
-[[decipherable amenhotep iv]]
-[[splotched blood line]]
-[[eviscerate clerkship]]
+[[noncontinuous jaggary]]
+[[backlink load test]]

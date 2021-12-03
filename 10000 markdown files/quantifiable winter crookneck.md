@@ -89,8 +89,9 @@ Hold up this there
 
 ## Wikilinks load test
 
-[[riblike capitulum]]
-[[boeotian autograph album]]
-[[unmortgaged spore]]
-[[upscale gallinago]]
-[[gradual tile]]
+[[delimited reconnaissance]]
+[[roundish kaiser bill]]
+[[ultrasonic eight]]
+[[pseudoperipteral symmetry]]
+[[dilatory agapornis]]
+[[backlink load test]]

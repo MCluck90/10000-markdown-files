@@ -83,8 +83,9 @@ Seals turtles salmon and
 
 ## Wikilinks load test
 
-[[set-apart bush poppy]]
-[[westward family cupressaceae]]
-[[artistic woolly aphid]]
-[[squinty arrow wood]]
-[[pushy practical politics]]
+[[distal transylvania]]
+[[inopportune maclura pomifera]]
+[[zany motorman]]
+[[unguided academic gown]]
+[[short-range bawler]]
+[[backlink load test]]

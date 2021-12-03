@@ -91,6 +91,6 @@ Serpent.
 
 ## Wikilinks load test
 
-[[gymnosophical thermonuclear bomb]]
-[[unclouded intelligibility]]
-[[millennial lesser burdock]]
+[[analeptic airfare]]
+[[softish liquid crystal display]]
+[[backlink load test]]

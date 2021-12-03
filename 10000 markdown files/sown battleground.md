@@ -79,8 +79,8 @@ wow.
 
 ## Wikilinks load test
 
-[[erect genus ephippiorhynchus]]
-[[quenchless count per minute]]
-[[longish acupuncture]]
-[[guided steenbok]]
-[[crosswise foreign terrorist organization]]
+[[abkhazian opcw]]
+[[in dishabille acalypha virginica]]
+[[underpopulated selaginella eremophila]]
+[[harum-scarum salp]]
+[[backlink load test]]

@@ -96,5 +96,6 @@ either the White Rabbit
 
 ## Wikilinks load test
 
-[[cum laude actaea rubra]]
-[[pectic adducer]]
+[[larboard go-cart]]
+[[mephistophelian weeder]]
+[[backlink load test]]

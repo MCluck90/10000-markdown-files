@@ -79,6 +79,5 @@ Up lazy thing to
 
 ## Wikilinks load test
 
-[[sleeved rubus chamaemorus]]
-[[unrecognisable genus ambloplites]]
-[[untouchable genus swainsona]]
+[[thirty-four sausage pizza]]
+[[backlink load test]]

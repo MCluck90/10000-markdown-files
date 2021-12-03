@@ -88,7 +88,6 @@ Not QUITE as ferrets.
 
 ## Wikilinks load test
 
-[[covetous resurrection fern]]
-[[dependant on genus cepphus]]
-[[limitless elucidation]]
-[[aeolotropic cercopithecidae]]
+[[acerose freedom rider]]
+[[testamentary tracheotomy]]
+[[backlink load test]]

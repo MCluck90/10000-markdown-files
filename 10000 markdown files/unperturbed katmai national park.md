@@ -87,8 +87,6 @@ later editions continued turning
 
 ## Wikilinks load test
 
-[[evitable homestead]]
-[[unended yajur-veda]]
-[[woolen beerbohm]]
-[[obsessed statuary]]
-[[knee-length foam rubber]]
+[[omnibus collard]]
+[[articulary cervicofacial actinomycosis]]
+[[backlink load test]]

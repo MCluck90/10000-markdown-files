@@ -83,7 +83,5 @@ As wet cross and eager
 
 ## Wikilinks load test
 
-[[unchallenged sumo]]
-[[superior hydrodiuril]]
-[[unbalconied carboy]]
-[[perturbing treasure chest]]
+[[reportable cutting edge]]
+[[backlink load test]]

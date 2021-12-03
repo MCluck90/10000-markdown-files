@@ -83,7 +83,7 @@ Sounds of sob I've
 
 ## Wikilinks load test
 
-[[different genus polioptila]]
-[[unconstrained anemic anoxia]]
-[[postwar red panda]]
-[[marly genus lota]]
+[[six nephrosis]]
+[[unarbitrary humulus]]
+[[onomatopoetic venality]]
+[[backlink load test]]

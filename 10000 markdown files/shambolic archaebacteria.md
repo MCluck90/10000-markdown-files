@@ -84,6 +84,5 @@ See how eagerly half shut up
 
 ## Wikilinks load test
 
-[[heartfelt kitchenware]]
-[[nonchalant paganini]]
-[[one hundred seventy blue grama]]
+[[reborn wonder]]
+[[backlink load test]]

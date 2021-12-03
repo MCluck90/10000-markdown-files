@@ -87,8 +87,5 @@ Chorus again heard in such
 
 ## Wikilinks load test
 
-[[colonnaded metaphase]]
-[[thumping push-down queue]]
-[[sobering pitchman]]
-[[clever sceptic]]
-[[missionary sorting algorithm]]
+[[confirmatory xl]]
+[[backlink load test]]

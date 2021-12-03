@@ -80,7 +80,8 @@ Boots and making personal
 
 ## Wikilinks load test
 
-[[sextuple partiality]]
-[[bogartian genus piroplasma]]
-[[enforceable prunus nigra]]
-[[missionary sorting algorithm]]
+[[corneal nascence]]
+[[alone double first]]
+[[prostrate ziziphus jujuba]]
+[[rotten floret]]
+[[backlink load test]]

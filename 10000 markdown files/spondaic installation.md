@@ -80,6 +80,6 @@ Would not quite like ears and
 
 ## Wikilinks load test
 
-[[parthian serious music]]
-[[shallow-draught beach plum]]
-[[attacking hackelia]]
+[[fussy russian thistle]]
+[[rectilinear arctonyx collaris]]
+[[backlink load test]]

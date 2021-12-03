@@ -86,7 +86,9 @@ I'M not the loveliest garden
 
 ## Wikilinks load test
 
-[[censored ulmus parvifolia]]
-[[leaded beater]]
-[[laureate sedulity]]
-[[euphonic snow line]]
+[[pollyannaish bastardy proceeding]]
+[[dizzy southern tai]]
+[[confutative rib]]
+[[uniovular nivose]]
+[[catarrhal plavix]]
+[[backlink load test]]

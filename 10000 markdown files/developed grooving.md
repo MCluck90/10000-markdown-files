@@ -81,8 +81,7 @@ Ahem.
 
 ## Wikilinks load test
 
-[[untenable rock n roll musician]]
-[[near-blind fraxinella]]
-[[innocent ixodid]]
-[[olive-grey king hussein]]
-[[indiscriminating digital clock]]
+[[low-beam chemical substance]]
+[[censorial ethnic minority]]
+[[contested citellus citellus]]
+[[backlink load test]]

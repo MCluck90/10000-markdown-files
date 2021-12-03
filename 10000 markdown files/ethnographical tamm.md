@@ -85,8 +85,9 @@ Off Nonsense.
 
 ## Wikilinks load test
 
-[[inconsequential hyperotreta]]
-[[oceanic abb]]
-[[autocatalytic great rift valley]]
-[[cranky naked option]]
-[[nonglutinous scomberesox saurus]]
+[[flamboyant algae]]
+[[inchoative acetyl]]
+[[unsubduable alliaceae]]
+[[yellow-tipped acknowledgement]]
+[[fuzzy crocodile river]]
+[[backlink load test]]

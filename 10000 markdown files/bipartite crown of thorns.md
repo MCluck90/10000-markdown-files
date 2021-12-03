@@ -87,4 +87,8 @@ Call it meant to
 
 ## Wikilinks load test
 
-[[bridal cape verde escudo]]
+[[blown handiwork]]
+[[antique coffee rose]]
+[[monochromatic silver gray]]
+[[heated up greater scaup]]
+[[backlink load test]]

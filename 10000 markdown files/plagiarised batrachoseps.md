@@ -77,6 +77,8 @@ Did you don't like you
 
 ## Wikilinks load test
 
-[[biggish genus volvox]]
-[[cumulous milliwatt]]
-[[dangerous gaius julius caesar octavianus]]
+[[ixc benny hill]]
+[[toupeed tenderizer]]
+[[wry wild sensitive plant]]
+[[flightless pond apple]]
+[[backlink load test]]

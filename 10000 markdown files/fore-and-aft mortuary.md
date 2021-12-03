@@ -83,6 +83,8 @@ Chorus again but there must
 
 ## Wikilinks load test
 
-[[plodding nominalist]]
-[[honorific sino-tibetan]]
-[[botuliform coreopsis tinctoria]]
+[[self-aggrandising ruth]]
+[[fin de siecle charcoal]]
+[[disadvantageous hotel detective]]
+[[violet-black raftsman]]
+[[backlink load test]]

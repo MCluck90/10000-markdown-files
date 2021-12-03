@@ -95,8 +95,8 @@ I'll take him She drew
 
 ## Wikilinks load test
 
-[[chartered guanine]]
-[[sudorific lilyturf]]
-[[chthonic family squillidae]]
-[[rhizoidal startle response]]
-[[topless john wickliffe]]
+[[exploratory ruiner]]
+[[misogynic mandibular joint]]
+[[travel-worn conestoga wagon]]
+[[splenic molding]]
+[[backlink load test]]

@@ -91,7 +91,7 @@ It's enough I speak
 
 ## Wikilinks load test
 
-[[dowered incineration]]
-[[living smoking car]]
-[[preternatural nub]]
-[[aneurysmal annona muricata]]
+[[ambiguous homepage]]
+[[exothermic hogarth]]
+[[trackable genus octopus]]
+[[backlink load test]]

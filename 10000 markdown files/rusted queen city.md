@@ -79,8 +79,9 @@ exclaimed in books and mustard isn't
 
 ## Wikilinks load test
 
-[[suntanned concavity]]
-[[registered fashion designer]]
-[[precipitating mistletoe cactus]]
-[[confucian genus richea]]
-[[aneurysmal annona muricata]]
+[[panicked tricholoma venenata]]
+[[splenic garnishment]]
+[[trial-and-error propellant]]
+[[varicose buddleia]]
+[[taxonomical exercising]]
+[[backlink load test]]

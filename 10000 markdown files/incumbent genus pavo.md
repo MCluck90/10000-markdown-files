@@ -90,6 +90,6 @@ when I'm on all
 
 ## Wikilinks load test
 
-[[client-server iliamna]]
-[[dismissible bier]]
-[[mail-clad pomoxis nigromaculatus]]
+[[stopped up lymphocyte]]
+[[highfaluting berkshires]]
+[[backlink load test]]

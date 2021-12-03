@@ -81,5 +81,6 @@ Can't remember WHAT are very interesting
 
 ## Wikilinks load test
 
-[[stygian autumn sneezeweed]]
-[[light-colored old hand]]
+[[indefensible staysail]]
+[[vague association for the advancement of retired persons]]
+[[backlink load test]]

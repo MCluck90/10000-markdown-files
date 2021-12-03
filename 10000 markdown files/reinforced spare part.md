@@ -87,7 +87,5 @@ here ought.
 
 ## Wikilinks load test
 
-[[serous wesleyism]]
-[[shaven africanized bee]]
-[[exemplary kemadrin]]
-[[prefatorial endothelial myeloma]]
+[[macho costal groove]]
+[[backlink load test]]

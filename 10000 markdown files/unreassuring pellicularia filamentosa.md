@@ -84,6 +84,8 @@ yelled the way you
 
 ## Wikilinks load test
 
-[[moblike auditory image]]
-[[nocturnal police state]]
-[[olivelike scalenus]]
+[[kind genus chilomeniscus]]
+[[antique coffee rose]]
+[[cryptical warmonger]]
+[[sentient straw man]]
+[[backlink load test]]

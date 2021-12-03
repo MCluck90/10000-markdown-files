@@ -79,8 +79,8 @@ Really my tail about easily in
 
 ## Wikilinks load test
 
-[[shrinkable clique]]
-[[buttoned-up press gallery]]
-[[overemotional inattention]]
-[[unrepaired babar]]
-[[botswanan shyness]]
+[[nonmagnetic jambeau]]
+[[huge glaucomys volans]]
+[[miry anadiplosis]]
+[[contaminating bell cot]]
+[[backlink load test]]

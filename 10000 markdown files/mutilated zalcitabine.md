@@ -86,6 +86,6 @@ Nothing can tell whether
 
 ## Wikilinks load test
 
-[[kind teiid lizard]]
-[[nine outlet box]]
-[[shaven africanized bee]]
+[[self-restraining bishkek]]
+[[softening ballot box]]
+[[backlink load test]]

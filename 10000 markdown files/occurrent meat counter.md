@@ -87,7 +87,9 @@ Read them called him I'll
 
 ## Wikilinks load test
 
-[[prickly peppermint gum]]
-[[lobeliaceous saguaro]]
-[[bismuthic fixed-width font]]
-[[austrian serum globulin]]
+[[rhizoidal startle response]]
+[[purplish-red entertainment deduction]]
+[[doubled computational linguistics]]
+[[tenderhearted macadamia]]
+[[symbolical nation]]
+[[backlink load test]]

@@ -85,6 +85,7 @@ Idiot.
 
 ## Wikilinks load test
 
-[[variable galloway]]
-[[unrefined genus tanacetum]]
-[[fawn-colored mental soundness]]
+[[conciliative gayness]]
+[[drastic genus ratibida]]
+[[mutative rip-off]]
+[[backlink load test]]

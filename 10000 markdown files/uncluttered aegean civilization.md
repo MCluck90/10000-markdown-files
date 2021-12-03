@@ -85,6 +85,6 @@ Hush.
 
 ## Wikilinks load test
 
-[[xc lisp program]]
-[[neuter cryptograph]]
-[[veinal gimpiness]]
+[[multiphase harriet elizabeth beecher stowe]]
+[[imprecise genus calocarpum]]
+[[backlink load test]]

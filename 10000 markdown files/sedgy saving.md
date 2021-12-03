@@ -87,5 +87,6 @@ cried Alice were down
 
 ## Wikilinks load test
 
-[[touched firebox]]
-[[sun-drenched arteria circumflexa scapulae]]
+[[amalgamative burthen]]
+[[self-fertilized hierarchical menu]]
+[[backlink load test]]

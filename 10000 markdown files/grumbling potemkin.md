@@ -82,6 +82,7 @@ So he got any
 
 ## Wikilinks load test
 
-[[stock-still bo tree]]
-[[unlearned pilar cyst]]
-[[fossiliferous darner]]
+[[puncturable cabman]]
+[[deuteranopic sea starwort]]
+[[tempest-tossed vascular bundle]]
+[[backlink load test]]

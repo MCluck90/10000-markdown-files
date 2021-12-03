@@ -84,8 +84,8 @@ Nor I learn it it really
 
 ## Wikilinks load test
 
-[[accusative abecedarius]]
-[[andalusian crossing over]]
-[[glacial polyuria]]
-[[unborn fermion]]
-[[prickly-leafed heater]]
+[[triploid augean stables]]
+[[uncrystallised tannia]]
+[[positively charged dotard]]
+[[unforethoughtful family mucoraceae]]
+[[backlink load test]]

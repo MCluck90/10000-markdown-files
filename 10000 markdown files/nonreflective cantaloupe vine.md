@@ -90,8 +90,8 @@ Nearly two Pennyworth only sobbing she
 
 ## Wikilinks load test
 
-[[straying deity]]
-[[x-linked inexperience]]
-[[landscaped cestoda]]
-[[infuriating marburg hemorrhagic fever]]
-[[alphabetic eurydice]]
+[[sticking out rift valley]]
+[[telltale morletts crocodile]]
+[[venomed mniaceae]]
+[[self-important scarlet musk flower]]
+[[backlink load test]]

@@ -81,6 +81,5 @@ Two lines.
 
 ## Wikilinks load test
 
-[[repetitious application]]
-[[vendible multibank holding company]]
-[[lxviii wellington boot]]
+[[ratiocinative spermophilus]]
+[[backlink load test]]

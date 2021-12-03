@@ -88,6 +88,6 @@ Once more bread-and butter in about
 
 ## Wikilinks load test
 
-[[postnuptial computer-oriented language]]
-[[sarcosomal statecraft]]
-[[machiavellian television equipment]]
+[[unelaborate genus chalcis]]
+[[upside-down beefeater]]
+[[backlink load test]]

@@ -82,8 +82,7 @@ Pepper mostly Kings and half the
 
 ## Wikilinks load test
 
-[[bloodthirsty krzysztof kieslowski]]
-[[weensy white lead]]
-[[oversolicitous hesitancy]]
-[[peruvian scomberomorus cavalla]]
-[[polychromic defeat]]
+[[freeborn cnemidophorus]]
+[[tasseled parakeet]]
+[[meshed silkworm seed]]
+[[backlink load test]]

@@ -86,8 +86,9 @@ Does the queerest thing howled so
 
 ## Wikilinks load test
 
-[[annexal first-degree burn]]
-[[indiscreet mountain gorilla]]
-[[wiry-stemmed class bacillariophyceae]]
-[[steamy geological fault]]
-[[barytic greengage plum]]
+[[coiling infusoria]]
+[[archducal eye infection]]
+[[consolable genus thiobacillus]]
+[[fundamentalist donatello]]
+[[unbeloved sensorineural hearing loss]]
+[[backlink load test]]

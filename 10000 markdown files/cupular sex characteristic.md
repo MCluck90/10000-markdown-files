@@ -92,5 +92,6 @@ It's the answer so it
 
 ## Wikilinks load test
 
-[[blended john hanning speke]]
-[[unimpaired water chevrotain]]
+[[ineffable typing]]
+[[sincere pole vaulting]]
+[[backlink load test]]

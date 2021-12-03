@@ -86,8 +86,9 @@ IT the Fish-Footman was Why
 
 ## Wikilinks load test
 
-[[taken hipline]]
-[[radio-controlled belgian endive]]
-[[palaeontological roger brooke taney]]
-[[curly-grained levi-strauss]]
-[[infelicitous pulley-block]]
+[[australopithecine stenopelmatus fuscus]]
+[[merciful androgyny]]
+[[committed shirley temple]]
+[[documental coop]]
+[[ceramic claviceps purpurea]]
+[[backlink load test]]

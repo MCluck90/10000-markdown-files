@@ -88,5 +88,5 @@ As they couldn't answer.
 
 ## Wikilinks load test
 
-[[ventricular cilioflagellata]]
-[[discriminatory diatonic scale]]
+[[unalarming little spotted skunk]]
+[[backlink load test]]

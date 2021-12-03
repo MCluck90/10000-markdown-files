@@ -83,4 +83,8 @@ added turning to me
 
 ## Wikilinks load test
 
-[[biddable luba]]
+[[fair-and-square tolazoline]]
+[[hammered fiction]]
+[[passionless streamer fly]]
+[[discourteous dapsang]]
+[[backlink load test]]

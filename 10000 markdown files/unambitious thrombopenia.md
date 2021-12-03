@@ -80,7 +80,8 @@ shouted Alice or Australia.
 
 ## Wikilinks load test
 
-[[criminative genus ceratotherium]]
-[[focal corpus mamillare]]
-[[pilosebaceous immunofluorescence]]
-[[audenesque calochortus macrocarpus]]
+[[rending subtopia]]
+[[maledict mention]]
+[[right-side-up quidnunc]]
+[[reversive roentgenium]]
+[[backlink load test]]

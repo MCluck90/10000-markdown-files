@@ -79,6 +79,7 @@ catch a duck with
 
 ## Wikilinks load test
 
-[[flimsy flume]]
-[[felonious loony bin]]
-[[coral showy orchis]]
+[[killable polypodium]]
+[[ashy lateral geniculate]]
+[[hydrometric alice walker]]
+[[backlink load test]]

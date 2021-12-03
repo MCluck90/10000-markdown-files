@@ -82,8 +82,7 @@ Advice from here Alice so eagerly
 
 ## Wikilinks load test
 
-[[astonishing broken wind]]
-[[lacklustre araceae]]
-[[ritualistic mount sherman]]
-[[piscatorial lx]]
-[[unbrainwashed kalmia polifolia]]
+[[rhythmical belloc]]
+[[desired wet-nurse]]
+[[passionless streamer fly]]
+[[backlink load test]]

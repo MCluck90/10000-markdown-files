@@ -83,7 +83,8 @@ Where CAN all spoke.
 
 ## Wikilinks load test
 
-[[white-pink hardpan]]
-[[alligatored japanese radish]]
-[[myrmecophytic satureja douglasii]]
-[[bulgy soddy]]
+[[top-grade hanger-on]]
+[[bilabiate last rites]]
+[[mint amaranthus graecizans]]
+[[burled rochambeau]]
+[[backlink load test]]

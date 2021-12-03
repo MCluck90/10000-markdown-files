@@ -81,7 +81,7 @@ screamed Off Nonsense.
 
 ## Wikilinks load test
 
-[[bogartian genus piroplasma]]
-[[colicky auto-changer]]
-[[lxviii wellington boot]]
-[[blackish-gray kotex]]
+[[saturnine phyllostachys bambusoides]]
+[[synchronised arthur schopenhauer]]
+[[vicious internal combustion]]
+[[backlink load test]]

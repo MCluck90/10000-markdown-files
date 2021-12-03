@@ -91,5 +91,6 @@ Ah my dear she
 
 ## Wikilinks load test
 
-[[stunning rote]]
-[[psycholinguistic congelation]]
+[[purple-blue equal opportunity]]
+[[mindless autoerotism]]
+[[backlink load test]]

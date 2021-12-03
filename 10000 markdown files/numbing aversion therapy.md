@@ -81,6 +81,9 @@ HEARTHRUG NEAR THE BOOTS AND
 
 ## Wikilinks load test
 
-[[unromantic perciformes]]
-[[leery genus hipsurus]]
-[[mentholated store detective]]
+[[edentulate pulsatilla]]
+[[cockney capital levy]]
+[[house-proud takeaway]]
+[[unassisted mongolic language]]
+[[amnionic laryngeal artery]]
+[[backlink load test]]

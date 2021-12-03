@@ -88,8 +88,7 @@ Nor I then turning
 
 ## Wikilinks load test
 
-[[slaty-gray self-command]]
-[[ossicular hemp family]]
-[[roman catholic helmet]]
-[[hematological chauvinist]]
-[[clownish galiella rufa]]
+[[gaelic shedder]]
+[[vernal betula leutea]]
+[[pyloric buckle]]
+[[backlink load test]]

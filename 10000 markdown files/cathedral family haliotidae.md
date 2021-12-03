@@ -89,8 +89,6 @@ Keep back once a puzzled
 
 ## Wikilinks load test
 
-[[demanding bill of particulars]]
-[[waterproof multiculturalism]]
-[[reactive overdraft credit]]
-[[autotypic larboard]]
-[[causal pry bar]]
+[[sweetened tic]]
+[[nippy haiku]]
+[[backlink load test]]

@@ -83,6 +83,5 @@ Tell us up eagerly
 
 ## Wikilinks load test
 
-[[fruity quantum physics]]
-[[red-violet poinciana]]
-[[argent catchphrase]]
+[[anthropogenic welcome wagon]]
+[[backlink load test]]

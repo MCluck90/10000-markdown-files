@@ -92,8 +92,5 @@ Leave off outside the
 
 ## Wikilinks load test
 
-[[nanocephalic tietzes syndrome]]
-[[friendless brachium]]
-[[auroral amanita rubescens]]
-[[breathed powderer]]
-[[cubical honore daumier]]
+[[uncoiled folly]]
+[[backlink load test]]

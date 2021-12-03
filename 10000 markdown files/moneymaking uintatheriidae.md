@@ -81,8 +81,6 @@ Pinch him when suddenly dropping his
 
 ## Wikilinks load test
 
-[[herbivorous apple butter]]
-[[allometric william f. cody]]
-[[unratified harvest mite]]
-[[broody marsh buggy]]
-[[dry-cleaned paleness]]
+[[unprophetic sandpiper]]
+[[botuliform symphilid]]
+[[backlink load test]]

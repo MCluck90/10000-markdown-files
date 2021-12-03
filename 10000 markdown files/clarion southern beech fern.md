@@ -88,8 +88,7 @@ May it.
 
 ## Wikilinks load test
 
-[[sebaceous gracula religiosa]]
-[[dank order mucorales]]
-[[lead-free som]]
-[[eight immunosuppressive]]
-[[pro-choice greenhouse emission]]
+[[quenched cirio]]
+[[implicit living will]]
+[[d trammel net]]
+[[backlink load test]]

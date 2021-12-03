@@ -86,5 +86,5 @@ Coming in head unless it WOULD
 
 ## Wikilinks load test
 
-[[mongolian schrodinger]]
-[[uncombable barmbrack]]
+[[nodding imo]]
+[[backlink load test]]

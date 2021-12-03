@@ -76,5 +76,5 @@ Consider my limbs very humble
 
 ## Wikilinks load test
 
-[[blindfolded calluna]]
-[[pusillanimous carbohydrate]]
+[[erose john rock]]
+[[backlink load test]]

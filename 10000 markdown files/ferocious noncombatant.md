@@ -88,7 +88,8 @@ Indeed she soon finished off sneezing
 
 ## Wikilinks load test
 
-[[aflutter piper betel]]
-[[half-timber ophthalmitis]]
-[[belittling sicilian pizza]]
-[[fascinating inventor]]
+[[bad tn]]
+[[adaptative eye socket]]
+[[stoppered genoese]]
+[[enumerable novelty]]
+[[backlink load test]]

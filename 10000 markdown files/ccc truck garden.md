@@ -83,6 +83,8 @@ from which word but
 
 ## Wikilinks load test
 
-[[proximate capital of taiwan]]
-[[recalcitrant sideboard]]
-[[prokaryotic scientist]]
+[[subocean sorex cinereus]]
+[[clapped out discomfort]]
+[[north running game]]
+[[cathectic myotis leucifugus]]
+[[backlink load test]]

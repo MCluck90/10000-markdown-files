@@ -86,5 +86,5 @@ Pat.
 
 ## Wikilinks load test
 
-[[nightly balibago]]
-[[semicentennial antimycotic agent]]
+[[morbid panic button]]
+[[backlink load test]]

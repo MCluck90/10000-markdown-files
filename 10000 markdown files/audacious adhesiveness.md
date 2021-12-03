@@ -74,8 +74,8 @@ Boots and beasts and I'll give
 
 ## Wikilinks load test
 
-[[linnaean integrator]]
-[[conjoined robert james fischer]]
-[[yellow-gray ming]]
-[[antisemitic humber bridge]]
-[[unconstrained anemic anoxia]]
+[[wordless rapid]]
+[[moneran outhouse]]
+[[puberulent pacer]]
+[[slow hyla crucifer]]
+[[backlink load test]]

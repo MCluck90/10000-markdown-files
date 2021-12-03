@@ -90,8 +90,8 @@ Can't remember them of themselves.
 
 ## Wikilinks load test
 
-[[gracious bursting charge]]
-[[amygdaliform freeway]]
-[[soft-nosed genus myriophyllum]]
-[[corymbose waterlessness]]
-[[orbital alcedo]]
+[[separatist tintometer]]
+[[creditable cocaine]]
+[[furrowed telegraph key]]
+[[crinoid purple boneset]]
+[[backlink load test]]

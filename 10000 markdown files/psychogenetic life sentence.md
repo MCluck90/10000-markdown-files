@@ -89,5 +89,8 @@ here O Mouse frowning at
 
 ## Wikilinks load test
 
-[[trinidadian sigmodon hispidus]]
-[[definite red bat]]
+[[mnemonic dog racing]]
+[[detested myrobalan]]
+[[clastic eunectes]]
+[[triune olfactory nerve]]
+[[backlink load test]]

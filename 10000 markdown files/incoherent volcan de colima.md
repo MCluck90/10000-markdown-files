@@ -92,8 +92,9 @@ You'll get the reason they're
 
 ## Wikilinks load test
 
-[[blind drunk hexanchidae]]
-[[blue-chip food elevator]]
-[[animate conscientious objector]]
-[[federal curb roof]]
-[[radiological afghan]]
+[[donatist eitchen midden]]
+[[german vertical circle]]
+[[over-embellished bw defense]]
+[[idiopathic thumbnut]]
+[[nonflowering supplanting]]
+[[backlink load test]]

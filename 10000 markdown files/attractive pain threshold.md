@@ -84,7 +84,5 @@ Give your hair wants for
 
 ## Wikilinks load test
 
-[[vexing bordello]]
-[[heedful genus rhodymenia]]
-[[fretful nettle tree]]
-[[protestant echoencephalography]]
+[[rhenish cornelius jansenius]]
+[[backlink load test]]

@@ -85,5 +85,5 @@ Five and ending with a large
 
 ## Wikilinks load test
 
-[[self-righteous caesium clock]]
-[[promissory lucky lindy]]
+[[galled fred hoyle]]
+[[backlink load test]]

@@ -86,6 +86,6 @@ With what would bend I cut
 
 ## Wikilinks load test
 
-[[epistemic brute]]
-[[drug-addicted muscicapa grisola]]
-[[antitumor focal infection]]
+[[washy moxie plum]]
+[[accustomed palindrome]]
+[[backlink load test]]

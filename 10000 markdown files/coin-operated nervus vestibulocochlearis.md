@@ -78,6 +78,7 @@ Do cats always to
 
 ## Wikilinks load test
 
-[[geniculate baba]]
-[[lexicographical waxmallow]]
-[[resiny garden loosestrife]]
+[[bad tn]]
+[[prissy edith wharton]]
+[[boisterous gardenia augusta]]
+[[backlink load test]]

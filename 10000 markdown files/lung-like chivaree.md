@@ -83,5 +83,7 @@ Suddenly she couldn't help to
 
 ## Wikilinks load test
 
-[[forfeit stuffed egg]]
-[[complex hernaria glabra]]
+[[glamorous claymore]]
+[[saprozoic arles]]
+[[venezuelan nicaraguan monetary unit]]
+[[backlink load test]]

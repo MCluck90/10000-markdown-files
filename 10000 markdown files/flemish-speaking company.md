@@ -86,6 +86,7 @@ Herald read fairy-tales I ought not
 
 ## Wikilinks load test
 
-[[upstage practicableness]]
-[[thespian neuroma]]
-[[sulfurous hanging gardens of babylon]]
+[[thirsty bulgarian capital]]
+[[monstrous oral herpes]]
+[[stipendiary service department]]
+[[backlink load test]]

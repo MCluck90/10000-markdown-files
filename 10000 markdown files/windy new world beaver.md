@@ -88,8 +88,6 @@ Pinch him to size
 
 ## Wikilinks load test
 
-[[sylphlike rachycentron]]
-[[gabled fishpaste]]
-[[disjoint cynipid gall wasp]]
-[[greyed trafficator]]
-[[acherontic bacteriophage]]
+[[disadvantageous anasazi]]
+[[nonjudgmental tipulidae]]
+[[backlink load test]]

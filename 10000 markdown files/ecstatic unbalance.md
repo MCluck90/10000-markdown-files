@@ -80,6 +80,6 @@ CHORUS.
 
 ## Wikilinks load test
 
-[[micropylar unitard]]
-[[abducent port moresby]]
-[[monandrous noonans syndrome]]
+[[speakable miridae]]
+[[dull-white copartnership]]
+[[backlink load test]]

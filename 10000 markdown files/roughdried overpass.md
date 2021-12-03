@@ -86,8 +86,5 @@ down and Derision.
 
 ## Wikilinks load test
 
-[[traveled parcel bomb]]
-[[sincere pole vaulting]]
-[[impassioned indetermination]]
-[[eighty-one cleistocarp]]
-[[hundred-and-seventieth akron]]
+[[light-hearted anaspida]]
+[[backlink load test]]

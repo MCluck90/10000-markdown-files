@@ -84,8 +84,5 @@ Nor I said just beginning.
 
 ## Wikilinks load test
 
-[[semiparasitic oleaster]]
-[[axonal cocktail party]]
-[[backswept north peak]]
-[[ilxx equatorial current]]
-[[slipshod disturbance]]
+[[polydactylous beardless iris]]
+[[backlink load test]]

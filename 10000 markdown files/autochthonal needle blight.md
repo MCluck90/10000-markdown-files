@@ -92,5 +92,7 @@ Half-past one paw trying which
 
 ## Wikilinks load test
 
-[[living smoking car]]
-[[chlamydeous crackerjack]]
+[[spotless pinus longaeva]]
+[[rosy-purple tennis pro]]
+[[strikebound frost]]
+[[backlink load test]]

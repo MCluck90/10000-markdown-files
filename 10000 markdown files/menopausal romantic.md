@@ -85,7 +85,6 @@ But I've been looking
 
 ## Wikilinks load test
 
-[[interscholastic cuke]]
-[[scraggly parterre]]
-[[counterbalanced ev]]
-[[nonadjacent sempatch]]
+[[nutritive bucephela clangula]]
+[[unmovable genus anthus]]
+[[backlink load test]]

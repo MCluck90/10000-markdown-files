@@ -86,8 +86,5 @@ Always lay sprawling about
 
 ## Wikilinks load test
 
-[[unsightly deuterium oxide]]
-[[sri lankan basketball]]
-[[touch-and-go sierra plum]]
-[[upstage practicableness]]
-[[taillike direct discourse]]
+[[strident annwn]]
+[[backlink load test]]

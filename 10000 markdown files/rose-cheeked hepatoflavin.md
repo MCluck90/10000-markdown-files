@@ -83,6 +83,5 @@ Sing her lap of beautiful
 
 ## Wikilinks load test
 
-[[glary tissue typing]]
-[[hydropathic nomenclature]]
-[[assumed light adaptation]]
+[[bicipital square metre]]
+[[backlink load test]]

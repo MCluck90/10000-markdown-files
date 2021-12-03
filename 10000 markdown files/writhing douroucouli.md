@@ -81,6 +81,5 @@ Now tell it before
 
 ## Wikilinks load test
 
-[[anagogical generousness]]
-[[fulgurant ssw]]
-[[cartesian homopteran]]
+[[political desk phone]]
+[[backlink load test]]

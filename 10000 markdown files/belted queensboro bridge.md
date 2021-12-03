@@ -92,7 +92,5 @@ May it hastily but
 
 ## Wikilinks load test
 
-[[mingy auditory ossicle]]
-[[lash-like hairnet]]
-[[monandrous daniel morgan]]
-[[domestic austerlitz]]
+[[some other shanghai dialect]]
+[[backlink load test]]

@@ -75,7 +75,9 @@ Sounds of putting things
 
 ## Wikilinks load test
 
-[[crabwise pavo]]
-[[adjuvant africander]]
-[[sublunar raetam]]
-[[rending subtopia]]
+[[amerindic decalitre]]
+[[miry salutatorian]]
+[[inconsequential hyperotreta]]
+[[unreciprocated bighorn]]
+[[willful two-piece suit]]
+[[backlink load test]]

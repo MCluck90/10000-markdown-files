@@ -91,5 +91,5 @@ Stuff and nibbled a steam-engine
 
 ## Wikilinks load test
 
-[[alphabetised genus strepsiceros]]
-[[spick cognovit judgement]]
+[[frost-bound polybotrya]]
+[[backlink load test]]

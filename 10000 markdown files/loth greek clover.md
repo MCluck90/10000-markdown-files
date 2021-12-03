@@ -85,6 +85,8 @@ You'll see when one
 
 ## Wikilinks load test
 
-[[peroneal snood]]
-[[down-to-earth california newt]]
-[[disused composition]]
+[[nonspatial swimmer]]
+[[depressing barium peroxide]]
+[[shelled cacao]]
+[[meddling family triglidae]]
+[[backlink load test]]

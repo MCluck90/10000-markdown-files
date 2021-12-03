@@ -84,7 +84,7 @@ that this creature when
 
 ## Wikilinks load test
 
-[[principal spassky]]
-[[guiltless kadai language]]
-[[disillusioned balanoposthitis]]
-[[atonalistic tracing routine]]
+[[sixty-two richard feynman]]
+[[self-seeking working party]]
+[[autochthonal needle blight]]
+[[backlink load test]]

@@ -85,8 +85,6 @@ It belongs to others took the
 
 ## Wikilinks load test
 
-[[surmountable femtometer]]
-[[childish gummed label]]
-[[oleophobic genus callistephus]]
-[[unfretted ligustrum japonicum]]
-[[cassocked potter]]
+[[vile john constable]]
+[[contented control]]
+[[backlink load test]]

@@ -90,8 +90,5 @@ I've heard it in particular.
 
 ## Wikilinks load test
 
-[[imbecilic fusain]]
-[[strong-boned chenopodium rubrum]]
-[[fledged spring break]]
-[[unregulated bellerophon]]
-[[nonpartisan vanellus]]
+[[synecdochical spa]]
+[[backlink load test]]

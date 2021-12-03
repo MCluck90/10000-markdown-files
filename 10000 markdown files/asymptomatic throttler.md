@@ -79,4 +79,8 @@ Don't be kind Alice thought the
 
 ## Wikilinks load test
 
-[[full-size choke coil]]
+[[inconsequent platysma]]
+[[petty rhyme]]
+[[footling pink lady]]
+[[subservient cave]]
+[[backlink load test]]

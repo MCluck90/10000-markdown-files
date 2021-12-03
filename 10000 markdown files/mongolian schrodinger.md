@@ -81,8 +81,6 @@ Pinch him.
 
 ## Wikilinks load test
 
-[[colonic remonstration]]
-[[carthaginian retail]]
-[[rectangular toy dog]]
-[[approved silkweed]]
-[[jawless hypoadrenocorticism]]
+[[double-geared battle of guadalcanal]]
+[[opinionative silverspot]]
+[[backlink load test]]

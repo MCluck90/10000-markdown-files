@@ -90,5 +90,8 @@ thump.
 
 ## Wikilinks load test
 
-[[water-repellent v neck]]
-[[predestinate tetraclinis]]
+[[mentholated store detective]]
+[[fossil geometry teacher]]
+[[iffy lycopodiaceae]]
+[[pie-eyed side of beef]]
+[[backlink load test]]

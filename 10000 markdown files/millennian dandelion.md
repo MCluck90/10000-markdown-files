@@ -92,7 +92,7 @@ won't interrupt again you so I'll
 
 ## Wikilinks load test
 
-[[brainwashed onion plant]]
-[[deadened pitocin]]
-[[barmy drawee]]
-[[unstarred raceway]]
+[[po-faced origanum vulgare]]
+[[bahamian wyeth]]
+[[annihilating caplin]]
+[[backlink load test]]

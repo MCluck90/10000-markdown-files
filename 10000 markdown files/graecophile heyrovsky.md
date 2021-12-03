@@ -79,6 +79,5 @@ After a crowd assembled
 
 ## Wikilinks load test
 
-[[instinctive semitransparency]]
-[[coenobitic meromelia]]
-[[do-it-yourself merlangus]]
+[[mongolian schrodinger]]
+[[backlink load test]]

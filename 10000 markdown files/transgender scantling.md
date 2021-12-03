@@ -85,7 +85,9 @@ either the OUTSIDE.
 
 ## Wikilinks load test
 
-[[permutable estrone]]
-[[allegorical deluge]]
-[[agaze spectrometry]]
-[[unalloyed ropewalk]]
+[[frivolous great-nephew]]
+[[forgettable chardonnay]]
+[[infelicitous pulley-block]]
+[[stable azo radical]]
+[[earlyish suttee]]
+[[backlink load test]]

@@ -76,5 +76,8 @@ added in same as usual.
 
 ## Wikilinks load test
 
-[[postmillennial arthur robert ashe]]
-[[indolent goldfield]]
+[[noncarbonated half-moon]]
+[[untimbered black cherry]]
+[[sharp-cornered western gray squirrel]]
+[[good-hearted man jack]]
+[[backlink load test]]

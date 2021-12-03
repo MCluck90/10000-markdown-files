@@ -85,8 +85,6 @@ Repeat YOU must make
 
 ## Wikilinks load test
 
-[[age-related genus sitophylus]]
-[[unworthy re-uptake]]
-[[argent lilium]]
-[[noncollapsable water-cooled reactor]]
-[[bahamian wyeth]]
+[[awnless family balanidae]]
+[[curtal obligate anaerobe]]
+[[backlink load test]]

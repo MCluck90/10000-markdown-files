@@ -79,8 +79,7 @@ ARE OLD FATHER WILLIAM said I
 
 ## Wikilinks load test
 
-[[irreplaceable seduction]]
-[[rabelaisian 22]]
-[[cenogenetic tribal chief]]
-[[infelicitous pulley-block]]
-[[self-centered storm petrel]]
+[[astigmatic fiefdom]]
+[[saprozoic arles]]
+[[resounding myanmar monetary unit]]
+[[backlink load test]]

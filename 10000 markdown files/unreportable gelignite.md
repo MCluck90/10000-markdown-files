@@ -90,8 +90,6 @@ Really my way to
 
 ## Wikilinks load test
 
-[[unflurried sir francis bacon]]
-[[one hundred twenty-five rescript]]
-[[aquiferous oneill]]
-[[guided steenbok]]
-[[uninitiate maurice ravel]]
+[[gynecologic chloramine-t]]
+[[spring-loaded golf stroke]]
+[[backlink load test]]

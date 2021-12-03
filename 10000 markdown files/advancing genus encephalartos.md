@@ -81,8 +81,8 @@ The Dormouse into the pie later.
 
 ## Wikilinks load test
 
-[[two-leafed salim]]
-[[registered gambol]]
-[[sniffy black rock desert]]
-[[thorough hymn]]
-[[helmet-shaped bipedalism]]
+[[unreproducible driver ant]]
+[[violet-flowered indian millet]]
+[[idiopathic thumbnut]]
+[[semiweekly symphytum]]
+[[backlink load test]]

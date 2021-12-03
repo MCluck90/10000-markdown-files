@@ -88,8 +88,6 @@ Sure it's hardly hear his slate.
 
 ## Wikilinks load test
 
-[[favourite pancytopenia]]
-[[hands-down new zealand spinach]]
-[[nonhuman class ciliata]]
-[[twenty-seven clianthus]]
-[[nonfissile family gasterosteidae]]
+[[attributive genitive quint]]
+[[contemptuous 10000]]
+[[backlink load test]]

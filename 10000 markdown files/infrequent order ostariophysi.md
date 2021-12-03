@@ -84,8 +84,9 @@ exclaimed turning purple.
 
 ## Wikilinks load test
 
-[[stillborn tremella]]
-[[quincentenary yellow bugle]]
-[[divided boarding house]]
-[[begrimed delacroix]]
-[[flame-coloured hair oil]]
+[[incombustible saute]]
+[[rhythmical belloc]]
+[[springy billy club]]
+[[contaminative ratafia biscuit]]
+[[lasting scriber]]
+[[backlink load test]]

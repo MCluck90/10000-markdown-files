@@ -88,4 +88,5 @@ thought you couldn't see Alice knew
 
 ## Wikilinks load test
 
-[[boxed-in sri lanka rupee]]
+[[real colon]]
+[[backlink load test]]

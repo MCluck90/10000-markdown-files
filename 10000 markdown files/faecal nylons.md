@@ -83,6 +83,8 @@ That's nothing but said aloud
 
 ## Wikilinks load test
 
-[[ic red carpet]]
-[[flightless pond apple]]
-[[postindustrial newlywed]]
+[[cagy rest]]
+[[overproud monk]]
+[[free-swimming gean]]
+[[omnibus cribbage]]
+[[backlink load test]]

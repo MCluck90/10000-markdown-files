@@ -86,4 +86,8 @@ Everything's got settled down was
 
 ## Wikilinks load test
 
-[[deadened pitocin]]
+[[soggy caoutchouc tree]]
+[[efficient sarda chiliensis]]
+[[inhabited order squamata]]
+[[opening corneum]]
+[[backlink load test]]

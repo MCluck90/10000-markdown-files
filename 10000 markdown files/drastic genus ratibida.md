@@ -92,7 +92,9 @@ when you've no.
 
 ## Wikilinks load test
 
-[[eyes-only fixative]]
-[[true green-blindness]]
-[[unelaborate genus chalcis]]
-[[pyrographic tool steel]]
+[[carpal quicksand]]
+[[anglican baldy]]
+[[monandrous daniel morgan]]
+[[rhinal superscript]]
+[[raped genus nitrosomonas]]
+[[backlink load test]]

@@ -85,8 +85,7 @@ Quick now more puzzled her
 
 ## Wikilinks load test
 
-[[millenary charades]]
-[[paranormal casava]]
-[[chatty smoking compartment]]
-[[chatty smoking compartment]]
-[[bell-bottom signal box]]
+[[meatless joliet]]
+[[seasick n.b.]]
+[[hunched peanut vine]]
+[[backlink load test]]

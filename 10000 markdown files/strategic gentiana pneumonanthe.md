@@ -89,8 +89,5 @@ As soon got any that
 
 ## Wikilinks load test
 
-[[educative family lycopodiaceae]]
-[[brambly vaccinium myrsinites]]
-[[biotitic hiv]]
-[[choky blueweed]]
-[[bicentennial keratoacanthoma]]
+[[chilean dynamite]]
+[[backlink load test]]

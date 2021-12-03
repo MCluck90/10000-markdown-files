@@ -80,6 +80,6 @@ Stupid things went to
 
 ## Wikilinks load test
 
-[[cast-off lebanese]]
-[[winning genus capros]]
-[[immortal electrical power]]
+[[salient dicotyledones]]
+[[manual bionic man]]
+[[backlink load test]]

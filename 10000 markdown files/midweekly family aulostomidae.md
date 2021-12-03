@@ -92,8 +92,9 @@ Hush.
 
 ## Wikilinks load test
 
-[[boughless southern cypress]]
-[[unappetizing sodium ethylmercurithiosalicylate]]
-[[thin-bodied genus rypticus]]
-[[white-lipped funny]]
-[[assigned coffee substitute]]
+[[eudaemonic sheepdog]]
+[[roan chlordiazepoxide]]
+[[suburbanized tylenchus tritici]]
+[[supple crankiness]]
+[[unliveable granadillo]]
+[[backlink load test]]

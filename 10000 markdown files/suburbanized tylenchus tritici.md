@@ -89,7 +89,6 @@ She'll get very little way
 
 ## Wikilinks load test
 
-[[bankable capparis cynophallophora]]
-[[alligatored japanese radish]]
-[[computable schmoose]]
-[[saudi-arabian manageableness]]
+[[restrictive veld]]
+[[tingling sinapis arvensis]]
+[[backlink load test]]

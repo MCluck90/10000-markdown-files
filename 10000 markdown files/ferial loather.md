@@ -82,6 +82,6 @@ Dinah'll be able.
 
 ## Wikilinks load test
 
-[[heedful genus rhodymenia]]
-[[umpteen futurology]]
-[[catabatic ooze]]
+[[glamorous claymore]]
+[[appealing asp viper]]
+[[backlink load test]]

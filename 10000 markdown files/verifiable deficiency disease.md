@@ -93,8 +93,6 @@ Here one else you'd have
 
 ## Wikilinks load test
 
-[[westward family cupressaceae]]
-[[eel-shaped sneezer]]
-[[demonstrated onslaught]]
-[[stovepiped lincolnshire]]
-[[accretionary pansy]]
+[[underhanded bolshie]]
+[[sentient straw man]]
+[[backlink load test]]

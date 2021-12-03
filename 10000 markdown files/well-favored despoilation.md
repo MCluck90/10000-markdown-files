@@ -81,8 +81,9 @@ You'll get is blown
 
 ## Wikilinks load test
 
-[[precordial orthomorphic projection]]
-[[icy pierre]]
-[[statistical genus lycopodium]]
-[[cosher herpetologist]]
-[[short-snouted genus fothergilla]]
+[[inapt rectal reflex]]
+[[reflexive priestess]]
+[[bratty orlop]]
+[[avenged sunscreen]]
+[[unconformist black bile]]
+[[backlink load test]]

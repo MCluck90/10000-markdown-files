@@ -85,5 +85,9 @@ Right as pigs and
 
 ## Wikilinks load test
 
-[[debased illogicality]]
-[[bionomic high-vitamin diet]]
+[[framed combustion]]
+[[illuminating periclase]]
+[[determined dalea]]
+[[underslung eacles]]
+[[plantar shade]]
+[[backlink load test]]

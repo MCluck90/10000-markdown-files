@@ -88,6 +88,9 @@ Don't be some way forwards each
 
 ## Wikilinks load test
 
-[[prickly-leafed heater]]
-[[pretorial manduca quinquemaculata]]
-[[upside-down beefeater]]
+[[thirsty bulgarian capital]]
+[[adjunctive decor]]
+[[draughty computerization]]
+[[buddhist skin-diver]]
+[[well-heeled endowment insurance]]
+[[backlink load test]]

@@ -88,4 +88,7 @@ but it's hardly room to fix
 
 ## Wikilinks load test
 
-[[rootbound securer]]
+[[lxxx orwell]]
+[[absentminded barbette]]
+[[extensional labial vein]]
+[[backlink load test]]

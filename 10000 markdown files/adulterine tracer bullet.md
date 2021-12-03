@@ -82,6 +82,5 @@ These were ten inches high said
 
 ## Wikilinks load test
 
-[[diffusing wire gage]]
-[[calculous genus comptonia]]
-[[cosher bedclothes]]
+[[gloomful swedish mile]]
+[[backlink load test]]

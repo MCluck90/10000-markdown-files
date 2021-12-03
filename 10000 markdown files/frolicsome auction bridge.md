@@ -88,8 +88,9 @@ It wasn't always took
 
 ## Wikilinks load test
 
-[[polydactylous beardless iris]]
-[[good adps]]
-[[low-budget flooding]]
-[[beginning echidnophaga]]
-[[conjoined robert james fischer]]
+[[ukrainian fast reactor]]
+[[spring-flowering boann]]
+[[single-barrelled hydroxybutyric acid]]
+[[nonsocial genus carum]]
+[[jocose peoples party]]
+[[backlink load test]]

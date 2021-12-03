@@ -85,5 +85,5 @@ CHORUS.
 
 ## Wikilinks load test
 
-[[falling tansy mustard]]
-[[downstairs leucocyte]]
+[[nonsectarian broadcasting station]]
+[[backlink load test]]

@@ -87,7 +87,9 @@ Once more tea and
 
 ## Wikilinks load test
 
-[[imprecise genus calocarpum]]
-[[whacking le]]
-[[polyoestrous conversationist]]
-[[bicorned gansu province]]
+[[mediocre micruroides]]
+[[hypothermic starlight]]
+[[nonnomadic penstemon]]
+[[mirky tack hammer]]
+[[rough-haired genus typha]]
+[[backlink load test]]

@@ -89,7 +89,8 @@ I'LL soon make it ran out
 
 ## Wikilinks load test
 
-[[muddleheaded genus peperomia]]
-[[keyless cabin boy]]
-[[graphic puppet state]]
-[[grammatical agave sisalana]]
+[[purple cleavers]]
+[[fixed flagstaff]]
+[[acarpelous phalaropus]]
+[[north animatronics]]
+[[backlink load test]]

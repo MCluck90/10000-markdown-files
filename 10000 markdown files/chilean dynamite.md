@@ -85,6 +85,7 @@ HEARTHRUG NEAR THE SLUGGARD
 
 ## Wikilinks load test
 
-[[unkind splash]]
-[[anginose armata corsa]]
-[[undefendable raptor]]
+[[cartesian homopteran]]
+[[cacogenic brassica oleracea gongylodes]]
+[[ceremonial gate]]
+[[backlink load test]]

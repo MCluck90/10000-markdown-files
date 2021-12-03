@@ -86,5 +86,7 @@ HEARTHRUG NEAR THE BOOTS AND
 
 ## Wikilinks load test
 
-[[paradisaic parsec]]
-[[allogamous markweed]]
+[[unartistic shiny lyonia]]
+[[belittling ginkgophytina]]
+[[shopsoiled ticket booth]]
+[[backlink load test]]

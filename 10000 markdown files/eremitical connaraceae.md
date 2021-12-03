@@ -81,6 +81,5 @@ HEARTHRUG NEAR THE COURT.
 
 ## Wikilinks load test
 
-[[elvish small letter]]
-[[insolent cameroun]]
-[[circuitous february 29]]
+[[eleven-sided japanese cherry]]
+[[backlink load test]]

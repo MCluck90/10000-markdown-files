@@ -80,6 +80,7 @@ Beau ootiful Soo oop.
 
 ## Wikilinks load test
 
-[[conformable consolation]]
-[[dangerous andrei dimitrievich sakharov]]
-[[naval filariasis]]
+[[sagittiform slit lamp]]
+[[lumpish tonometer]]
+[[all-around stylomecon heterophyllum]]
+[[backlink load test]]

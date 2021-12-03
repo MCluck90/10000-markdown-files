@@ -81,6 +81,7 @@ Even the Panther were Elsie
 
 ## Wikilinks load test
 
-[[oven-ready dollhouse]]
-[[h-shaped logicality]]
-[[monestrous genus gymnosporangium]]
+[[wysiwyg skateboard]]
+[[sneering saccade]]
+[[andantino southern triangle]]
+[[backlink load test]]

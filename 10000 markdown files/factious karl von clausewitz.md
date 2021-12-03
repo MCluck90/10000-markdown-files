@@ -82,6 +82,5 @@ from one would all three of
 
 ## Wikilinks load test
 
-[[aoristic mons veneris]]
-[[thoughtful troop carrier]]
-[[alight plastid]]
+[[heraldic microprocessor]]
+[[backlink load test]]

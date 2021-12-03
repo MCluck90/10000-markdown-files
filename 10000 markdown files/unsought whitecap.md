@@ -91,8 +91,8 @@ Collar that a scroll
 
 ## Wikilinks load test
 
-[[spick nervous strain]]
-[[pink-collar spatulate leaf]]
-[[splendiferous vinification]]
-[[disliked charles de gaulle]]
-[[quadrupedal blastomyces]]
+[[homey genus loasa]]
+[[exasperated uzbak]]
+[[ferned cirsium heterophylum]]
+[[unindustrialised plumbers helper]]
+[[backlink load test]]

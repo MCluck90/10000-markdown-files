@@ -84,5 +84,7 @@ Suppress him his voice
 
 ## Wikilinks load test
 
-[[hypnoid notebook entry]]
-[[unconstructive shooting gallery]]
+[[inopportune maclura pomifera]]
+[[sweetheart punchayet]]
+[[local self-worship]]
+[[backlink load test]]

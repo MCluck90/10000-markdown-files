@@ -89,7 +89,8 @@ To begin at once more
 
 ## Wikilinks load test
 
-[[fifty-one oosphere]]
-[[terror-struck engraulis encrasicholus]]
-[[understaffed osage orange]]
-[[homeostatic junkie]]
+[[triploid augean stables]]
+[[argent teaching method]]
+[[empirical stephen michael reich]]
+[[wise to canada lynx]]
+[[backlink load test]]

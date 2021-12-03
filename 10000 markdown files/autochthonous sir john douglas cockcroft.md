@@ -78,6 +78,9 @@ Prizes.
 
 ## Wikilinks load test
 
-[[carunculate fletcher]]
-[[topographical pindolol]]
-[[unsubduable alliaceae]]
+[[rough oregon pine]]
+[[augean tourniquet]]
+[[stimulating cetraria islandica]]
+[[parted bagpipe]]
+[[self-governing genus astragalus]]
+[[backlink load test]]

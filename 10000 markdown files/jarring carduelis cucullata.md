@@ -88,8 +88,9 @@ on till I've so it too
 
 ## Wikilinks load test
 
-[[olde worlde jewel orchid]]
-[[detected fulbe]]
-[[hydrocephalic morchellaceae]]
-[[spunky devils flax]]
-[[rh-positive hurler]]
+[[red-blind passer montanus]]
+[[unplayable nurses aide]]
+[[unflavoured biotechnology]]
+[[immune boucle]]
+[[crowned spastic]]
+[[backlink load test]]

@@ -89,8 +89,9 @@ Pat.
 
 ## Wikilinks load test
 
-[[in series eye-lotion]]
-[[upstream judgement by default]]
-[[cod steamship line]]
-[[ready and waiting valvulotomy]]
-[[steep-sided banger]]
+[[xxvii 6]]
+[[wooden-headed cupronickel]]
+[[high-octane manifest destiny]]
+[[eighty-seven hairball]]
+[[postganglionic file cabinet]]
+[[backlink load test]]

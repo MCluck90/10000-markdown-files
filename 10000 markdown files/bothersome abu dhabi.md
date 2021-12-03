@@ -87,8 +87,5 @@ THAT like they're about
 
 ## Wikilinks load test
 
-[[freeborn cnemidophorus]]
-[[albinistic apogee]]
-[[anapaestic herniated disc]]
-[[blood-red onion louse]]
-[[contraband earache]]
+[[cytologic umbrella bird]]
+[[backlink load test]]

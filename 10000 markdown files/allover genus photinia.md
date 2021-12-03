@@ -89,5 +89,5 @@ Please would EVER happen
 
 ## Wikilinks load test
 
-[[optional marseilles fever]]
-[[traditionalistic inverted hang]]
+[[cuneiform dixieland]]
+[[backlink load test]]

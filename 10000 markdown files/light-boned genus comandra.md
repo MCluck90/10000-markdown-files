@@ -88,8 +88,5 @@ wow.
 
 ## Wikilinks load test
 
-[[stopped antelope chipmunk]]
-[[awake ward-heeler]]
-[[pleading china tree]]
-[[crocked genus ascaridia]]
-[[stone-dead mephitinae]]
+[[far-out mayakovski]]
+[[backlink load test]]

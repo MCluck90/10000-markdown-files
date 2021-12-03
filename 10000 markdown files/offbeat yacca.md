@@ -88,7 +88,7 @@ Sentence first and live
 
 ## Wikilinks load test
 
-[[ash-grey xylol]]
-[[joyless bird fancier]]
-[[tref defiance]]
-[[statistical blackfoot]]
+[[psycholinguistic congelation]]
+[[agrologic anoxemia]]
+[[positive nystan]]
+[[backlink load test]]

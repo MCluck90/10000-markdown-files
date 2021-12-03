@@ -89,8 +89,6 @@ Always lay the right-hand
 
 ## Wikilinks load test
 
-[[lean pyxidium]]
-[[talismanic milk whey]]
-[[primed linotype machine]]
-[[wine-red drafter]]
-[[measly binomial distribution]]
+[[disadvantageous hotel detective]]
+[[trilobed jimenez de cisneros]]
+[[backlink load test]]

@@ -92,7 +92,5 @@ It'll be When we change in
 
 ## Wikilinks load test
 
-[[several-seeded schizophrenic disorder]]
-[[ferial carpinus caroliniana]]
-[[aloof ignatius]]
-[[complex omicron]]
+[[needlelike reflecting telescope]]
+[[backlink load test]]

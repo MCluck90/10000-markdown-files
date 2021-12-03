@@ -86,5 +86,5 @@ Ahem.
 
 ## Wikilinks load test
 
-[[starboard magna charta]]
-[[captivated schoolgirl]]
+[[poetical big bill haywood]]
+[[backlink load test]]

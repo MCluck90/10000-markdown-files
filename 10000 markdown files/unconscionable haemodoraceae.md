@@ -92,6 +92,7 @@ wow.
 
 ## Wikilinks load test
 
-[[approaching fumewort]]
-[[pinnate-leafed blue cheese]]
-[[notched croton tiglium]]
+[[nutritive bucephela clangula]]
+[[avant-garde toggle]]
+[[hooked coming together]]
+[[backlink load test]]

@@ -91,5 +91,5 @@ then quietly and no such
 
 ## Wikilinks load test
 
-[[true green-blindness]]
-[[stuck with penicillin-resistant bacteria]]
+[[wide-awake ereshkigal]]
+[[backlink load test]]

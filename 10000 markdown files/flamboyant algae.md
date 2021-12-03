@@ -79,5 +79,5 @@ you fond of knot
 
 ## Wikilinks load test
 
-[[stylised erik adolf von willebrand]]
-[[nonspatial chachka]]
+[[monotonous tientsin]]
+[[backlink load test]]

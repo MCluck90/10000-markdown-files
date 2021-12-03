@@ -86,8 +86,8 @@ Wouldn't it Mouse do wonder if
 
 ## Wikilinks load test
 
-[[violet-streaked two-base hit]]
-[[behavioural acer]]
-[[tegular hermann joseph muller]]
-[[gray-green week from monday]]
-[[ready-made tranquillizer]]
+[[posthumous maiolica]]
+[[filial capra hircus]]
+[[watery collectivist]]
+[[pimpled rubia tinctorum]]
+[[backlink load test]]

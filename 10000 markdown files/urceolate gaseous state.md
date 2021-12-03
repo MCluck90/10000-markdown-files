@@ -78,5 +78,9 @@ Soles and eaten up
 
 ## Wikilinks load test
 
-[[gummed data system]]
-[[paddle-shaped phone system]]
+[[corneal nascence]]
+[[sensible genus bowiea]]
+[[gold-coloured heritiera littoralis]]
+[[innovational maglev]]
+[[semiparasitic bronchiole]]
+[[backlink load test]]

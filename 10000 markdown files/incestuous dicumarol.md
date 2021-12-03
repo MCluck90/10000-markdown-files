@@ -86,7 +86,7 @@ May it on at all
 
 ## Wikilinks load test
 
-[[scintillating oxidation state]]
-[[diarrhoeic demotic]]
-[[dishonored rio de janeiro]]
-[[delicate fulminate]]
+[[benefic smith]]
+[[misogynic mandibular joint]]
+[[adjudicative tycoon]]
+[[backlink load test]]

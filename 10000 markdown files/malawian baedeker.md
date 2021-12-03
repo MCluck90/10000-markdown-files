@@ -90,6 +90,9 @@ Pinch him with a hint
 
 ## Wikilinks load test
 
-[[psychogenetic life sentence]]
-[[speculative subheading]]
-[[dehumanized pinwheel wind collector]]
+[[freakish anima]]
+[[systematic rakaposhi]]
+[[discretional crataegus apiifolia]]
+[[resourceful artaxerxes i]]
+[[torpid bittersweet]]
+[[backlink load test]]

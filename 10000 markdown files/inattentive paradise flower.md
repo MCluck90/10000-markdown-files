@@ -78,5 +78,7 @@ HEARTHRUG NEAR THE LITTLE BUSY BEE
 
 ## Wikilinks load test
 
-[[lxi quiver]]
-[[minimum good luck]]
+[[elderly calliphora]]
+[[unnatural high-level radioactive waste]]
+[[hyperbolic dark adaptation]]
+[[backlink load test]]

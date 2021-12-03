@@ -93,8 +93,8 @@ Go on likely story indeed
 
 ## Wikilinks load test
 
-[[ready and waiting valvulotomy]]
-[[three-pronged driveway]]
-[[monoclinal investigating]]
-[[cometary gregory vii]]
-[[geosynchronous hill myna]]
+[[blotched state department]]
+[[hoity-toity platyrrhine]]
+[[microcrystalline cakehole]]
+[[affectionate steinem]]
+[[backlink load test]]

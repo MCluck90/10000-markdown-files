@@ -80,8 +80,7 @@ holding her pet Dinah's
 
 ## Wikilinks load test
 
-[[oncoming speed skating]]
-[[over-the-hill po]]
-[[indurate bonnet shark]]
-[[cespitose macleaya cordata]]
-[[chirpy blackpoll]]
+[[goosey audible]]
+[[alphanumeric somersaulting]]
+[[maximum gasmask]]
+[[backlink load test]]

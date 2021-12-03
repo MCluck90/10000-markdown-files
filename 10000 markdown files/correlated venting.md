@@ -83,8 +83,6 @@ Will you again as
 
 ## Wikilinks load test
 
-[[tricked-out mirish]]
-[[straight balaena mysticetus]]
-[[neo-lamarckian yagi]]
-[[cambial muffle]]
-[[consolable genus thiobacillus]]
+[[crenulate witches broth]]
+[[mastoid podsolic soil]]
+[[backlink load test]]

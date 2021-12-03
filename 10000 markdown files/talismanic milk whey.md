@@ -77,8 +77,6 @@ You'll see the bill French and
 
 ## Wikilinks load test
 
-[[architectonic princeton]]
-[[unpublishable bikini]]
-[[clever sceptic]]
-[[choky blueweed]]
-[[educational brights disease]]
+[[larboard genus linaria]]
+[[one hundred five waxycap]]
+[[backlink load test]]

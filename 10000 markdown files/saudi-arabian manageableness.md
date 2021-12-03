@@ -91,7 +91,5 @@ muttered to take MORE
 
 ## Wikilinks load test
 
-[[precise punk]]
-[[stravinskian semilunar cartilage]]
-[[molal orology]]
-[[cxx hairsplitter]]
+[[nonpareil dulcinea]]
+[[backlink load test]]

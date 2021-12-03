@@ -76,6 +76,6 @@ exclaimed.
 
 ## Wikilinks load test
 
-[[compatible lemongrass]]
-[[congregational acid test]]
-[[interactional dinner theater]]
+[[brainwashed onion plant]]
+[[differentiable serpent star]]
+[[backlink load test]]

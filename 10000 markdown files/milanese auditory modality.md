@@ -85,8 +85,5 @@ They all mad after all this
 
 ## Wikilinks load test
 
-[[fourpenny killer]]
-[[seated poulette]]
-[[un-get-at-able tin opener]]
-[[drunk hoummos]]
-[[genotypic mince]]
+[[red-blind passer montanus]]
+[[backlink load test]]

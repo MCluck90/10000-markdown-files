@@ -86,7 +86,9 @@ Back to on three
 
 ## Wikilinks load test
 
-[[smooth-faced trifolium stoloniferum]]
-[[drooping oakleaf goosefoot]]
-[[last-minute antihistamine]]
-[[discombobulated whimsy]]
+[[glabellar gasp]]
+[[inopportune maclura pomifera]]
+[[teachable slapshot]]
+[[unmanful wineglass]]
+[[synchronous styx]]
+[[backlink load test]]

@@ -82,7 +82,5 @@ May it more while the
 
 ## Wikilinks load test
 
-[[wishy-washy arnold palmer]]
-[[pet pitchman]]
-[[neighbourly pericles]]
-[[north korean suppresser gene]]
+[[laotian hotel desk clerk]]
+[[backlink load test]]

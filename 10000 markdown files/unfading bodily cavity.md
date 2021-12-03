@@ -91,6 +91,5 @@ Same as you're a deal of
 
 ## Wikilinks load test
 
-[[licenced loads]]
-[[sensationalistic shrimp-fish]]
-[[inertial leatherfish]]
+[[predicative thermogram]]
+[[backlink load test]]

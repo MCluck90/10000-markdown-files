@@ -91,4 +91,6 @@ Nay I growl when I'm
 
 ## Wikilinks load test
 
-[[beefy genus balistes]]
+[[homonymic acedia]]
+[[anacoluthic boeuf]]
+[[backlink load test]]

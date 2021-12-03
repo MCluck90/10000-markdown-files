@@ -80,6 +80,5 @@ added with the faster while
 
 ## Wikilinks load test
 
-[[cytopathogenic serge]]
-[[qabalistic ontogenesis]]
-[[convincible grout]]
+[[convivial felis manul]]
+[[backlink load test]]

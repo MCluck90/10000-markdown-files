@@ -76,5 +76,6 @@ This did that there's hardly
 
 ## Wikilinks load test
 
-[[moneyed blantyre]]
-[[triangular mountain pride]]
+[[booted drill instructor]]
+[[arbitral genus zalophus]]
+[[backlink load test]]

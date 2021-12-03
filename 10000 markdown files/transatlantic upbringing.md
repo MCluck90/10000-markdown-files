@@ -84,6 +84,7 @@ Alice's first speech.
 
 ## Wikilinks load test
 
-[[drizzly hn]]
-[[gynecologic chloramine-t]]
-[[incompatible genus aspis]]
+[[endless empirin]]
+[[ossiferous carpal]]
+[[vulcanised mustard tree]]
+[[backlink load test]]

@@ -86,7 +86,7 @@ Cheshire Cat a vegetable.
 
 ## Wikilinks load test
 
-[[sufficient suborder lacertilia]]
-[[quincentenary yellow bugle]]
-[[comfortable growth hormone]]
-[[reactive overdraft credit]]
+[[wide-cut bludgeoner]]
+[[poltroon american spikenard]]
+[[cognisable genus agalinis]]
+[[backlink load test]]

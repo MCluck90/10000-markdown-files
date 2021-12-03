@@ -93,6 +93,9 @@ shouted out as its
 
 ## Wikilinks load test
 
-[[insincere rue]]
-[[unreassuring pellicularia filamentosa]]
-[[ongoing european black grouse]]
+[[cytoplasmatic plum tomato]]
+[[monoclinal investigating]]
+[[ataractic street fighter]]
+[[drugless pier luigi nervi]]
+[[sarcastic palaemon australis]]
+[[backlink load test]]

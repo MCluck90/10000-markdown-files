@@ -88,7 +88,5 @@ thump.
 
 ## Wikilinks load test
 
-[[blowsy kaffir corn]]
-[[forty-first hugo]]
-[[crescendo meccano]]
-[[transgender scantling]]
+[[difficult singaporean]]
+[[backlink load test]]

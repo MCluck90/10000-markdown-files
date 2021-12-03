@@ -86,8 +86,6 @@ So you.
 
 ## Wikilinks load test
 
-[[seventy-nine judgement in rem]]
-[[pouched cassiope mertensiana]]
-[[scriptural black buck]]
-[[spermous counterpart]]
-[[wrapped up cosmopolitan]]
+[[anemometrical boleyn]]
+[[glaucous sideline]]
+[[backlink load test]]

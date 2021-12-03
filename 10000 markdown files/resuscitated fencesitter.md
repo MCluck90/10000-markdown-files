@@ -90,7 +90,6 @@ Have you needn't try to queer
 
 ## Wikilinks load test
 
-[[albinotic immunoglobulin g]]
-[[unflawed idyl]]
-[[painstaking annwn]]
-[[neuroanatomical erudition]]
+[[contaminative ratafia biscuit]]
+[[undocumented she-goat]]
+[[backlink load test]]

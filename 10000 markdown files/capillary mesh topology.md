@@ -91,6 +91,8 @@ Prizes.
 
 ## Wikilinks load test
 
-[[latticelike marsh bellflower]]
-[[churned-up shiftiness]]
-[[differential uraninite]]
+[[ravaged gynecocracy]]
+[[acarpelous phalaropus]]
+[[vulval tabor pipe]]
+[[unprocessed winch]]
+[[backlink load test]]

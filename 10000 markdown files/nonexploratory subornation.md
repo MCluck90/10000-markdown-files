@@ -84,7 +84,6 @@ Stop this but some fun.
 
 ## Wikilinks load test
 
-[[ectodermic responder]]
-[[electroneutral white-topped aster]]
-[[born-again osmanthus americanus]]
-[[ordained exporter]]
+[[ubiquitous filbert]]
+[[unblinking twenty-two rifle]]
+[[backlink load test]]

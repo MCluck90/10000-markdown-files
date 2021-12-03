@@ -87,6 +87,5 @@ Shy they play croquet with either
 
 ## Wikilinks load test
 
-[[openmouthed slave-maker]]
-[[fossiliferous darner]]
-[[paniculate gastrogavage]]
+[[fascist sour orange]]
+[[backlink load test]]

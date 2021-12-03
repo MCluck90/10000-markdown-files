@@ -86,7 +86,5 @@ Beautiful beautiful Soup is
 
 ## Wikilinks load test
 
-[[sobering pitchman]]
-[[funny visual range]]
-[[rarefied south america]]
-[[lxxiv arithmetic operation]]
+[[toothsome lexical disambiguation]]
+[[backlink load test]]

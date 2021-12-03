@@ -85,7 +85,7 @@ Silence.
 
 ## Wikilinks load test
 
-[[invalidating self-renewal]]
-[[sulphuric trioxide]]
-[[peeled semiepiphyte]]
-[[fuddled love-in-a-mist]]
+[[procaryotic parathyroid hormone]]
+[[crural dead language]]
+[[brumal multiplicative inverse]]
+[[backlink load test]]

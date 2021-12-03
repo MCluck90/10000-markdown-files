@@ -85,6 +85,6 @@ I'm here directly.
 
 ## Wikilinks load test
 
-[[deadlocked phalaenopsis amabilis]]
-[[balzacian capricorn]]
-[[square-built family icteridae]]
+[[mousy racing shell]]
+[[ignominious benedictine order]]
+[[backlink load test]]

@@ -89,6 +89,9 @@ Beautiful Soup of trials There
 
 ## Wikilinks load test
 
-[[rhinal superscript]]
-[[monogenic sir james young simpson]]
-[[mutative major fast day]]
+[[affixal diplopoda]]
+[[lucrative diplococcus pneumoniae]]
+[[hobnailed sextuplet]]
+[[corbelled first lieutenant]]
+[[shabby-genteel smart]]
+[[backlink load test]]

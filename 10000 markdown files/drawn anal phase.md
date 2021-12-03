@@ -83,6 +83,7 @@ _I_ shan't be almost certain to
 
 ## Wikilinks load test
 
-[[languorous sergei vasilievich rachmaninov]]
-[[assigned goldfish]]
-[[trabeate joroslav heyrovsky]]
+[[inoffensive piper nigrum]]
+[[wooden-headed nonfeasance]]
+[[ivied main rotor]]
+[[backlink load test]]

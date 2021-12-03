@@ -84,8 +84,6 @@ Hardly knowing how did not so
 
 ## Wikilinks load test
 
-[[dutch american flag]]
-[[feculent peritoneal inflammation]]
-[[undistinguishable stopple]]
-[[derivational long-tailed porcupine]]
-[[moody astrodome]]
+[[garrulous coral vine]]
+[[further vacuum gage]]
+[[backlink load test]]

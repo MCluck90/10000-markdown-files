@@ -86,8 +86,6 @@ As that perhaps he can remember
 
 ## Wikilinks load test
 
-[[malodorous genus commiphora]]
-[[running seychelles islands]]
-[[blown parathyroid hormone]]
-[[rose-red lobsterman]]
-[[parturient tooth fungus]]
+[[high-pressure pfalz]]
+[[lamenting secret agent]]
+[[backlink load test]]

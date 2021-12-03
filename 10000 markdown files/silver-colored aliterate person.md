@@ -87,6 +87,6 @@ Read them were filled
 
 ## Wikilinks load test
 
-[[sebaceous ancistrodon]]
-[[top-heavy comp]]
-[[ashy lateral geniculate]]
+[[bantu samia]]
+[[right-hand marat]]
+[[backlink load test]]

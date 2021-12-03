@@ -89,7 +89,9 @@ Down down I used up the
 
 ## Wikilinks load test
 
-[[criminative genus ceratotherium]]
-[[ice-free variorum]]
-[[in-between cryogen]]
-[[amalgamated wild bill hickock]]
+[[wedged phantom limb]]
+[[anoxemic breakfast area]]
+[[categorical rigmarole]]
+[[agitated william james]]
+[[calcitic superior rectus muscle]]
+[[backlink load test]]

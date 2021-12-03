@@ -84,8 +84,7 @@ Be what the picture.
 
 ## Wikilinks load test
 
-[[amygdaliform freeway]]
-[[uninformed wheelchair]]
-[[educated striped skunk]]
-[[oxidized rocket salad]]
-[[operculate phylum pyrrophyta]]
+[[sparrow-sized balaenoptera]]
+[[pliant oral roberts]]
+[[bullnecked adoration]]
+[[backlink load test]]

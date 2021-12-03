@@ -83,6 +83,5 @@ A Mad Tea-Party There
 
 ## Wikilinks load test
 
-[[brittle kingdom of god]]
-[[prayerful frosted bat]]
-[[inappropriate anemone riparia]]
+[[venereal cypraea tigris]]
+[[backlink load test]]

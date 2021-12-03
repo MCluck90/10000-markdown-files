@@ -77,5 +77,5 @@ Soo oop of my wife
 
 ## Wikilinks load test
 
-[[ostentatious vomitive]]
-[[ataractic street fighter]]
+[[rhyming e-bomb]]
+[[backlink load test]]

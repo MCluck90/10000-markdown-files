@@ -79,8 +79,8 @@ At this generally just what Latitude
 
 ## Wikilinks load test
 
-[[bolshevistic masculinity]]
-[[rash nervous prostration]]
-[[amygdaliform freeway]]
-[[unconventional order heterosomata]]
-[[doctoral acrocomia vinifera]]
+[[fast-flying italic]]
+[[erratic butcher shop]]
+[[empty-handed genus piranga]]
+[[air-to-ground express luxury liner]]
+[[backlink load test]]

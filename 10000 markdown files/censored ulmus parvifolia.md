@@ -85,8 +85,6 @@ muttered to read several other
 
 ## Wikilinks load test
 
-[[foreordained praise]]
-[[fungicidal eeg]]
-[[veteran copaline]]
-[[senegalese stocking stuffer]]
-[[soft-witted redeemer]]
+[[retributive heart of dixie]]
+[[contested citellus citellus]]
+[[backlink load test]]

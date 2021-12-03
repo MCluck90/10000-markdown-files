@@ -93,8 +93,5 @@ These were too stiff.
 
 ## Wikilinks load test
 
-[[lancastrian numismatology]]
-[[pointillist grand total]]
-[[eyeless muriatic acid]]
-[[extralegal postmature infant]]
-[[attached clock tower]]
+[[frugal ophryon]]
+[[backlink load test]]

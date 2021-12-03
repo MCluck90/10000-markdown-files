@@ -79,6 +79,7 @@ She gave to call after
 
 ## Wikilinks load test
 
-[[cockeyed broadside]]
-[[dietetical strawberry hemangioma]]
-[[agranulocytic cyclodestructive surgery]]
+[[veteran copaline]]
+[[angelical akaryocyte]]
+[[nonexploratory dung beetle]]
+[[backlink load test]]

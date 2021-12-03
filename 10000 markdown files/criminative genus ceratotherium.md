@@ -86,6 +86,6 @@ After a hatter.
 
 ## Wikilinks load test
 
-[[soldierly horn button]]
-[[hebdomadary phaeton]]
-[[discriminable lessening]]
+[[susceptible scallion]]
+[[hebephrenic hemianopia]]
+[[backlink load test]]

@@ -79,8 +79,6 @@ won't walk.
 
 ## Wikilinks load test
 
-[[taupe santalaceae]]
-[[lxxxii iron-storage disease]]
-[[inadmissible tea table]]
-[[fishy tremella lutescens]]
-[[desegrated drinking bout]]
+[[cushiony family ostraciontidae]]
+[[better off sea crawfish]]
+[[backlink load test]]

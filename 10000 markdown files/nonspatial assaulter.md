@@ -81,5 +81,5 @@ If I move.
 
 ## Wikilinks load test
 
-[[sectorial bee beetle]]
-[[triangular mountain pride]]
+[[ethnologic triumvir]]
+[[backlink load test]]

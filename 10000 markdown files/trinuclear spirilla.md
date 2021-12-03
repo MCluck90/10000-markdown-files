@@ -88,6 +88,8 @@ Visit either a strange tale
 
 ## Wikilinks load test
 
-[[buzzing chalk pit]]
-[[dominical livery driver]]
-[[phonogramic oculus dexter]]
+[[redux lantern fly]]
+[[gentlemanlike applesauce cake]]
+[[padded botanical medicine]]
+[[somatosensory government issue]]
+[[backlink load test]]

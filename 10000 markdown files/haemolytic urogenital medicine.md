@@ -94,6 +94,8 @@ either a boon Was
 
 ## Wikilinks load test
 
-[[in a bad way inhuman treatment]]
-[[aeolian fema]]
-[[stone-grey tetrapod]]
+[[laudable pilea microphylla]]
+[[calculating litigiousness]]
+[[chafed defenestration]]
+[[bicipital square metre]]
+[[backlink load test]]

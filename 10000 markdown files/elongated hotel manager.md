@@ -86,6 +86,5 @@ Everybody says you're so mad
 
 ## Wikilinks load test
 
-[[bawdy plash]]
-[[wine-red drafter]]
-[[algebraic cole]]
+[[debonair luftwaffe]]
+[[backlink load test]]

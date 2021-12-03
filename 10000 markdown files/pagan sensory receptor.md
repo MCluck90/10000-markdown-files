@@ -82,8 +82,6 @@ This is Be what
 
 ## Wikilinks load test
 
-[[petalled tpn]]
-[[crystal clear genus colocasia]]
-[[annexal first-degree burn]]
-[[topless dosage]]
-[[hale tea tortrix]]
+[[jellied refined sugar]]
+[[arboraceous snap roll]]
+[[backlink load test]]

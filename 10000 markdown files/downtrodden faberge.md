@@ -77,7 +77,8 @@ Dinah'll miss me too
 
 ## Wikilinks load test
 
-[[patelliform pavlov]]
-[[flame-coloured disbeliever]]
-[[narrow-minded orange fleabane]]
-[[batrachian cd drive]]
+[[detachable aplite]]
+[[evident refectory]]
+[[idiopathic thumbnut]]
+[[parietal fervour]]
+[[backlink load test]]

@@ -79,8 +79,7 @@ about here before that accounts
 
 ## Wikilinks load test
 
-[[botuliform symphilid]]
-[[unholy unearned revenue]]
-[[isoclinal accusative]]
-[[crinkly feebleness]]
-[[awl-shaped psycholinguist]]
+[[cd retired person]]
+[[apparent causerie]]
+[[induced spreading pogonia]]
+[[backlink load test]]

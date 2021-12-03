@@ -81,5 +81,6 @@ or seemed to make it Mouse
 
 ## Wikilinks load test
 
-[[insolent lanyard]]
-[[obscene genus psychopsis]]
+[[baboonish genus homogyne]]
+[[accommodational picnic ground]]
+[[backlink load test]]

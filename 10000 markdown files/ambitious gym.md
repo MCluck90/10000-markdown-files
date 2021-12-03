@@ -93,8 +93,9 @@ exclaimed.
 
 ## Wikilinks load test
 
-[[statutory burhinus oedicnemus]]
-[[egotistical jemaah islamiyah]]
-[[brackish metacarpal]]
-[[wily james joyce]]
-[[unrepeatable haymaking]]
+[[lighted ceratodontidae]]
+[[hopeful northern bog lemming]]
+[[unreproducible driver ant]]
+[[antisemitic humber bridge]]
+[[juridical torture chamber]]
+[[backlink load test]]

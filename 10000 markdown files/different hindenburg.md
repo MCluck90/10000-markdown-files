@@ -76,5 +76,8 @@ Our family always get
 
 ## Wikilinks load test
 
-[[grim cryptoprocta ferox]]
-[[in play red planet]]
+[[pug-faced manidae]]
+[[nomothetic pillar of islam]]
+[[macrencephalic fox hunting]]
+[[multi-seeded organic brain syndrome]]
+[[backlink load test]]

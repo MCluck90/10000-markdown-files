@@ -86,8 +86,5 @@ RABBIT engraved upon Alice shall
 
 ## Wikilinks load test
 
-[[common or garden gigo]]
-[[sufficient suborder lacertilia]]
-[[eccentric left hander]]
-[[walking columbite-tantalite]]
-[[gilt-edged star magnolia]]
+[[bolshevist small white aster]]
+[[backlink load test]]

@@ -88,8 +88,8 @@ Our family always growing.
 
 ## Wikilinks load test
 
-[[level lobipes lobatus]]
-[[reportable cutting edge]]
-[[braw zinc sulfide]]
-[[encyclopaedic totalisator]]
-[[sneak alcoholic beverage]]
+[[ball-shaped soya]]
+[[caddish genus psophocarpus]]
+[[recrudescent trailing four oclock]]
+[[too-careful porkchop]]
+[[backlink load test]]

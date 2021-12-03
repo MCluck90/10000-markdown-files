@@ -88,8 +88,8 @@ Whoever lives a comfort
 
 ## Wikilinks load test
 
-[[endocentric blue baby]]
-[[contented control]]
-[[trusty plumed tussock]]
-[[self-acting directorate for inter-services intelligence]]
-[[semiweekly sulcus]]
+[[avifaunal bermuda plan]]
+[[spellbinding impinging]]
+[[calycular smoke alarm]]
+[[edacious colutea arborescens]]
+[[backlink load test]]

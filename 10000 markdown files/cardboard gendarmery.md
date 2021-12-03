@@ -86,8 +86,8 @@ Twinkle twinkle little sister
 
 ## Wikilinks load test
 
-[[addled flatbed]]
-[[well-heeled endowment insurance]]
-[[not surprised romneya]]
-[[exact growing pains]]
-[[heart-shaped coiffeuse]]
+[[livelong clergy]]
+[[no-win microcytic anaemia]]
+[[distributed garget]]
+[[nonbearing petrarch]]
+[[backlink load test]]

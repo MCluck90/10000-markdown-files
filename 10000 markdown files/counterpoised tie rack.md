@@ -87,6 +87,8 @@ Beautiful beauti FUL SOUP.
 
 ## Wikilinks load test
 
-[[adscript life eternal]]
-[[fawn-colored mental soundness]]
-[[addled flatbed]]
+[[burnable methadon]]
+[[knock-down-and-drag-out brain surgeon]]
+[[forty-eighth protea cynaroides]]
+[[tantrik allioniaceae]]
+[[backlink load test]]

@@ -86,5 +86,5 @@ Hush.
 
 ## Wikilinks load test
 
-[[hands-down new zealand spinach]]
-[[victimised descriptive adjective]]
+[[comatose chancery]]
+[[backlink load test]]

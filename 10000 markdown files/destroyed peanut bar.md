@@ -92,7 +92,9 @@ Nothing whatever happens when a solemn
 
 ## Wikilinks load test
 
-[[wholemeal ulvaceae]]
-[[amenorrhoeal fucoid]]
-[[self-directed radioscopy]]
-[[fire-resisting deep middle cerebral vein]]
+[[apodeictic oligodendria]]
+[[fixed blind stitching]]
+[[tailored nymphaea alba]]
+[[impaired bush vetch]]
+[[stemless preceptor]]
+[[backlink load test]]

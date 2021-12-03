@@ -88,5 +88,5 @@ It'll be beheaded and get up
 
 ## Wikilinks load test
 
-[[otherwise sea trifoly]]
-[[negative warpath]]
+[[every chopstick]]
+[[backlink load test]]

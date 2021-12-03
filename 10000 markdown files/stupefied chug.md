@@ -83,4 +83,8 @@ here I won't talk said
 
 ## Wikilinks load test
 
-[[self-coloured basuco]]
+[[prevailing hawaii time]]
+[[structural bahraini]]
+[[hyperbolic paper electrophoresis]]
+[[deflated sanskrit]]
+[[backlink load test]]

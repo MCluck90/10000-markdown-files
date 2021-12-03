@@ -90,5 +90,8 @@ Nor I once set to
 
 ## Wikilinks load test
 
-[[sapient genus spraguea]]
-[[bitumenoid cold stuffed tomato]]
+[[sidereal egret]]
+[[expressionist sciaenops]]
+[[y2k compliant buggy whip]]
+[[venerable forgivingness]]
+[[backlink load test]]

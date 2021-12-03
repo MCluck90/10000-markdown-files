@@ -74,8 +74,6 @@ Digging for your hair.
 
 ## Wikilinks load test
 
-[[inheritable green olive]]
-[[wire-haired foredeck]]
-[[ecologic brainpan]]
-[[fanatical sporangiophore]]
-[[nonfat hare wallaby]]
+[[disciplinary fall armyworm]]
+[[nepali tremor]]
+[[backlink load test]]

@@ -79,4 +79,9 @@ Call it gloomily then
 
 ## Wikilinks load test
 
-[[prongy order pelecaniformes]]
+[[lentissimo bise]]
+[[unconstructive shooting gallery]]
+[[bridal cape verde escudo]]
+[[blasphemous albizia]]
+[[pugilistic betatron]]
+[[backlink load test]]

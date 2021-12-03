@@ -84,5 +84,9 @@ Let us all except
 
 ## Wikilinks load test
 
-[[valid incense]]
-[[foremost peacock ore]]
+[[stipendiary klan]]
+[[ball-hawking diathermy machine]]
+[[torturing genus malaxis]]
+[[prognosticative klick]]
+[[indicatory volkhov river]]
+[[backlink load test]]

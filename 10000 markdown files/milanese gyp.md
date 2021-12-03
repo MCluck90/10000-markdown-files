@@ -93,7 +93,8 @@ Can't remember said advance.
 
 ## Wikilinks load test
 
-[[full-bosomed ormosia monosperma]]
-[[challenging insurance agent]]
-[[bimestrial ranunculus flammula]]
-[[ratiocinative spermophilus]]
+[[hundredth isurus oxyrhincus]]
+[[sagittiform slit lamp]]
+[[hardhearted erythroxylon]]
+[[anal morbilli]]
+[[backlink load test]]

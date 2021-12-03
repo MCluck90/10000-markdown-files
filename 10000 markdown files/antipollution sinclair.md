@@ -84,7 +84,9 @@ Nobody asked with the judge
 
 ## Wikilinks load test
 
-[[suppressed genus nephrolepis]]
-[[antitypical speed of light]]
-[[corbelled piriform area]]
-[[full-grown straight life insurance]]
+[[supererogatory effusion]]
+[[asphyxiated limping]]
+[[noncollapsable bootleg]]
+[[snappy subculture]]
+[[cometary chasm]]
+[[backlink load test]]

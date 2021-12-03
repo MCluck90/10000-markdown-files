@@ -91,6 +91,7 @@ Serpent.
 
 ## Wikilinks load test
 
-[[allomorphic berserker]]
-[[french acaridiasis]]
-[[synaptic zeno]]
+[[above-mentioned cerise]]
+[[demythologized sorghum halepense]]
+[[tzarist zymogen]]
+[[backlink load test]]

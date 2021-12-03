@@ -88,7 +88,7 @@ Found IT the croquet-ground.
 
 ## Wikilinks load test
 
-[[rock-steady storksbill]]
-[[sporty pinpoint]]
-[[annihilating caplin]]
-[[differentiable serpent star]]
+[[slovakian bailment]]
+[[passant blood clot]]
+[[swollen candy bar]]
+[[backlink load test]]

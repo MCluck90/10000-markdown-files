@@ -75,5 +75,8 @@ _I_ don't know of cards after
 
 ## Wikilinks load test
 
-[[unaddressed rose globe lily]]
-[[trabecular fence mending]]
+[[short-bodied knight-errant]]
+[[rh-positive hurler]]
+[[decipherable amenhotep iv]]
+[[rastafarian aphorism]]
+[[backlink load test]]

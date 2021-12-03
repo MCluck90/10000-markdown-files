@@ -78,8 +78,5 @@ Mary Ann and everybody
 
 ## Wikilinks load test
 
-[[anticoagulative alca]]
-[[measured fines herbes]]
-[[censorial humulus japonicus]]
-[[breeched ginger beer]]
-[[vinegary nonsense]]
+[[resolved gadus]]
+[[backlink load test]]

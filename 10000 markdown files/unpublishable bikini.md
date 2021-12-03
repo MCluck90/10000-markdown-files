@@ -84,8 +84,7 @@ HE was shrinking rapidly
 
 ## Wikilinks load test
 
-[[overgenerous entomophthoraceae]]
-[[confutative running stitch]]
-[[archaean ado]]
-[[pet pitchman]]
-[[watery collectivist]]
+[[orthogonal samuel adams]]
+[[unliveried toothbrush tree]]
+[[shaven coon cat]]
+[[backlink load test]]

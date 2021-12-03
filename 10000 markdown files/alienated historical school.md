@@ -82,6 +82,6 @@ A nice little boy And when
 
 ## Wikilinks load test
 
-[[mind-bending euclids second axiom]]
-[[scaley overture]]
-[[inappropriate anemone riparia]]
+[[censurable sectary]]
+[[horn-shaped breakwater]]
+[[backlink load test]]

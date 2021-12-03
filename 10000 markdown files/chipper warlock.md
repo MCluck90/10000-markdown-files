@@ -87,8 +87,5 @@ thought it's so very humble
 
 ## Wikilinks load test
 
-[[shadowed salmon]]
-[[togged nestorian church]]
-[[strong-smelling tramway]]
-[[shredded auscultation]]
-[[parthian serious music]]
+[[one-sided fiddlestick]]
+[[backlink load test]]

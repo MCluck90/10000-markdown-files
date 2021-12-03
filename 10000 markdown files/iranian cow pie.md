@@ -85,6 +85,5 @@ Can you don't care which
 
 ## Wikilinks load test
 
-[[original green peafowl]]
-[[serious fourth of july]]
-[[genotypic hosier]]
+[[venturesome chucker-out]]
+[[backlink load test]]

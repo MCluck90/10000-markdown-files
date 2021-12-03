@@ -95,6 +95,8 @@ Idiot.
 
 ## Wikilinks load test
 
-[[tall-stalked slothfulness]]
-[[boric clouding]]
-[[nonelected richard henry tawney]]
+[[prehensile cgs system]]
+[[mastoid humorousness]]
+[[premarital charles]]
+[[liquefiable genus mandragora]]
+[[backlink load test]]

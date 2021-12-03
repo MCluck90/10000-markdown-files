@@ -86,6 +86,6 @@ When I'M not answer
 
 ## Wikilinks load test
 
-[[ataractic street fighter]]
-[[knee-length black comedy]]
-[[jerry-built altocumulus cloud]]
+[[self-seeking graminales]]
+[[torn irish strawberry]]
+[[backlink load test]]

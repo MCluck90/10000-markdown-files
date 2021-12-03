@@ -81,7 +81,7 @@ Prizes.
 
 ## Wikilinks load test
 
-[[tabular calabura]]
-[[alterable tropical medicine]]
-[[unchallenged aussie]]
-[[frightened unoriginality]]
+[[deep pennyroyal oil]]
+[[hispaniolan hebraist]]
+[[unmethodical laminated glass]]
+[[backlink load test]]

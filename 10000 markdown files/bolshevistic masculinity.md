@@ -84,6 +84,5 @@ Pig.
 
 ## Wikilinks load test
 
-[[diagonalizable defloration]]
-[[distrait euglena]]
-[[fretful gastroesophageal reflux]]
+[[pharyngeal fleur-de-lis]]
+[[backlink load test]]

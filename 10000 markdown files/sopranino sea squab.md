@@ -87,8 +87,6 @@ I advise you usually see me
 
 ## Wikilinks load test
 
-[[pro-choice great smoky mountains]]
-[[difficult singaporean]]
-[[bar-shaped morrison]]
-[[in force pantomime]]
-[[disused composition]]
+[[nonimmune new greek]]
+[[behaviourist shoe collar]]
+[[backlink load test]]

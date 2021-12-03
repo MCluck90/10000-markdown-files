@@ -95,4 +95,6 @@ Once upon Alice's great interest in
 
 ## Wikilinks load test
 
-[[semi-erect br]]
+[[staunch st. ignatius]]
+[[diagrammatic stockfish]]
+[[backlink load test]]

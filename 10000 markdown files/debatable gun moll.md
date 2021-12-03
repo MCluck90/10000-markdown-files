@@ -87,7 +87,5 @@ Let's go said gravely.
 
 ## Wikilinks load test
 
-[[ascetic dwarf buffalo]]
-[[retroactive massasoit]]
-[[corticifugal eucalyptus rostrata]]
-[[papery gorgerin]]
+[[ionian pinctada]]
+[[backlink load test]]

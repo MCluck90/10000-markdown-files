@@ -88,6 +88,7 @@ Stand up again very earnestly.
 
 ## Wikilinks load test
 
-[[pastel-colored earthtongue]]
-[[disconnected lower paleolithic]]
-[[capitulary oreortyx]]
+[[deadlocked phalaenopsis amabilis]]
+[[deadlocked phalaenopsis amabilis]]
+[[implacable meter]]
+[[backlink load test]]

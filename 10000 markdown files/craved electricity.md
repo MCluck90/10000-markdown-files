@@ -78,8 +78,6 @@ which happens and among those
 
 ## Wikilinks load test
 
-[[posed epona]]
-[[brainwashed onion plant]]
-[[gabled genus hemitripterus]]
-[[subclinical time constant]]
-[[idiopathic thumbnut]]
+[[catarrhal plavix]]
+[[difficult singaporean]]
+[[backlink load test]]

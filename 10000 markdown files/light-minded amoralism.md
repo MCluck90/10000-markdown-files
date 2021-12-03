@@ -87,8 +87,9 @@ Stupid things to stay
 
 ## Wikilinks load test
 
-[[one hundred thirty-five arctiidae]]
-[[glamorous claymore]]
-[[sericeous i peter]]
-[[aphasic maternity hospital]]
-[[fretful gastroesophageal reflux]]
+[[revered genus tibicen]]
+[[light-headed freedwoman]]
+[[closing hysteroscopy]]
+[[postmortal liza]]
+[[nippy merlangus merlangus]]
+[[backlink load test]]

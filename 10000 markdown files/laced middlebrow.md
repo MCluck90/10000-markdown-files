@@ -88,5 +88,5 @@ cried so like mad
 
 ## Wikilinks load test
 
-[[commendable crock]]
-[[absorbable oil tycoon]]
+[[autocatalytic recusation]]
+[[backlink load test]]

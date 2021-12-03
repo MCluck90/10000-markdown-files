@@ -91,6 +91,9 @@ muttered to win that
 
 ## Wikilinks load test
 
-[[thermoelectrical ratatouille]]
-[[cortico-hypothalamic giant clam]]
-[[monestrous genus gymnosporangium]]
+[[impeded kwakiutl]]
+[[irreproachable renal vein]]
+[[self-giving antiaircraft gun]]
+[[oviform alligatoridae]]
+[[masterly nitrification]]
+[[backlink load test]]

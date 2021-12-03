@@ -87,8 +87,7 @@ Wake up against each time busily
 
 ## Wikilinks load test
 
-[[corbelled piriform area]]
-[[cxv dreck]]
-[[edited school text]]
-[[supererogatory effusion]]
-[[peaceable family triakidae]]
+[[chinked blue fox]]
+[[teary confirmation]]
+[[ii crookneck]]
+[[backlink load test]]

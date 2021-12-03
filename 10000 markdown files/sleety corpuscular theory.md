@@ -80,8 +80,9 @@ She'd soon made another dig
 
 ## Wikilinks load test
 
-[[self-renewing thoroughbred]]
-[[immune boucle]]
-[[diagrammatic stockfish]]
-[[applicative halimodendron argenteum]]
-[[appellate spalacidae]]
+[[pantropic guaiac]]
+[[meiotic employment contract]]
+[[deciphered halls honeysuckle]]
+[[heroical sirrah]]
+[[on-the-scene procrustes]]
+[[backlink load test]]

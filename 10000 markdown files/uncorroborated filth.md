@@ -86,6 +86,8 @@ ALICE'S LOVE.
 
 ## Wikilinks load test
 
-[[educational brights disease]]
-[[blasting towing rope]]
-[[straightaway personal line of credit]]
+[[tired sustaining pedal]]
+[[sparrow-sized balaenoptera]]
+[[most-favored-nation work-clothing]]
+[[demonstrative real number]]
+[[backlink load test]]

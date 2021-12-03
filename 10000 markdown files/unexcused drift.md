@@ -86,4 +86,5 @@ Alas.
 
 ## Wikilinks load test
 
-[[absolute bubble chamber]]
+[[skeletal lamb]]
+[[backlink load test]]

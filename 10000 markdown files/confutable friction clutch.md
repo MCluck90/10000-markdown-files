@@ -89,8 +89,7 @@ sighed deeply and it'll
 
 ## Wikilinks load test
 
-[[autumn-blooming zygodactyl foot]]
-[[anemometrical tie tack]]
-[[andantino southern triangle]]
-[[unrepaired babar]]
-[[circumlocutious neural arch]]
+[[mirky tack hammer]]
+[[leafy giant fulmar]]
+[[glib casework]]
+[[backlink load test]]

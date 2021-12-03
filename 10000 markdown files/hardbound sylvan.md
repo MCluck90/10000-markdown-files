@@ -83,8 +83,6 @@ You'll get us Drawling the
 
 ## Wikilinks load test
 
-[[consensual royal flush]]
-[[bhutanese rule of morphology]]
-[[reflex garcia lorca]]
-[[forgettable chardonnay]]
-[[endovenous court of assize]]
+[[changeless quadrangular prism]]
+[[ciliate vancomycin]]
+[[backlink load test]]

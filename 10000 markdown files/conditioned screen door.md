@@ -92,8 +92,7 @@ Back to one left alive.
 
 ## Wikilinks load test
 
-[[faceted ammonia clock]]
-[[equidistant long whist]]
-[[colored adipose tissue]]
-[[endovenous court of assize]]
-[[electrostatic scleroderma]]
+[[mousy racing shell]]
+[[unreassuring pellicularia filamentosa]]
+[[soteriological lungless salamander]]
+[[backlink load test]]

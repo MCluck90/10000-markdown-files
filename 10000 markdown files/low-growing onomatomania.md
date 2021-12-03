@@ -87,8 +87,6 @@ wow.
 
 ## Wikilinks load test
 
-[[cluttered lepiota procera]]
-[[kashmiri tau]]
-[[hammered fiction]]
-[[satisfactory hell dust]]
-[[bulbaceous chloral hydrate]]
+[[obliterate barnful]]
+[[tactless raw throat]]
+[[backlink load test]]

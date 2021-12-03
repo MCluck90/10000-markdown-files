@@ -80,7 +80,5 @@ Alice flinging the ground near her
 
 ## Wikilinks load test
 
-[[presto amorpha californica]]
-[[blue-sky suntan]]
-[[spacy sea cucumber]]
-[[drawn anal phase]]
+[[german vertical circle]]
+[[backlink load test]]

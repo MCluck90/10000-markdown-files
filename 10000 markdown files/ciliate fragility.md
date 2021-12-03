@@ -79,6 +79,8 @@ Mind that if not said pig
 
 ## Wikilinks load test
 
-[[enforceable prunus nigra]]
-[[statistical blackfoot]]
-[[inflectional silkiness]]
+[[fortieth genus castanospermum]]
+[[coal-fired immunosuppression]]
+[[airy wood avens]]
+[[high-energy passionflower]]
+[[backlink load test]]

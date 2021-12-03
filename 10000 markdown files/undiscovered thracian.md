@@ -75,7 +75,7 @@ In my boy I mean
 
 ## Wikilinks load test
 
-[[bowfront tristram]]
-[[amalgamated wild bill hickock]]
-[[substandard south platte river]]
-[[pinkish-white infinitude]]
+[[wearisome demolishing]]
+[[forty-eighth protea cynaroides]]
+[[patelliform pavlov]]
+[[backlink load test]]

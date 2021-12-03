@@ -88,6 +88,5 @@ Can't remember things that stuff.
 
 ## Wikilinks load test
 
-[[unprocessed winch]]
-[[weaned abampere]]
-[[hand-operated winter crookneck squash]]
+[[unlawful myotis leucifugus]]
+[[backlink load test]]

@@ -85,7 +85,9 @@ thump.
 
 ## Wikilinks load test
 
-[[six-pointed eugenia dicrana]]
-[[riblike capitulum]]
-[[soporific chelonethida]]
-[[upstream duke university]]
+[[agglomerative oxidation number]]
+[[catabatic ooze]]
+[[unverbalized verticalness]]
+[[waterproof platystemon]]
+[[short and sweet dryer]]
+[[backlink load test]]

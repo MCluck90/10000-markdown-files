@@ -89,5 +89,5 @@ Silence all except the pebbles
 
 ## Wikilinks load test
 
-[[all-around stylomecon heterophyllum]]
-[[unpalatable mariposa tulip]]
+[[fashioned andelmin]]
+[[backlink load test]]

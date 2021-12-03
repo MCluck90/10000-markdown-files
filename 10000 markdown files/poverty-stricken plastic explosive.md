@@ -86,7 +86,6 @@ There's more As if
 
 ## Wikilinks load test
 
-[[wonder-struck tropic]]
-[[boisterous quellung reaction]]
-[[dialectical escherichia]]
-[[unexplained cuculiformes]]
+[[dreamed crex crex]]
+[[genteel hugo grotius]]
+[[backlink load test]]

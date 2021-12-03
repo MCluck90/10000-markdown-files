@@ -81,8 +81,6 @@ Thinking again to say
 
 ## Wikilinks load test
 
-[[revivalistic genus phoenix]]
-[[tantrik allioniaceae]]
-[[frolicky photinia arbutifolia]]
-[[blue-purple malayalam]]
-[[attractive pain threshold]]
+[[sulfurous hanging gardens of babylon]]
+[[unpleasing maoist]]
+[[backlink load test]]

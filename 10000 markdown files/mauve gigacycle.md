@@ -89,6 +89,6 @@ I'LL soon made.
 
 ## Wikilinks load test
 
-[[distracted smallmouth black bass]]
-[[evaporated coat of arms]]
-[[literary guaiacum sanctum]]
+[[fulgurant von braun]]
+[[pleasing redbrush]]
+[[backlink load test]]

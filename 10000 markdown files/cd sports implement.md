@@ -78,5 +78,5 @@ Begin at tea-time and
 
 ## Wikilinks load test
 
-[[hard-of-hearing yves tanguy]]
-[[screwball double clinch]]
+[[doltish orthoepy]]
+[[backlink load test]]

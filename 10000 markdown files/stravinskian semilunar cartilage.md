@@ -93,5 +93,5 @@ Pennyworth only as they do this
 
 ## Wikilinks load test
 
-[[unwieldy skin test]]
-[[cyprinid sissoo]]
+[[paintable korzybski]]
+[[backlink load test]]

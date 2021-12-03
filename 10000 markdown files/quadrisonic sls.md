@@ -76,4 +76,6 @@ Up lazy thing she stopped
 
 ## Wikilinks load test
 
-[[liplike umbellifer]]
+[[dull lamarckian]]
+[[one hundred eighty creek confederacy]]
+[[backlink load test]]

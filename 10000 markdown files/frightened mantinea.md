@@ -83,5 +83,5 @@ YOU'D better with diamonds and said
 
 ## Wikilinks load test
 
-[[crabwise pavo]]
-[[muscovite zonal pelargonium]]
+[[duncish space helmet]]
+[[backlink load test]]

@@ -93,5 +93,5 @@ Wow.
 
 ## Wikilinks load test
 
-[[unsuitable church building]]
-[[re-entrant chimonanthus praecox]]
+[[milanese gyp]]
+[[backlink load test]]

@@ -79,8 +79,8 @@ wow.
 
 ## Wikilinks load test
 
-[[unavowed piano action]]
-[[ritzy intermediate]]
-[[unlit lunge]]
-[[feminist smooth plane]]
-[[delirious gene]]
+[[light-headed freedwoman]]
+[[operatic vocational rehabilitation]]
+[[jagged claptrap]]
+[[asclepiadaceous featherweight]]
+[[backlink load test]]

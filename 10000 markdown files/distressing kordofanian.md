@@ -84,8 +84,5 @@ That your little bottle on
 
 ## Wikilinks load test
 
-[[clubbish horizontality]]
-[[disappointing anton pavlovich chekov]]
-[[conciliative gayness]]
-[[caliginous congridae]]
-[[dwarfish lead time]]
+[[caudal voidance]]
+[[backlink load test]]

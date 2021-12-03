@@ -86,8 +86,9 @@ Visit either a thick
 
 ## Wikilinks load test
 
-[[north running game]]
-[[simulated riga]]
-[[omissive neolentinus]]
-[[clxx blechnum spicant]]
-[[unchecked moustache]]
+[[verticillated pseudoscorpiones]]
+[[dianoetic continuous creation theory]]
+[[meridian jukebox]]
+[[unendowed sertoli cell]]
+[[fourpenny killer]]
+[[backlink load test]]

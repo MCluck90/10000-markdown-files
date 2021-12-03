@@ -87,4 +87,7 @@ Good-bye feet for turns quarrelling
 
 ## Wikilinks load test
 
-[[cytologic umbrella bird]]
+[[gauche soloist]]
+[[lackluster erica tetralix]]
+[[shamed saroyan]]
+[[backlink load test]]

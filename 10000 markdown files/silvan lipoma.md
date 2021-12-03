@@ -89,5 +89,9 @@ I've fallen by far
 
 ## Wikilinks load test
 
-[[off-color angina]]
-[[bicyclic spurious wing]]
+[[sciatic norfolk]]
+[[albinal next of kin]]
+[[russian epicentre]]
+[[decipherable carpet tack]]
+[[unfettered cytogenesis]]
+[[backlink load test]]

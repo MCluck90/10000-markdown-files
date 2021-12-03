@@ -86,8 +86,6 @@ quite silent.
 
 ## Wikilinks load test
 
-[[tortious hypothermia]]
-[[valvular balloon]]
-[[vital copper glance]]
-[[gynecologic chloramine-t]]
-[[complaintive carvedilol]]
+[[sober oaxaca]]
+[[southwestern coronoid process]]
+[[backlink load test]]

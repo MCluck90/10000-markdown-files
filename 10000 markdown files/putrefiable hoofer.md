@@ -79,8 +79,9 @@ No more there MUST have baked
 
 ## Wikilinks load test
 
-[[indiscreet mountain gorilla]]
-[[duplicitous stare]]
-[[semestral fennic]]
-[[paunchy menieres disease]]
-[[courageous rudbeckia laciniata]]
+[[complaisant smitty stevens]]
+[[crannied edward young]]
+[[high-power urticaceae]]
+[[cytologic umbrella bird]]
+[[quantifiable winter crookneck]]
+[[backlink load test]]

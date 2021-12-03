@@ -76,7 +76,7 @@ sh.
 
 ## Wikilinks load test
 
-[[lyric muskhogean]]
-[[friendless florida key]]
-[[unrepaired babar]]
-[[feudatory conodontophorida]]
+[[omnibus collard]]
+[[villainous persona grata]]
+[[briary tribal sheik]]
+[[backlink load test]]

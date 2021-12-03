@@ -91,5 +91,7 @@ Visit either the Caterpillar's
 
 ## Wikilinks load test
 
-[[pavlovian flannelette]]
-[[impotent cercidiphyllum japonicum]]
+[[nonsweet hemoglobinuria]]
+[[enlightening henrik johan ibsen]]
+[[baboonish genus homogyne]]
+[[backlink load test]]

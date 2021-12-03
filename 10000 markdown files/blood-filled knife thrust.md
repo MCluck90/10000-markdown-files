@@ -84,8 +84,6 @@ With what nonsense I'm
 
 ## Wikilinks load test
 
-[[nonviscid bedding]]
-[[cytopathogenic serge]]
-[[life-and-death england]]
-[[putrefiable hoofer]]
-[[inward-moving solar constant]]
+[[powerful bobble]]
+[[preserved intelligence cell]]
+[[backlink load test]]

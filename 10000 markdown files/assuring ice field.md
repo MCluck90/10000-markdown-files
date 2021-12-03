@@ -81,6 +81,8 @@ was VERY nearly out loud as
 
 ## Wikilinks load test
 
-[[euphonic snow line]]
-[[deadened pitocin]]
-[[ecologic stingaree-bush]]
+[[denary garrison]]
+[[unpatterned melchite]]
+[[squabby linen]]
+[[psycholinguistic congelation]]
+[[backlink load test]]

@@ -86,7 +86,8 @@ One side and they're
 
 ## Wikilinks load test
 
-[[flat-top squash racquets]]
-[[flashy huckaback]]
-[[hand-held midas]]
-[[logistic pelycosaur]]
+[[open-ended daylight-saving time]]
+[[enlightened soupcon]]
+[[ulterior bura]]
+[[immunosuppressive grasp]]
+[[backlink load test]]

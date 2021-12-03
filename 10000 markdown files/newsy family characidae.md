@@ -91,6 +91,6 @@ Soup does.
 
 ## Wikilinks load test
 
-[[free-soil third rail]]
-[[precooled klutz]]
-[[unpersuasive disinfectant]]
+[[overrefined mya arenaria]]
+[[graceless genus rangifer]]
+[[backlink load test]]

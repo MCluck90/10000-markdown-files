@@ -89,7 +89,9 @@ later.
 
 ## Wikilinks load test
 
-[[xcvi main line]]
-[[cross-eyed esophagus]]
-[[decadent order rickettsiales]]
-[[knee-length foam rubber]]
+[[grey-white news event]]
+[[unrepeatable haymaking]]
+[[sweetheart punchayet]]
+[[countrified vena lacrimalis]]
+[[box-shaped sciurus carolinensis]]
+[[backlink load test]]

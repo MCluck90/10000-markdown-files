@@ -82,5 +82,6 @@ Suppose it teases.
 
 ## Wikilinks load test
 
-[[manual eskimo-aleut language]]
-[[six-pointed eugenia dicrana]]
+[[impoverished aloe family]]
+[[five-pointed booby hatch]]
+[[backlink load test]]

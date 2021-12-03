@@ -77,7 +77,9 @@ Thank you hate C
 
 ## Wikilinks load test
 
-[[dismissible bier]]
-[[demolished electrical contact]]
-[[minor phycomycetes group]]
-[[right-hand marat]]
+[[garlicky cracticus]]
+[[bantu-speaking refractometer]]
+[[toilsome bill mauldin]]
+[[conventionalized slapshot]]
+[[hominine steel industry]]
+[[backlink load test]]

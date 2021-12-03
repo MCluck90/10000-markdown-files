@@ -84,5 +84,5 @@ Shy they seem sending me my
 
 ## Wikilinks load test
 
-[[reactive overdraft credit]]
-[[childish gummed label]]
+[[semantic bokmal]]
+[[backlink load test]]

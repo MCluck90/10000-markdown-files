@@ -84,8 +84,5 @@ After these came ten
 
 ## Wikilinks load test
 
-[[thick-skinned sutural bone]]
-[[cephalopod scombroid]]
-[[frightened unoriginality]]
-[[prokaryotic scientist]]
-[[scummy pornography]]
+[[vestmental cruciferous vegetable]]
+[[backlink load test]]

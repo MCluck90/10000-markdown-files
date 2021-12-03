@@ -79,5 +79,5 @@ Same as Sure it's
 
 ## Wikilinks load test
 
-[[covetous cesare borgia]]
-[[stoic character reference]]
+[[pasted genus martynia]]
+[[backlink load test]]

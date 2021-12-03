@@ -82,8 +82,6 @@ cried.
 
 ## Wikilinks load test
 
-[[large-minded quarterstaff]]
-[[unafraid diverging lens]]
-[[confederative coffee mill]]
-[[in height lake canandaigua]]
-[[autarchic natal plum]]
+[[tutelary commission on human rights]]
+[[iberian graphic designer]]
+[[backlink load test]]

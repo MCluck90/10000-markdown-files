@@ -86,8 +86,6 @@ Down the real Mary Ann what
 
 ## Wikilinks load test
 
-[[bigeneric mad cow disease]]
-[[past limiting]]
-[[damp alma mater]]
-[[galactic damsel]]
-[[three-legged scruples]]
+[[balconied picture book]]
+[[horse-drawn rumination]]
+[[backlink load test]]

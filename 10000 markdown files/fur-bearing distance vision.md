@@ -88,5 +88,5 @@ If there's no harm
 
 ## Wikilinks load test
 
-[[subterminal ceratopteris thalictroides]]
-[[cassocked potter]]
+[[perfidious nouvelle cuisine]]
+[[backlink load test]]

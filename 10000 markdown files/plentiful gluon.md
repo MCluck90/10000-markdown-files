@@ -89,8 +89,6 @@ Beautiful Soup so many
 
 ## Wikilinks load test
 
-[[regrettable dental amalgam]]
-[[enlarged trapezohedron]]
-[[anapaestic herniated disc]]
-[[swollen-headed insightfulness]]
-[[tightly knit hugo grotius]]
+[[young-bearing sodium hypochlorite]]
+[[interlocutory guild socialism]]
+[[backlink load test]]

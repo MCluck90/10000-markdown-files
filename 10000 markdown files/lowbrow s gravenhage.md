@@ -87,4 +87,6 @@ Dinah'll miss me who only
 
 ## Wikilinks load test
 
-[[anterograde apple geranium]]
+[[complex hernaria glabra]]
+[[grasslike old wives tale]]
+[[backlink load test]]

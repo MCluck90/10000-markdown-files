@@ -95,5 +95,9 @@ After a subject.
 
 ## Wikilinks load test
 
-[[redolent tachyglossidae]]
-[[fur-bearing wave]]
+[[rodlike rumpus room]]
+[[crenulate consolidation]]
+[[rash nervous prostration]]
+[[messy kanamycin]]
+[[moblike laryngitis]]
+[[backlink load test]]

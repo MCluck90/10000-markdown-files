@@ -81,8 +81,6 @@ Chorus again using the
 
 ## Wikilinks load test
 
-[[briton gudgeon pin]]
-[[pandurate blister rust]]
-[[piebald chopstick]]
-[[thorough hymn]]
-[[xxii red eft]]
+[[counterterrorist haydn]]
+[[plumaged ripper]]
+[[backlink load test]]

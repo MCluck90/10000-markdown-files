@@ -86,8 +86,8 @@ Turn a fan.
 
 ## Wikilinks load test
 
-[[subocean sorex cinereus]]
-[[distributional latex paint]]
-[[thick-skinned mimer]]
-[[seventy redmaids]]
-[[gymnosophical mixology]]
+[[watery joint fir]]
+[[colonic remonstration]]
+[[ionian pinctada]]
+[[duplicitous stare]]
+[[backlink load test]]

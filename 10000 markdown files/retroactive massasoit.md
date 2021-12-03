@@ -88,7 +88,6 @@ Idiot.
 
 ## Wikilinks load test
 
-[[breech-loading spiral]]
-[[offstage grading]]
-[[decreed benefaction]]
-[[unasterisked sylviidae]]
+[[uncleanly double check]]
+[[earsplitting stiff]]
+[[backlink load test]]

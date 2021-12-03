@@ -83,8 +83,6 @@ so much of cherry-tart custard pine-apple
 
 ## Wikilinks load test
 
-[[compassionate operations]]
-[[sane sea boat]]
-[[corporeal centrocercus]]
-[[black-coated tetrao]]
-[[colourless phloem]]
+[[apivorous sarcoptidae]]
+[[client-server iliamna]]
+[[backlink load test]]

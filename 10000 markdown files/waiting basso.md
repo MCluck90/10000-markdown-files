@@ -82,6 +82,5 @@ either way was good many
 
 ## Wikilinks load test
 
-[[cartesian no-brainer]]
-[[fain springing cow]]
-[[puffy chisholm trail]]
+[[maroon-purple duodecimal notation]]
+[[backlink load test]]

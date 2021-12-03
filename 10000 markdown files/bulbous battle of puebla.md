@@ -76,5 +76,5 @@ ALICE'S RIGHT FOOT ESQ.
 
 ## Wikilinks load test
 
-[[alto xinjiang uighur autonomous region]]
-[[takeout sugarloaf]]
+[[clammy sitophylus]]
+[[backlink load test]]

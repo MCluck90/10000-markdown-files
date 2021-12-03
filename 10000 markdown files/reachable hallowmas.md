@@ -82,8 +82,5 @@ thump.
 
 ## Wikilinks load test
 
-[[louche river horse]]
-[[pandurate blister rust]]
-[[shortish management control]]
-[[budgetary vice-presidency]]
-[[amygdaloid gill]]
+[[unsalaried backhand stroke]]
+[[backlink load test]]

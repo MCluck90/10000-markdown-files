@@ -80,8 +80,7 @@ Shy they lessen from this question
 
 ## Wikilinks load test
 
-[[lutheran chinch bug]]
-[[isoclinal accusative]]
-[[congenital austen]]
-[[permanent water tower]]
-[[mysophobic grand duchy of luxembourg]]
+[[acrocarpous sura]]
+[[courteous washingtons birthday]]
+[[metallurgical false indigo]]
+[[backlink load test]]

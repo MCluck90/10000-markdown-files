@@ -78,5 +78,9 @@ Stolen.
 
 ## Wikilinks load test
 
-[[kinglike saxifraga oppositifolia]]
-[[uncombable stableness]]
+[[achondroplastic hairspring]]
+[[preexistent neritid]]
+[[getable sewage works]]
+[[plumaged ripper]]
+[[in sight doublethink]]
+[[backlink load test]]

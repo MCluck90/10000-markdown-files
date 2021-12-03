@@ -87,8 +87,7 @@ Visit either but out-of the-way
 
 ## Wikilinks load test
 
-[[prakritic gurkha]]
-[[nonarbitrable iranian dinar]]
-[[falling tansy mustard]]
-[[alienated historical school]]
-[[uncalled-for grias]]
+[[unlearned walkabout]]
+[[specialized genus hypopachus]]
+[[tattling wilson cloud chamber]]
+[[backlink load test]]

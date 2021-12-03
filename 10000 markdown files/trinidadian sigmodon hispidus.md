@@ -77,5 +77,5 @@ which isn't directed at any
 
 ## Wikilinks load test
 
-[[thoriated warder]]
-[[squealing rogue state]]
+[[biracial genus hoheria]]
+[[backlink load test]]
